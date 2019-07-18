@@ -1,0 +1,25 @@
+Building GBBS Pro distribution disks
+
+1. Be sure to build all the new systems
+
+2. Write down the # suffixes for the files you will overwrite in step 3
+
+3. Copy the new object code files to the appropriate folder herein:
+
+	GBBS.CONFIG
+		Config/config.system
+
+	GBBS.SYSTEM
+		ACOS.OBJ
+		ACOS.SYSTEM
+		ENCODE
+
+3. Update the filenames of the files copied in step 3 with the information written down in step 2. (This information is used by Cadius to correctly copy files from the native OS to a ProDOS disk image).
+
+4. Use Cadius to copy the changed files in GBBS.CONFIG and GBBS.SYSTEM to the appropriate po file in the Disk Images folder.
+
+Example in OS X terminal with the working directory in the Distribution folder:
+
+	cadius replacefile Disk_Images/GBBS.CONFIG.po /GBBS.CONFIG/ GBBS.CONFIG/config.system#FF2000
+
+Cadius does not support (at the time this was written) copying more than one file at a time back to ProDOS disk image.
