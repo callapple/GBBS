@@ -1,0 +1,258 @@
+To Build GBBS Pro v2.2 in Merlin 8/16 on a GS running GSOS:
+
+Before you start, setup your source code in a directory on your GS similar to:
+
+	Work/GBBS/Config
+		 /ACOS
+		 /GBBS.CONFIG
+		 /GBBS.SYSTEM
+
+Copy the "Config" sources to the config folder, the "ACOS" sources to the ACOS folder, and the files from the GBBS Config floppy to the GBBS.CONFIG folder, and the files from the GBBS system floppy to the GBBS.SYSTEM folder.
+
+Config and ACOS are where you will be editing, assembling and linking source code. Once you are ready to test a build, copy the resulting files from /Config to /GBBS.CONFIG and the resulting files from /ACOS to /GBBS.SYSTEM. Then copy the contents of the /GBBS folders to floppy disks images (.DSK or .PO) for testing in a virtual machine. Those images can later be written to actual floppy disks (eg, via Applesauce) for use on real hardware.
+
+
+Build Steps:
+
+1. You may need to edit your Merlin 8/16 PARMS file to match on the following defines:
+
+	BUB		DFB	%01100110
+
+	LSTDODFT	DFB	%01001001
+
+Then assemble the file to create a new PARMS file.
+
+2. Use the NEWPARMS command to load the new PARMS file:
+
+	NEWPARMS
+
+3. Set prefix 2 to your GBBS pro folder:
+
+	PFX 2=/DRIVE/GBBS.SOURCE
+
+At this time it is suggested you create a project with the PROJECT command.
+
+	PROJECT SAVE GBBS
+
+NOTE: if you save a GBBS project, be sure to do the NEWPARMS command before saving, as the params are part of the project! This is great, because then you can restore the default params settings and only have the GBBS params applied when working on the GBBS project.
+
+4. Change your prefix to the CONFIG folder:
+
+	PFX 2/CONFIG
+
+5. Load and assemble all the files in these folders (yes, 1 at a time):
+
+(NOTE: you will want to use the PFX command to change the current directory to the base for each of these sub-folders, like PFX 2/CONFIG/CLOCKS)
+
+Clocks/
+	Iic
+	Iigs
+	Mountain
+	No.Slot
+	Null
+	Prodos
+	Serialpro
+	Thunder
+	Ultra
+	Versa
+
+Modems/
+	Cat103
+	Cat212
+	Gsport		(TWICE, first for slot 1, second for slot 2) GS Only driver
+	Gsport.Hst	(TWICE, first for slot 1, second for slot 2) GS Only driver
+	HAYES.NEW	(TWICE, first for slot 1, second for slot 2) GS Only driver
+	HAYES.SSC	(super serial card)
+	Mm2
+	Multispd
+	Nocar
+	Nullmdm
+	Singlespd
+
+Printers/
+	Null
+	Parallel
+	Serial
+	Grappler
+
+Video/
+	Vid40
+	Vid40pl
+	Vid80
+	Videx
+
+6. Set the prefix back to the config folder
+
+	PFX 2/CONFIG
+
+7. load and assemble:
+
+Config/
+	Config
+	Initstr
+
+8. In the editor type Command-O to get the "Command:" prompt box
+
+9. Type "link make" and press return
+
+The resulting file is:
+
+	config.system
+
+10. Switch to the Acos folder
+
+	PFX 2/ACOS
+
+11. Load and assemble
+
+Acos/
+	ACOS
+	ACOS.LOAD
+
+Resulting files are:
+
+	ACOS.OBJ
+	ENCODE
+	ACOS.SYSTEM
+
+12. Now, copy ACOS.OBJ, ENCODE and ACOS.SYSTEM from the Acos folder to your master GBBS.SYSTEM folder. Then copy CONFIG.SYSTEM from the Config folder to your master GBBS.CONFIG folder.
+
+Your master GBBS.CONFIG folder should contain these files:
+
+	PRODOS
+	CONFIG.SYSTEM
+	BC.S
+	LOGON.SEG.S
+	MAIN.SEG.S
+	MSG.CONVERT.S
+	MSG.SEG.S
+	NEW.MSG.FIX.S
+	SYSTEM.SEG.S
+	USER.CONVERT.S
+
+
+Your master GBBS.SYSTEM folder should contain these files:
+
+	ACOS.OBJ
+	ACOS.SYSTEM
+	ENCODE
+	B1
+	BBS
+	DATA
+	DATA1
+	DATA2
+	G1
+	G1.1
+	G1.2
+	HLP.EDIT
+	HLP.MAIN
+	HLP.MSG
+	HLP.USER
+	MAIL
+	MNU.NEW
+	MNU.VAL.40
+	NMU.VAL.80
+	SYS.INFO
+	SYS.NEW.INFO
+	SYS.NEWS
+	SYS.QUESTIONS
+	USER
+	V1.1
+	V1.2
+	V1.3
+	V1.4
+	X.DN
+	X.UP
+	XDOS
+
+
+
+*** INSTALLED FOLDERS ***
+
+Where 'v' is the base path, usually the volume name
+
+v/GBBS.PRO/PROGRAM
+v/GBBS.PRO/SYSTEM
+v/GBBS.PRO/GFILES
+v/GBBS.PRO/SYSTEM
+v/GBBS.PRO/SYSTEM
+v/GBBS.PRO/BULLETINS
+v/GBBS.PRO/MAIL
+
+NOTE: The ACOS source lists these as (not sure why the difference):
+
+v/GBBS.PRO/PROGRAM
+v/GBBS.PRO/SYSTEM
+v/GBBS.PRO/SYSTEM
+v/GBBS.PRO/XFER.DATA
+v/GBBS.PRO/DOWNLOAD
+v/GBBS.PRO/BULLETINS
+v/GBBS.PRO/MAIL
+""
+v/GBBS.PRO/FIDO.NET
+
+
+
+*** MEMORY ***
+
+$800 - CONFIG (include the paths used by the application)
+
+$900 - CONSOLE DRIVER
+
+$C00 - PRINTER DRIVER
+
+$D00 - CLOCK DRIVER
+
+$E00 - MODEM DRIVER
+
+$1100 - Runtime Settings
+	$11C0 - modem init string
+	$11D0 - modem answer string
+
+$1200 - Entry Point (START)
+	JSR	MDMINIT
+	JSR	VIDINIT
+
+
+
+
+*** OLD FILES ***
+
+Only the files that are used are in the main folders above. In each may or may not be an "old" folder that contains files that did not seem to be used, or were old or otherwise modified versions of files.
+
+NOTE: As the original programmer was not available to give guidance on this project, it was not always clear which file to use. There were no build instructions or other documentation and the files used were determined by code review and trial/error. In other words, it is possible that files in Old folders contain later code, which may or may not build, run, etc.
+
+  Acos/Old
+
+	ACOSLoad.asm
+	ACOS.LOAD1
+	ACOSA
+	atlk.test
+	ACOS.LOAD.OLD
+	INITA
+	CMD2A
+
+  Config/Clocks/Old
+
+	Header		(unused?)
+	Clk.Iic.Sys	(partial implementation?)
+	Nsc2x		(ACOS no slot clock)
+
+  Config/Modems/Old
+
+	ACOS.GS.DVR	(unused?)
+	Gsport.Hst2	(PRE DTE)
+	Gsport.NEW1	(1991 16K Buffers
+	Gsport.NEW2	 by Andy Nicholas)
+	Gsport.Slot1	(original)
+	Gsport.Slot2	(original)
+	HAYES.NEW2	(rel/GSPORT version)
+	HAYES.ULTRA	(1991 16K Buffers by Andy Nicholas)
+	HAYES.ULTRA1	(original)
+	HAYES.ULTRA2	(original)
+	SSC.INT		(USRobotics w/Commented out code)
+	SSC.INTERRUPT	(USRobotics)
+
+  Config/Printers/Old
+
+	Printers	(combines all drivers into a single file, “printers”)

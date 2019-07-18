@@ -1,0 +1,31 @@
+---------------------------------------
+     --> Feedback from a User <--
+
+Subj: Config
+From: Larry Hawkins (#669)
+Date: Tue. Jan 16, 1990 @ 23:39:18
+
+I tried the listings, everything is fine but the date is still screwed up
+(1990).
+
+Could not do user purge because of the date, it is screwed up but it could be
+the date.
+
+Profanity filter is fine but what about such as "scum bag" or things to long?
+It lets you enter them then truncates to what it likes.  Error message?
+
+Edit Bulletin:
+ Works fine but the following two items:
+  Auto kill can be set to greater than max bulletins and it takes it.  What
+  does it do, ignore it or set it to something.  Display shows waht you
+  entered.
+
+  Add storage file for an existing board and file.  Original is 128 directory
+  and 256 storage.  Change directory to 256 and answer yes to replace question
+  it "changes" the file size and your bulletin board now has the same number
+  of entries but they are trash.
+
+User list now handles "sparse file" correctly.  What happened???
+
+= Me =
+---------------------------------------

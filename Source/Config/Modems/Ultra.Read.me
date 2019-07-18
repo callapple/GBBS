@@ -1,0 +1,94 @@
+In order to use this new modem driver for the Hayes Ultra 9600/Practial
+Peripherals 9600SA you will need to be running ACOS 2.1 or newer and
+buy a cable from L&L or modify/build your own. Here are the pinouts needed:
+
+IIgs modem port - RS-252 (modem)
+--------------------------------
+           1 - 20     (DTR)
+           2 - 5      (CTS)
+           3 - 2      (TxD)
+        |- 4 - 7 & 1  (GND)
+        |  5 - 3      (RxD)
+        |  7 - 6      (DCD)
+        |- 8
+               8 -|   (DSR)
+               4 -|   (RTS)
+
+This is by all means NOT a standard cable. But it will work for GBBS Pro and
+Talk is Cheap (should work with ProTERM). The advantage of this is that it
+allows you to have hardware handshaking and thus gives you the maximum
+performance you can get out of your 9600 baud modem.
+
+After you have built/bought this cable, you can install the driver. To do this
+you need to do the following.
+
+Back up your acos.obj file
+Enter BASIC
+BLOAD ACOS.OBJ
+BLOAD Hayes.Ultra.Dvr
+BSAVE ACOS.OBJ,a$800,l$5300
+
+That's it!!
+
+Some notes about the driver. Auto Answer is active with this driver so the AA
+light will be lit, if you want to increase the number of rings before it
+answers, then edit the init string (it's at $11d0). Also, the driver is talking
+to the modem at 38,400 (yes 38,400) baud. So any connections at a slower speed
+will cause the TXD light is look strangly dim. This is nothing to be concerned
+about.
+
+If you experience any problems or have questions, I can be reached at the L&L
+Support & Sysops Exchange BBS (303) 420-3568 or via fido net address
+Lance Taylor-Warren@1:104/229
+
+Lance Taylor-Warren,
+President, L&L Productions, Inc.
+
+PS Thanks to Jeff Brielmaier for the new and interesting way to get result
+codes from the modem.
+
+-------------------------------------------
+
+; replace the code in the logon seg with this otherwise you will get
+; overflow errors if someone calls at 38400.
+ if info(2)=128 x$="38400":else x$=str$(info(2)*300)
+ print sc$:if info(0) print "Connect at ["x$"] baud!"
+ gosub protocol:if x$="" print:else print x$
+ print \"(*> Welcome to "sn$" <*)"
+
+
+; add this to the end of the logon.seg.s
+
+protocol
+ x$="":y$="":x=peek(4540):y=peek(4541)
+ x$="No Error Correction"
+ if x=71 x$="LAP-B Error Correction"
+ if x=72 x$="LAP-B/HDX Error Correction"
+ if x=73 x$="AFT Error Correction"
+ if x=74 x$="X.25/LAP-B Error Correction"
+ if x=75 x$="X.25/LAP-B/HDX Error Correction"
+ if x=76 x$="X.25/LAP-B/AFT Error Correction"
+ if x=77 x$="LAP-M Error Correction"
+ if x=78 x$="LAP-M/HDX Error Correction"
+ if x=79 x$="LAP-M/AFT Error Correction"
+ if x=80 x$="Alternative/MNP Error Correction"
+
+ y$="No Compression"
+ if y=66 y$="Class 5 Compression (MNP 5)"
+ if y=67 y$="V42.bis Compression"
+ if y=68 y$="Hayes Adaptive Data Compression"
+ x$=x$+" & "+y$+" detected."
+ return
+
+----------------------------------------------
+
+; change the following in the main.seg otherwise you will get overflow
+; errors if a caller is at 38400.
+
+ create "b:log.system":open #1,"b:log.system":append #1
+ print #1,"Call #"cn$" / Connected at "cm$" / "a3$" of "a4$", "a5$
+ print #1,"Last date on "lc$" / "ph$" / User #"un;
+ if info(2)=128 x$="38400":else x$=str$(info(2)*300)
+ print #1," / Speed = "x$" baud"
+ for x=1 to 8:print #1,flag(x);:next:a=clock(1)
+ print #1," / Connected "a/60" mins, "a mod 60" secs"\:close
