@@ -1,1 +1,285 @@
-» ªªªªªªªªªªªªªªªªªªª» ΗΒΒΣ ΆΠςοΆ ΦΊ²®²ξ» Γοπωςιηθτ ±ΉΈ°­²°±Ή»  Λεφιξ Ν® Σναμμχοοδ» ªªªªªªªªªªªªªªªªªªª» μοηοξ σεηνεξτ ςεφ ­ ²―±Ή―²°±· πυβμιγ ηετ®πασσ γμεας σετ πα¤½ςαν¬ΈΊσετ πθ¤½ςαν«Έ¬±² χθεξ¤½ςαν«²°Ίζμαη½ςαν«²² ξιββμε½ςαν«²·Ίβωτε½ςαν«³· σγ¤½γθς¤¨±²©σταςτ νοδεν¨±©Ίγμοσε οπεξ £±¬ΆβΊδαταΆ ιξπυτ £±¬γ±¬γ²¬γτ¬γτ¤¬δα¤ ιξπυτ £±¬ξυ¬νξ¬χν¬τνάμυ¤ γμοσεΊοπεξ £±¬ΆβΊδατα±Ά ιξπυτ £±¬σξ¤άσωσ¤άσφ¤ ιξπυτ £±¬νδ¤άσ¤άξ¤ ιξπυτ £±¬μη¬ζφΊγμοσε δατε¤½δα¤Ίδα¤½δατε¤Ίγξ¤½στς¤¨γ²© ιζ γτ¤½δα¤ ηοτο σταςτ± γτ½±Ίγτ¤½δα¤Ίλιμμ ΆβΊμοη®δαιμωΆ γςεατε ΆβΊμοη®δαιμωΆΊοπεξ £±¬ΆβΊμοη®δαιμωΆ πςιξτ £±¬ΆΞανε οζ υσες          Βαυδ  Μοηοζζ τινεΆάΊγμοσεσταςτ± ιζ γ± γξ¤½στς¤¨γ±©«ςιηθτ¤¨Ά°°°Ά«γξ¤¬΄© τεψτΊθονε πςιξτ Ά ΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΆ πςιξτ §Ί          ΗΒΒΣ ΆΠςοΆ Φ²®²ξ           Ί§ πςιξτ §Ί Γοπωςιηθτ ±ΉΈ°­²°±Ή Λεφιξ Σναμμχοοδ Ί§ πςιξτ § ΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊΊ§ πςιξτ ΐ¨²°­μεξ¨σξ¤©―²©¬¶ σξ¤ ψ¤½ΆΑχαιτιξη γαμμ Ά«γξ¤«Ά οξ Ά«δα¤ πςιξτ ΐ¨²°­μεξ¨ψ¤©―²©¬Έ ψ¤ ψ¤½ΆΤθισ χιμμ βε γαμμ Ά«στς¤¨γτ©«Ά τοδαωΆ πςιξτ ΐ¨²°­μεξ¨ψ¤©―²©¬Ή ψ¤» υσε ΆβΊαγοσ®τινε¬²°¬²°Ά νοδεν¨°©Ίββ½°ΊθονεΊγμογλ¨°© δ½°Ίοξ ξογας ηοτο σταςτ τοξε¨±°°¬µ°©Ίτοξε¨±²µ¬µ°©Ίτοξε¨±µ°¬µ°©Ίγν¤½δατε¤«Ά Ά«τινε¤ ι¤½ΆΆΊιζ ιξζο¨°© ηοτο οξμιξε πςιξτ Ά±© Αυτο Μοηοξ    ²© Ξοςναμ ΜοηοξΆ πςιξτ Ά³© Σωστεν Μοηοξ  ΄© Μοηοξ ασ α υσεςΆά πςιξτ ΆΧθιγθ Ώ Ά»Ίηετ ι¤ ιζ ¨ι¤½Ά±Ά© ος ¨ι¤½ΆΩΆ© τθεξ ψ½±Ίι¤½ΆΆΊηοτο αυτομοη ιζ ¨ι¤½Ά³Ά© ος ¨ι¤½ΆΣΆ© τθεξ ψ½±Ίι¤½ΆΆΊδ½±ΉΊηοτο αυτομοη ιζ ¨ι¤ΌΎΆ΄Ά© αξδ ¨ι¤ΌΎΆΥΆ© ηοτο οξμιξε ιξπυτ άΆΥσες ξυνβες το μοη οξ ασΊ Ά ι¤Ίψ½φαμ¨ι¤©Ίι¤½ΆΆΊηοτο αυτομοηοξμιξε πςιξτ σγ¤Ίιζ ιξζο¨°© πςιξτ ΆΓοξξεγτ ατ ΫΆιξζο¨²©ª³°°Άέ βαυδ΅Άά πςιξτ άΆ¨ªΎ Χεμγονε το Άσξ¤Ά Όª©Ά πςιξτ ά§Ξεχ υσεςσ τωπε ΆΞΕΧΆ§μοηοξ πςιξτ άΆΑγγουξτ ΞυνβεςΆ υξ½°Ίιξπυτ Ά­­ΎΆ ι¤Ίψ½φαμ¨ι¤© ιζ ι¤½ΆΞΕΧΆ ηοτο ξεχ®υσες πςιξτ άΆΕξτες ΠασσχοςδΆ εγθο½ΆΨΆΊιξπυτ Ά­­ΎΆ ι¤Ίεγθο½ΆΆ πςιξτ άΆΦεςιζωιξη Αγγουξτ®®®Άμοηοξ² ιζ ¨ψΌ±© ος ¨ψΎξυ© ηοτο βαδ®υσες ι¤½μεζτ¤¨ι¤«Ά     Ά¬Έ©αυτομοη ηοσυβ ςδ®υσεςΊιζ δ±¤½ΆΆ ηοτο βαδ®υσες ιζ ι¤½πα¤ ηοτο μοηιξ ιζ ι¤½ΆΆ ηοτο μοηιξβαδ®υσες ββ½ββ«± ιζ ββΌ³ πςιξτ άΆΙξγοςςεγτ¬ τςω αηαιξΆΊηοτο μοηοξ πςιξτ άΆΙμμεηαμ ΑγγεσσΆΊηοτο σταςτ» ªªª Ξεχ Υσες Μοηοξ ªªªξεχ®υσες πςιξτ άΆΕξτες ωους ςεαμ ζυμμ ξανε Ϋ²° γθαςσ ναψέΆ ιξπυτ ΐ³ ΆΊΆ ι¤Ίιζ ι¤½ΆΆ ηοτο ξεχ®υσες ιζ μεξ¨ι¤©Ύ²° πςιξτ άΆ²° γθαςαγτεςσ οξμω πμεασε®ΆΊηοτο ξεχ®υσες ιζ ιξστς¨Ά¬Ά¬ι¤¬±© πςιξτ άΆΞο γοννασ πμεασε®ΆΊηοτο ξεχ®υσες δ³¤½ι¤Ία¤½ΆΆΊζος μ½± το μεξ¨ι¤© ψ½ασγ¨νιδ¤¨ι¤¬μ¬±©©Ίιζ ψΎΉ¶ τθεξ ψ½ψ­³² α¤½α¤«γθς¤¨ψ©ΊξεψτΊψ½ιξστς¨Ά Ά¬α¤¬±© ιζ ξοτ¨ψ© δ²¤½α¤Ίδ±¤½Ά®ΆΊηοτο ηετ®γιτω δ±¤½μεζτ¤¨α¤¬ψ­±©Ίδ²¤½νιδ¤¨α¤¬ψ«±©ηετ®γιτω πςιξτ άΆΓιτω Ϋ±¶ γθαςσ ναψέΆ ιξπυτ ΆΊΆ δ΄¤ ιζ μεξ¨δ΄¤©Ύ±¶ πςιξτ ΆΤοο μοξη¬ τςω αηαιξΆΊηοτο ηετ®γιτωηετ®στατε πςιξτ άΆΣτατε ΫΖοςνΊ ΨΨέΆ ιξπυτ ΆΊΆ δµ¤ ιζ μεξ¨δµ¤©ΌΎ² πςιξτ ΆΤχο μεττες γοδε οξμω®ΆΊηοτο ηετ®στατε ζιμμ ςαν¬µΈ¬°ηετ®πθοξε πςιξτ άΆΠθοξε ξυνβες ΫΖοςνΊ £££­£££­££££έΆ ιξπυτ ΆΊΆ ι¤ ιζ μεξ¨ι¤©ΌΎ±² ηοτο ηετ®πθοξε α¤½μεζτ¤¨ι¤¬³©«Ά­Ά«νιδ¤¨ι¤¬µ¬³©«Ά­Ά«ςιηθτ¤¨ι¤¬΄© πθ¤½α¤ πςιξτ άΆΧε θαφε τθε ζομμοχιξη®Άά πςιξτ δ³¤άδ΄¤Ά¬ Άδµ¤άπθ¤άΊιξπυτ ΐ² ΆΙσ τθισ γοςςεγτ ¨Ω―ΫΞέ© Ώ Ά ι¤ ιζ μεζτ¤¨ι¤¬±©ΌΎΆΩΆ ηοτο μοηοξηετ®ηυεστ ξιββμε¨°©½χιδτθ¨°©­±Ίεδιτ¨΄©½° εδιτ¨³©½χιδτθ¨ξιββμε¨°©«±©­± ξιββμε¨µ©½³Ίβωτε¨·©½° πςιξτ ά§Τωπε ΆΠΆ ζος α πασσχοςδ ος ΆΗΆ ζος§ πςιξτ Άηυεστ αγγεσσ®Ά ιξπυτ ΐ° Ά­­ΎΆ ι¤ ιζ ι¤½ΆΠΆ ηοτο ηετ®πασσ ιζ ι¤ΌΎΆΗΆ ηοτο ηετ®ηυεστ ψ½°Ίπα¤½ΆΗΥΕΣΤ   ΆΊζμαη¨°©½± μγ¤½ΆΥΞΛΞΟΧΞΆΊηοτο μοηιξηετ®πασσ ζμαη¨°©½°Ίοξ ξογας ηοτο σταςτ πςιξτ άΆΖιξδιξη ωους αγγουξτ®Ά πςιξτ άΆΓθεγλιξη ΆξυΆ υσες ζιμεσ®®®Ϋ°°±έΆ» οπεξ £±¬ΆβΊυσεςσΆ α½±Ίϊ½°Ία¤½δ±¤«Ά¬Ά«δ²¤αδδ®υσες ποσιτιοξ £±¬±²Έ¬α ιξπυτ £±¬β¤¬γ¤ ι¤½β¤«Ά¬Ά«γ¤ ιζ α¤½ι¤ γμοσεΊπςιξτ άάΆΩους ξανε ισ βειξη υσεδ®ΆΊηοτο μοηοξ ιζ ¨ι¤½Ά¬Ά© αξδ ¨ξοτ ϊ© τθεξ ϊ½α α½α«±Ίιζ ιξζο¨²©ΌΎ± πςιξτ γθς¤¨Έ¬΄©»ςιηθτ¤¨Ά°°Ά«στς¤¨α©¬³©ΆέΆ» ιζ ιξζο¨²©½± ιζ ξοτ ¨α νοδ µ© πςιξτ γθς¤¨Έ¬΄©»ςιηθτ¤¨Ά°°Ά«στς¤¨α©¬³©ΆέΆ» ιζ αΌ½ξυ ηοτο αδδ®υσες α½ϊΊιζ ξοτ ϊ τθεξ ξυ½ξυ«±Ία½ξυΊγμοσε πςιξτ σγ¤Ίγοπω Άσωσ®ξεχιξζοΆΊψ½°Ίπςιξτ γςεατε ΆβΊτενπΆΊοπεξ £±¬ΆβΊσωσ®ρυεστιοξσΆΊοπεξ £²¬ΆβΊτενπΆιξζο ιξπυτ £±¬α¤Ίιζ α¤½ΆªΆ ηοτο ιξζο®± ιζ εοζ¨±© ηοτο ιξζο®² πςιξτ α¤Ίηοτο ιξζοιξζο®± ιξπυτ άΆΊΆ ι¤Ίπςιξτ £²¬ι¤Ίηοτο ιξζοιξζο®² πςιξτ άΆΧουμδ ωου μιλε το μεαφε τθε ΣωσοπΆ ιξπυτ ΐ² Άα Νεσσαηε ¨Ω―ΫΞέ© Ώ Ά ι¤Ίιζ μεζτ¤¨ι¤¬±©ΌΎΆΩΆ ηοτο ιξζο®³ πςιξτ σγ¤ΆΕξτες νεσσαηε ξοχ¬ ΄° γομυνσ¬ ΄λ ναψΆ πςιξτ §Ά®θΆ ζος θεμπ¬ ΆΔΟΞΕΆ χθεξ ζιξισθεδ§ γμοσε £±Ίεδιτ¨°©Ίεδιτ¨±©Ίιζ ξοτ εδιτ¨²© ηοτο ιξζο®³ πςιξτ £²Ίαππεξδ £²Ίγοπω £Έ¬£²Ίαππεξδ £²Ίπςιξτ £²ιξζο®³ γμοσεΊεδιτ¨°©Ίγοπω ΆβΊτενπΆ¬£ΈΊλιμμ ΆβΊτενπΆιξζο®³α πςιξτ άΆΠμεασε εξτες α πασσχοςδ Ϋ΄­Έ ΓθαςαγτεςσέΆ ιξπυτ ΐ² ΆΊΆ ι¤Ίιζ ι¤½ΆΆ ζος ψ½± το µΊι¤½ι¤«ςξδ¤Ίξεψτ ψ½μεξ¨ι¤©Ίιζ ψΌ΄ πςιξτ άΆΠασσχοςδ νυστ βε ατ μεαστ ΄ γθαςσΆΊηοτο ιξζο®³α πα¤½μεζτ¤¨ι¤«γθς¤¨³²¬·©¬Έ© πςιξτ άάΆΩου χιμμ βε υσες £Άα πςιξτ ΆΠασσχοςδ χιμμ βε ΊΆπα¤ πςιξτ άΆΠμεασε χςιτε τθεν δοχξ ασ ωουΆ πςιξτ Άχιμμ ξεεδ τθεν ξεψτ τινε ωου γαμμ® χθεξ¤½δατε¤Ίοπεξ £±¬ΆυσεςσΆ ποσιτιοξ £±¬±²Έ¬α πςιξτ £± δ±¤¬δ²¤άδ³¤άδ΄¤¬δµ¤ ποσιτιοξ £±¬±²Έ¬α¬·° χςιτε £±¬ςαν¬µΈΊγμοσε γςεατε ΆβΊςερυεστΆΊοπεξ £±¬ΆβΊςερυεστΆΊα¤½Ά¨Ύ Ά αππεξδ £±Ίπςιξτ £±¬αάα¤ΆΞΕΧ ΥΣΕÒ ΔΑΤΑΆ πςιξτ £±¬α¤»δ³¤άα¤»δ΄¤Ά¬ Άδµ¤άα¤»Ά£ΆαΆ­Άπα¤ πςιξτ £±¬α¤»πθ¤άα¤»δατε¤Ά Άτινε¤άΊαππεξδ £± γοπω £Έ¬£±Ίαππεξδ £±Ίπςιξτ £±¬γθς¤¨±©Ίγμοσε ςεαδω ΆηΊναιμΆΊλιμμ £νση¨α©Ίυπδατε πςιξτ άΆΠςεσσ ΌΓÒΎ το εξτες Άσξ¤» ιξπυτ ΐ³ Ά Ά ι¤Ίψ½αΊι¤½πα¤Ίηοτο μοηοξ²» ªªª Ναιξ Μοηοξ Òουτιξε ªªªμοηιξ ιζ μγ¤ΌΎδατε¤ τθεξ ξιββμε¨¶©½°Ίζμαη¨³¶©½°Ίβωτε¨·©½° μς½βωτε¨µ©«βωτε¨¶©ª²µ¶Ίιζ μςΎνξ τθεξ μς½° ξβ½μςΊυξ½ψΊιξζο¨³©½βωτε¨°©Ίβ½βωτε¨·©Ίιζ ζμαη¨±© ζμαη¨°©½° ιζ ¨βΌξιββμε¨µ©ª±°© ος ζμαη¨³΄© ηοτο μοηιξ± πςιξτ άάΆΔαιμω τινε εψπιςεδ® Γαμμ τοναςςοχΆΊηοτο σταςτμοηιξ± ιζ ¨ζμαη¨³΄© αξδ ¨ξιββμε¨µ©½°©© β½°Ίηοτο μοηιξ±α β½¨¨ξιββμε¨µ©ª±°©­βωτε¨·©©ª¶°μοηιξ±α γμογλ¨²©½βΊβ½¨¨γμογλ¨²©­γμογλ¨±©©―¶°©«±» Τθισ γοδε γαξ βε δεμετεδ ιζ ωου αςε ςυξξιξη α ξεχ ±®³ σωστεν» ος αμμ υσεςσ θαφε μοηηεδ οξ σιξγε τθε γθαξηε οφες® ιζ δ΄¤½ΆΆ ηοσυβ υπ®ζςον» τθε γοδε αβοφε ισ ζος υπδατιξη ωους ±®³ υσες ζιμε α±¤½δ±¤Ία²¤½δ²¤Ία³¤½δ³¤Ία΄¤½δ΄¤Ίαµ¤½δµ¤ τγ½βωτε¨±©«ξιββμε¨±©ª²µ¶Ίβπ½βωτε¨²©«ξιββμε¨²©ª²µ¶ δμ½βωτε¨³©«ξιββμε¨³©ª²µ¶Ίυμ½βωτε¨΄©«ξιββμε¨΄©ª²µ¶ ιξζο¨µ©½ζμαη¨³΄©Ίιζ ξοτ ζμαη¨±© ιξζο¨µ©½° ιζ ¨ξοτ ιξζο¨µ©© ος ¨ξοτ ιξζο¨°©© ηοτο μοηιξ² πςιξτ άΆÒενοτε ΠασσχοςδΆΊεγθο½ΆΨΆΊιξπυτ Ά­­ΎΆ ι¤ εγθο½ΆΆΊιζ ι¤ΌΎσφ¤ τθεξ ιξζο¨µ©½°μοηιξ² πςιξτ σγ¤Ίηοσυβ ηετ®τινε πςιξτ ΆΗοοδ Άψ¤Ά Άα³¤Ά¬ΆάΆΙτ§σ Άτινε¤Ά οξ Άδατε¤ πςιξτ ΆΩου χεςε μαστ οξ Άμγ¤ ιζ ξοτ ιξζο¨µ© πςιξτ ΆΤινε μεζτ τοδαωΊ ΆβΆ νιξσ®Άά α¤½ςιηθτ¤¨Ά   Ά«στς¤¨υξ©¬΄©Ίγμεας £Ή πςιξτ £Ή¬γξ¤¬α±¤Ά Άα²¤Ά οζ Άα΄¤Ά¬ Άαµ¤¬ξιββμε¨¶© πςιξτ £Ή¬τγ¬υμ¬δμ¬βπ¬πθ¤¬μγ¤¬α¤¬πα¤ ζος ψ½± το ³΄Ίπςιξτ £Ή¬ζμαη¨ψ©»Ίξεψτ πςιξτ ή ιζ μςΌχν τθεξ ζ¤½ΆβΊσωσ®ξεχσΆΊηοσυβ σθοχ®ζιμε ιζ μς«±½χν τθεξ μς½χν πςιξτ άΆΧεμγονε το τθε βοαςδΆ πςιξτ άΆΣωσοπ ­ΎΆσωσ¤ ββ½±Ίςεαδω ΆζΊβ±Ά πςιξτ άΆΝαιξ Βυμμετιξσ ζςον ± το Άνση¨°© α½νξ­μςΊιζ μς½° τθεξ α½τν ιζ α πςιξτ ΆΤθεςε αςε ΆαΆ ξεχ βυμμετιξσΆ ιζ ξοτ ιξζο¨µ© ηοτο μοηιξ³ οπεξ £±¬ΆβΊςερυεστΆΊα½ναςλ¨±©Ίγμοσε ιζ ξοτ α πςιξτ ΆΤθεςε αςε ξεχ υσεςσΆμοηιξ³ εδιτ¨΄©½ξιββμε¨°©―΄Ίγθ½±Ίεδιτ¨³©½χιδτθ¨¨ξιββμε¨°© νοδ ΄©«±©­± ιζ ¨ιξζο¨µ©© αξδ ¨δ½±Ή© μιξλ ΆαΊσωστεν®σεηΆ μιξλ ΆαΊναιξ®σεηΆ» ªªª Συβ ­ Òουτιξεσ ªªªςδ®υσες οπεξ £±¬ΆβΊυσεςσΆ ποσιτιοξ £±¬±²Έ¬ψ ιξπυτ £±¬δ±¤¬δ²¤άδ³¤άδ΄¤¬δµ¤ ποσιτιοξ £±¬±²Έ¬ψ¬·° ςεαδ £±¬ςαν¬µΈ μγ¤½νιδ¤¨Ά Ά«χθεξ¤¬²© γμοσε £± ςετυςξσθοχ®ζιμε σετιξτ¨±©Ίπςιξτ άσ¤άΊγοπω ζ¤Ίσετιξτ¨ΆΆ©Ίςετυςξηετ®τινε ψ½φαμ¨μεζτ¤¨τινε¤¬²©© ιζ ψΌ±· ψ¤½ΆαζτεςξοοξΆΊεμσε ψ¤½ΆεφεξιξηΆ ιζ ψΌ±² ψ¤½ΆνοςξιξηΆ ςετυςξ» τθε γοδε βεμοχ ισ ζος υπδατε οζ τθε ±®² υσες ζιμε» δεμετε ιζ ςυξξιξη ξεχ υσες ζιμε ζος ±®³®υπ®ζςον πςιξτ άΆΓιτω Ϋ±¶ γθαςσ ναψέΆ ιξπυτ ΆΊΆ δ΄¤ ιζ μεξ¨δ΄¤©Ύ±¶ πςιξτ ΆΤοο μοξη¬ τςω αηαιξΆΊηοτο υπ®ζςονυπ®στατε πςιξτ άΆΣτατε ΫΖοςνΊ ΨΨέΆ ιξπυτ ΆΊΆ δµ¤ ιζ μεξ¨δµ¤©Ό² πςιξτ ΆΤχο μεττες γοδε πμεασε®ΆΊηοτο υπ®στατε ιζ μεξ¨δµ¤©Ύ² πςιξτ ΆΤχο μεττες γοδε οξμω®ΆΊηοτο υπ®στατε πςιξτ άΆΧε θαφε τθε ζομμοχιξη®Άά πςιξτ δ΄¤Ά¬ Άδµ¤άΊιξπυτ ΐ² ΆΙσ τθισ γοςςεγτ ¨Ω―ΫΞέ© Ώ Ά ι¤ ιζ μεζτ¤¨ι¤¬±©ΌΎΆΩΆ ηοτο υπ®ζςον ςετυςξ
+; *******************
+; GBBS "Pro" V:2.2n
+; Copyright 1980-2019
+;  Kevin M. Smallwood
+; *******************
+; logon segment rev - 2/19/2017
+
+ public get.pass
+ clear
+ set pa$=ram,8:set ph$=ram+8,12
+ when$=ram+20:flag=ram+22
+ nibble=ram+27:byte=ram+37
+ sc$=chr$(12)
+
+start
+ modem(1):close
+ open #1,"b:data"
+ input #1,c1,c2,ct,ct$,da$
+ input #1,nu,mn,wm,tm\lu$
+ close:open #1,"b:data1"
+ input #1,sn$\sys$\sv$
+ input #1,md$\s$\n$
+ input #1,lg,fv:close
+ date$=da$:da$=date$:cn$=str$(c2)
+ if ct$=da$ goto start1
+ ct=1:ct$=da$:kill "b:log.daily"
+ create "b:log.daily":open #1,"b:log.daily"
+ print #1,"Name of user          Baud  Logoff time"\:close
+start1
+ if c1 cn$=str$(c1)+right$("000"+cn$,4)
+
+ text:home
+ print " :::::::::::::::::::::::::::::::::::::"
+ print ':          GBBS "Pro" V2.2n           :'
+ print ': Copyright 1980-2019 Kevin Smallwood :'
+ print ' :::::::::::::::::::::::::::::::::::::'
+
+ print @(20-len(sn$)/2),6 sn$
+ x$="Awaiting call "+cn$+" on "+da$
+ print @(20-len(x$)/2),8 x$
+ x$="This will be call "+str$(ct)+" today"
+ print @(20-len(x$)/2),9 x$
+; use "b:acos.time,20,20"
+ modem(0):bb=0:home:clock(0)
+ d=0:on nocar goto start
+ tone(100,50):tone(125,50):tone(150,50):cm$=date$+" "+time$
+ i$="":if info(0) goto online
+ print "1) Auto Logon    2) Normal Logon"
+ print "3) System Logon  4) Logon as a user"\
+ print "Which ? ";:get i$
+ if (i$="1") or (i$="Y") then x=1:i$="":goto autolog
+ if (i$="3") or (i$="S") then x=1:i$="":d=19:goto autolog
+ if (i$<>"4") and (i$<>"U") goto online
+ input \"User number to log on as: " i$:x=val(i$):i$="":goto autolog
+
+online
+ print sc$:if info(0) print "Connect at ["info(2)*300"] baud!"\
+ print \"(*> Welcome to "sn$" <*)"
+ print \'New users type "NEW"'
+
+logon
+ print \"Account Number"
+ un=0:input "-->" i$:x=val(i$)
+ if i$="NEW" goto new.user
+ print \"Enter Password"
+ echo="X":input "-->" i$:echo=""
+ print \"Verifying Account..."
+
+logon2
+ if (x<1) or (x>nu) goto bad.user
+ i$=left$(i$+"     ",8)
+autolog
+ gosub rd.user:if d1$="" goto bad.user
+ if i$=pa$ goto login
+ if i$="" goto login
+
+bad.user
+ bb=bb+1
+ if bb<3 print \"Incorrect, try again":goto logon
+ print \"Illegal Access":goto start
+
+; *** New User Logon ***
+new.user
+ print \"Enter your real full name [20 chars max]"
+ input @3 ":" i$:if i$="" goto new.user
+ if len(i$)>20 print \"20 characters only please.":goto new.user
+ if instr(",",i$,1) print \"No commas please.":goto new.user
+ d3$=i$:a$="":for l=1 to len(i$)
+ x=asc(mid$(i$,l,1)):if x>96 then x=x-32
+ a$=a$+chr$(x):next:x=instr(" ",a$,1)
+ if not(x) d2$=a$:d1$=".":goto get.city
+ d1$=left$(a$,x-1):d2$=mid$(a$,x+1)
+
+get.city
+ print \"City [16 chars max]"
+ input ":" d4$
+ if len(d4$)>16 print "Too long, try again":goto get.city
+
+get.state
+ print \"State [Form: XX]"
+ input ":" d5$
+ if len(d5$)<>2 print "Two letter code only.":goto get.state
+ fill ram,58,0
+
+get.phone
+ print \"Phone number [Form: ###-###-####]"
+ input ":" i$
+ if len(i$)<>12 goto get.phone
+ a$=left$(i$,3)+"-"+mid$(i$,5,3)+"-"+right$(i$,4)
+ ph$=a$
+ print \"We have the following."\
+ print d3$\d4$", "d5$\ph$\:input @2 "Is this correct (Y/[N]) ? " i$
+ if left$(i$,1)<>"Y" goto logon
+
+get.guest
+ nibble(0)=width(0)-1:edit(4)=0
+ edit(3)=width(nibble(0)+1)-1
+ nibble(5)=3:byte(7)=0
+ print \'Type "P" for a password or "G" for'
+ print "guest access."
+ input @0 "-->" i$
+ if i$="P" goto get.pass
+ if i$<>"G" goto get.guest
+ x=0:pa$="GUEST   ":flag(0)=1
+ lc$="UNKNOWN":goto login
+
+get.pass
+ flag(0)=0:on nocar goto start
+ print \"Finding your account."
+ print \"Checking "nu" user files...[001]";
+ open #1,"b:users"
+ a=1:z=0:a$=d1$+","+d2$
+
+add.user
+ position #1,128,a
+ input #1,b$,c$
+ i$=b$+","+c$
+ if a$=i$ close:print \\"Your name is being used.":goto logon
+
+ if (i$=",") and (not z) then z=a
+ a=a+1:if info(2)<>1 print chr$(8,4);right$("00"+str$(a),3)"]";
+ if info(2)=1 if not (a mod 5) print chr$(8,4);right$("00"+str$(a),3)"]";
+ if a<=nu goto add.user
+ a=z:if not z then nu=nu+1:a=nu:close
+ print sc$:copy "sys.newinfo":x=0:print
+ create "b:temp":open #1,"b:sys.questions":open #2,"b:temp"
+
+info
+ input #1,a$:if a$="*" goto info.1
+ if eof(1) goto info.2
+ print a$:goto info
+
+info.1
+ input \":" i$:print #2,i$:goto info
+
+info.2
+ print \"Would you like to leave the Sysop"
+ input @2 "a Message (Y/[N]) ? " i$:if left$(i$,1)<>"Y" goto info.3
+ print sc$"Enter message now, 40 colums, 4k max"
+ print '".h" for help, "DONE" when finished'
+ close #1:edit(0):edit(1):if not edit(2) goto info.3
+ print #2:append #2:copy #8,#2:append #2:print #2
+
+info.3
+ close:edit(0):copy "b:temp",#8:kill "b:temp"
+info.3a
+ print \"Please enter a password [4-8 Characters]"
+ input @2 ":" i$:if i$="" for x=1 to 5:i$=i$+rnd$:next
+ x=len(i$):if x<4 print \"Password must be at least 4 chars":goto info.3a
+ pa$=left$(i$+chr$(32,7),8)
+ print \\"You will be user #"a
+ print "Password will be :"pa$
+ print \"Please write them down as you"
+ print "will need them next time you call.
+ when$=date$:open #1,"users"
+ position #1,128,a
+ print #1 d1$,d2$\d3$\d4$,d5$
+ position #1,128,a,70
+ write #1,ram,58:close
+
+ create "b:request":open #1,"b:request":a$="(> "
+ append #1:print #1,a\a$"NEW USER DATA"
+ print #1,a$;d3$\a$;d4$", "d5$\a$;"#"a"-"pa$
+ print #1,a$;ph$\a$;date$" "time$\:append #1
+ copy #8,#1:append #1:print #1,chr$(1):close
+ ready "g:mail":kill #msg(a):update
+ print \"Press <CR> to enter "sn$;
+ input @3 " " i$:x=a:i$=pa$:goto logon2
+
+; *** Main Logon Routine ***
+login
+ if lc$<>date$ then nibble(6)=0:flag(36)=0:byte(7)=0
+ lr=byte(5)+byte(6)*256:if lr>mn then lr=0
+ nb=lr:un=x:info(3)=byte(0):b=byte(7):if flag(1) flag(0)=0
+ if (b<nibble(5)*10) or flag(34) goto login1
+ print \\"Daily time expired. Call tomarrow":goto start
+login1
+ if (flag(34) and (nibble(5)=0)) b=0:goto login1a
+ b=((nibble(5)*10)-byte(7))*60
+login1a
+ clock(2)=b:b=((clock(2)-clock(1))/60)+1
+
+; This code can be deleted if you are running a new 1.3 system
+; or all users have logged on since the change over.
+
+ if d4$="" gosub up.from
+
+; the code above is for updating your 1.3 user file
+
+ a1$=d1$:a2$=d2$:a3$=d3$:a4$=d4$:a5$=d5$
+ tc=byte(1)+nibble(1)*256:bp=byte(2)+nibble(2)*256
+ dl=byte(3)+nibble(3)*256:ul=byte(4)+nibble(4)*256
+ info(5)=flag(34):if not flag(1) info(5)=0
+ if (not info(5)) or (not info(0)) goto login2
+
+ print \"Remote Password":echo="X":input "-->" i$
+ echo="":if i$<>sv$ then info(5)=0
+
+login2
+ print sc$:gosub get.time
+ print "Good "x$" "a3$","\"It's "time$" on "date$
+ print "You were last on "lc$
+ if not info(5) print "Time left today: "b" mins."\
+
+ a$=right$("   "+str$(un),4):clear #9
+ print #9,cn$,a1$" "a2$" of "a4$", "a5$,nibble(6)
+ print #9,tc,ul,dl,bp,ph$,lc$,a$,pa$
+ for x=1 to 34:print #9,flag(x);:next
+ print ^
+
+ if lr<wm then f$="b:sys.news":gosub show.file
+ if lr+1=wm then lr=wm
+ print \"Welcome to the board"
+ print \"Sysop ->"sys$
+
+ bb=1:ready "f:b1"
+ print \"Main Bulletins from 1 to "msg(0)
+ a=mn-lr:if lr=0 then a=tm
+ if a print "There are "a" new bulletins"
+ if not info(5) goto login3
+ open #1,"b:request":a=mark(1):close
+ if not a print "There are new users"
+login3
+ edit(4)=nibble(0)/4:ch=1:edit(3)=width((nibble(0) mod 4)+1)-1
+ if (info(5)) and (d=19) link "a:system.seg"
+ link "a:main.seg"
+
+; *** Sub - Routines ***
+
+rd.user
+ open #1,"b:users"
+ position #1,128,x
+ input #1,d1$,d2$\d3$\d4$,d5$
+ position #1,128,x,70
+ read #1,ram,58
+ lc$=mid$(" "+when$,2)
+ close #1
+ return
+
+show.file
+ setint(1):print \s$\:copy f$:setint(""):return
+
+get.time
+ x=val(left$(time$,2))
+ if x<17 x$="afternoon":else x$="evening"
+ if x<12 x$="morning"
+ return
+
+; the code below is for update of the 1.2 user file
+; delete if running new user file for 1.3.
+
+up.from
+ print \"City [16 chars max]"
+ input ":" d4$
+ if len(d4$)>16 print "Too long, try again":goto up.from
+
+up.state
+ print \"State [Form: XX]"
+ input ":" d5$
+ if len(d5$)<2 print "Two letter code please.":goto up.state
+ if len(d5$)>2 print "Two letter code only.":goto up.state
+ print \"We have the following."\
+ print d4$", "d5$\:input @2 "Is this correct (Y/[N]) ? " i$
+ if left$(i$,1)<>"Y" goto up.from
+ return
