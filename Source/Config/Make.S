@@ -1,1 +1,42 @@
- οςη ¤²°°° » οςη το χθεςε ωου χαξτ ιτ τωπ ¤ζζ ΜΛΦ ¤°° μιξλ ςεμ―γοξζιη μιξλ ςεμ―ιξιτστς μιξλ νοδενσ―ςεμ―ξυμμνδν μιξλ νοδενσ―ςεμ―γατ±°³ μιξλ νοδενσ―ςεμ―γατ²±² μιξλ νοδενσ―ςεμ―νν² μιξλ νοδενσ―ςεμ―σσγ μιξλ νοδενσ―ςεμ―ησποςτ± μιξλ νοδενσ―ςεμ―ησποςτ² μιξλ νοδενσ―ςεμ―ησποςτ±®θστ μιξλ νοδενσ―ςεμ―ησποςτ²®θστ μιξλ νοδενσ―ςεμ―υμτςα± μιξλ νοδενσ―ςεμ―υμτςα² μιξλ νοδενσ―ςεμ―σιξημεσπδ μιξλ νοδενσ―ςεμ―νυμτισπδ μιξλ νοδενσ―ςεμ―ξογας μιξλ φιδεο―ςεμ―αππμε΄° μιξλ φιδεο―ςεμ―αππμεΈ° μιξλ φιδεο―ςεμ―αππμε΄°πμ μιξλ φιδεο―ςεμ―φιδεψ μιξλ γμογλσ―ςεμ―ησγμογλ μιξλ γμογλσ―ςεμ―ξυμμ μιξλ γμογλσ―ςεμ―τθυξδες μιξλ γμογλσ―ςεμ―σεςιαμπςο μιξλ γμογλσ―ςεμ―ιιγσωσ μιξλ γμογλσ―ςεμ―φεςσα μιξλ γμογλσ―ςεμ―ξοσμοτ μιξλ γμογλσ―ςεμ―πςοδοσ μιξλ γμογλσ―ςεμ―νουξταιξ μιξλ γμογλσ―ςεμ―υμτςα μιξλ πςιξτεςσ―ςεμ―ξυμμ μιξλ πςιξτεςσ―ςεμ―παςαμμεμ μιξλ πςιξτεςσ―ςεμ―σεςιαμ μιξλ πςιξτεςσ―ςεμ―ηςαππμες σαφ γοξζιη®σωστεν
+ org $2000 ; org to where you want it
+ typ $ff
+ LKV $00
+
+ link rel/config
+ link rel/initstr
+ link modems/rel/nullmdm
+ link modems/rel/cat103
+ link modems/rel/cat212
+ link modems/rel/mm2
+ link modems/rel/ssc
+ link modems/rel/gsport1
+ link modems/rel/gsport2
+ link modems/rel/gsport1.hst
+ link modems/rel/gsport2.hst
+ link modems/rel/ultra1
+ link modems/rel/ultra2
+ link modems/rel/singlespd
+ link modems/rel/multispd
+ link modems/rel/nocar
+
+ link video/rel/apple40
+ link video/rel/apple80
+ link video/rel/apple40pl
+ link video/rel/videx
+
+ link clocks/rel/gsclock
+ link clocks/rel/null
+ link clocks/rel/thunder
+ link clocks/rel/serialpro
+ link clocks/rel/iicsys
+ link clocks/rel/versa
+ link clocks/rel/noslot
+ link clocks/rel/prodos
+ link clocks/rel/mountain
+ link clocks/rel/ultra
+
+ link printers/rel/null
+ link printers/rel/parallel
+ link printers/rel/serial
+ link printers/rel/grappler
+ sav CONFIG.SYSTEM

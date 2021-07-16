@@ -401,25 +401,32 @@ anony1
  print #x,"From ->Anonymous Poster":goto show1a
 
 ;xmodem d/l of bulletin by Keith Christian
+
 dn.xmdm
  print \"Download bulletin #"a;
  input @2 " via Xmodem (Y/[N]) ?" i$
  if left$(i$,1)<>"Y" return
- f$="b:d":create f$:ready bf$:open #1,f$
+ print \"Select Xmodem type:"
+ input @2 \"P)roDOS  D)OS3.3  S)tandard " i$
+ if i$="" return
+ z=instr(i$,"PDS"):z=z*(z<>3):f$="b:d"
+ create f$:ready bf$:open #1,f$
  input #msg(a),sb$\b,ti$\c,fr$:setint(2)
  y=0:if left$(sb$,1)="*" sb$=mid$(sb$,2):y=1
- print #1,\" Brd ->"bn$\"Numb ->"a" of "msg(0)\" Sub ->"sb$
+ print #1,\" Brd ->"bn$\Numb ->"a" of "msg(0)\" Sub ->"sb$
  print #1,"  To ->"ti$
  if y print #1,"From ->Anonymous Poster":else print #1,"From ->"fr$
  copy #6,#1:close:print \"Ready to Send..."
- use "b:protocol.down",300,0,f$:kill f$:goto show2
+ use "b:x.dn",z,f$:kill f$:goto show2
 
 ;xmodem u/l of bulletin by Keith Christian
+
 up.xmdm
- input @2 \"Upload a message via Xmodem ([Y]/N) ?" i$
- if i$="N" pop:return
- print \"Ready to Receive..."
- f$="b:u":use "b:protocol.up",300,0,f$
+ print \"Select Xmodem type:"
+ input @2 \"P)roDOS  D)OS3.3  S)tandard ?" i$
+ z=instr(i$,"PDS"):if not z pop:return
+ z=z*(z<>3):print \"Ready to Receive..."
+ f$="b:u":use "b:x.up",z,f$
  close:edit(0):copy f$,#8
  print \edit(2)" bytes received"
  kill f$:edit(1):return

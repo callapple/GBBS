@@ -1,0 +1,138 @@
+         Transfer Section Help 
+
+           -----------------
+           [ Xfer Menu Bar ]
+           -----------------
+
+[  Download Files 1-## [L]ist Files   ]
+[  [U]pload a File [H]elp [Q]uit ?    ]
+ 
+[ # ]  With   this  command,   you  can
+       "Download"  public  domain  pro-
+grams  from this system.   You see  the
+above Xfer Menu Bar first and can get a
+[L]ist  of  the  programs.   After  you
+choose  the program number you want  to
+download,  you have a choice of how you
+want  to download the  program.   After
+you  type a number to download you will
+get  the  [ Download Menu  Bar ].  Look
+below on the options to download.
+
+[ L ]  [L]ist the Files that are avail-
+       able for Download.
+
+[ U ]  There is an upload option avail-
+       able via this command.  It might
+not normally be available to the  aver-
+age  user.  If  you have  something  to
+upload  and  your security is too  low,
+then let the Sysop know via  [F]eedback
+and  he will get back with you.   After
+you type [U] you will get the [  Upload
+Menu Bar ].   Look below on the options
+to upload.
+ 
+[ H ]  This  [H]elp  file  is displayed
+       using this command.
+
+[ Q ]  [Q]uit   will  abort  from  this
+       section.
+
+         --------------------
+         [ Download Menu Bar]
+         --------------------
+ 
+[ A)scii, D)os Xmodem, P)roDOS Xmodem ]
+[ S)tandard Xmodem (ibm,trs), Q)uit ? ]
+
+[ A ]  [A]scii  download  will  convert
+       the program to Ascii  characters
+(characters with the values of  0-127).
+Text  files  are sent  as  text;  Basic
+programs are sent in a line format in a
+compacted  form with Print converted to
+a "?";  Binary programs are sent in the
+typical "Address : Data .. .. .." form.
+You will need to use a terminal program
+with a Capture buffer such as "Mod Term
+7".  After  you save it,  capture it to
+disk and after you hang up,  "EXEC" the
+file.
+
+[ D ]  [D]os Xmodem  is the choice  you
+       would  pick  if  you  are  using
+"Ascii Express Pro" Dos 3.3 version.
+
+[ P ]  [P]roDOS  Xmodem is  the  choice
+       you  would pick if you are using
+"Ascii Express Pro" ProDOS version.
+
+[ S ]  [S]tandard Xmodem will  download
+       the  file in the standard Xmodem
+format without all of the special  file
+headers  that AE uses for Apple  files.
+Computers such as IBMs, TRSs and others
+would choose this option if you have  a
+terminal program that has the capabili-
+ties to use Xmodem transfer.  Otherwise
+you must use Ascii Download.
+
+After  you choose how the file will  be
+downloaded,  you will be given the mes-
+sage: [ Sending filename,  ## blocks ],
+which will confirm the name of the file
+and the approximate number of  128-byte
+blocks being transferred.   When PRO is
+ready  to  download  you will  get  the
+message:  [ Press <CR> to begin ].  Af-
+ter you hit [RETURN],  indicate to your
+software  you are ready to receive  the
+file.
+
+[ Q ]  [Q]uit  will  abort  from   this
+       section.
+
+            ------------------
+            [ Upload Menu Bar]
+            ------------------
+
+[ A)scii, D)os Xmodem, P)roDOS Xmodem ]
+[ S)tandard Xmodem (ibm,trs), Q)uit ? ]
+
+[ A ]  [A]scii upload will  accept  the
+       program  in  the form  of  Ascii
+characters  (characters with the values
+of  0-127).   Basic  and  binary  files
+should  be changed to text files before
+they are uploaded.
+
+[ D ]  [D]os Xmodem  is the choice  you
+       would  pick  if  you  are  using
+"Ascii Express Pro" Dos 3.3 version.
+
+[ P ]  [P]roDOS  Xmodem is  the  choice
+       you  would pick if you are using
+"Ascii Express Pro" ProDOS version.
+
+[ S ]  [S]tandard  Xmodem  will  upload
+       text   files  in  the   standard
+Xmodem  format without all of the  spe-
+cial file headers that AE uses.
+
+After  you  make  your  choice  on  the
+method of uploading, you will be asked:
+[ Filename: ] and can enter the name of
+the file you are uploading.   When  you
+get  the message [ Press <CR> to  begin
+].  If  you are using a form of  Xmodem
+transfer,  begin the transfer.  If  you
+are  using  the "A)scii" mode you  will
+begin  the transfer after  you  receive
+the message:
+
+Upload file now. Enter a ctrl-D, ctrl-D
+when finished or ESC, ESC to abort.
+
+[ Q ]  [Q]uit  will  abort  from   this
+       section.

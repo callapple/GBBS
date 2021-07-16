@@ -97,7 +97,7 @@ Config/
 
 The resulting file is:
 
-	config.system
+	CONFIG.SYSTEM
 
 10. Switch to the Acos folder
 
@@ -113,14 +113,17 @@ Resulting files are:
 
 	ACOS.OBJ
 	ENCODE
-	ACOS.SYSTEM
+	ACOS
 
-12. Now, copy ACOS.OBJ, ENCODE and ACOS.SYSTEM from the Acos folder to your master GBBS.SYSTEM folder. Then copy CONFIG.SYSTEM from the Config folder to your master GBBS.CONFIG folder.
+12. Now, copy ACOS.OBJ, ENCODE and ACOS from the Acos folder to your master GBBS.CONFIG folder. Then copy CONFIG.SYSTEM from the Config folder to your master GBBS.CONFIG folder.
 
 Your master GBBS.CONFIG folder should contain these files:
 
 	PRODOS
+	ACOS
+	ACOS.OBJ
 	CONFIG.SYSTEM
+	ENCODE
 	BC.S
 	LOGON.SEG.S
 	MAIN.SEG.S
@@ -133,14 +136,17 @@ Your master GBBS.CONFIG folder should contain these files:
 
 Your master GBBS.SYSTEM folder should contain these files:
 
-	ACOS.OBJ
-	ACOS.SYSTEM
-	ENCODE
+
 	B1
 	BBS
 	DATA
 	DATA1
 	DATA2
+	D1
+	D1.1
+	D1.2
+	D1.3
+	D1.4
 	G1
 	G1.1
 	G1.2
@@ -148,6 +154,7 @@ Your master GBBS.SYSTEM folder should contain these files:
 	HLP.MAIN
 	HLP.MSG
 	HLP.USER
+	HLP.XFER
 	MAIL
 	MNU.NEW
 	MNU.VAL.40
@@ -171,25 +178,13 @@ Your master GBBS.SYSTEM folder should contain these files:
 
 Where 'v' is the base path, usually the volume name
 
-v/GBBS.PRO/PROGRAM
-v/GBBS.PRO/SYSTEM
-v/GBBS.PRO/GFILES
-v/GBBS.PRO/SYSTEM
-v/GBBS.PRO/SYSTEM
-v/GBBS.PRO/BULLETINS
-v/GBBS.PRO/MAIL
+A: v/GBBS.PRO/PROGRAM
+B: v/GBBS.PRO/SYSTEM
+C: v/GBBS.PRO/GFILES
 
-NOTE: The ACOS source lists these as (not sure why the difference):
-
-v/GBBS.PRO/PROGRAM
-v/GBBS.PRO/SYSTEM
-v/GBBS.PRO/SYSTEM
-v/GBBS.PRO/XFER.DATA
-v/GBBS.PRO/DOWNLOAD
-v/GBBS.PRO/BULLETINS
-v/GBBS.PRO/MAIL
-""
-v/GBBS.PRO/FIDO.NET
+E: v/GBBS.PRO/SYSTEM
+F: v/GBBS.PRO/BULLETINS
+G: v/GBBS.PRO/MAIL
 
 
 
