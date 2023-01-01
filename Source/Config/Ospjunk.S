@@ -1,1 +1,660 @@
-ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª   Γοξζιη Πςοηςαν ­ Οσπκυξλ   ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ ³―±±―ΈΈª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª μοαδ τθε αγοσ®οβκ ζιμε αζτες ζιξδ ουτ χθεςε ιτ ισμδγοξζη κσς γμσ » γμεας σγςεεξ κσς πςιξτ ασγ §Πμεασε εξτες τθε πατθξανε οζ τθε φομυνε§¬°δ ασγ §ος συβδιςεγτοςω χθιγθ γοξταιξσ τθε ζιμε§¬°δ¬°δ ασγ §ΑΓΟΣ®ΟΒΚ§¬°δ¬°δ¬°δ ασγ §ΠατθΊ ―§¬°° μδα £³² » σετ ναψινυν πατθξανε ατ ³² στα ναψμεξ μδα £¥±±°°°°°° στα ιξπνοδε » σετ ιξπυτ νοδε κσς ιξπμξ ιξω στω μξβυζ­² » σαφε μεξητθ μδα £§―§ στα μξβυζ­± » σαφε ιξιτιαμ §―§ κσς νμι δβ ¤γ¶ » σετ πςεζιψ δχ πίσπζψ βξε μδγοξ² » εςςος κσς νμι δβ ¤γ· » ηετ πςεζιψ αξδ πυτ ιξτο δχ πίπζψ΄ » πςοηςαν βωζζες κσς μδαγοσ » μοαδ ιξ τθε στατσ βγγ μοηγοξ » αμμ ισ ολμδγοξ² κνπ μδγοξζη » οππσ¬ εςςοςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª μοη βαγλ το τθε γοξζιη δισλ» μοη βαγλ το γοξζιη δισλμοηγοξ κσς νμι δβ ¤γ¶ » σετ πςεζιψ δχ πίπζψ²» ®®® ματες¬ αδδ ιξ εςςος γθεγλιξη ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª μοη τθε δεστιξατιοξ δισλμοηδστ κσς νμι δβ ¤γ¶ δχ πίπζψ³» ®®® ματες¬ αδδ ιξ εςςος γθεγλιξη ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª μοη τθε πςοηςαν δισλμοηπςη μδα πςηπζψ » θασ α πςοηςαν πςεζιψ βεεξ δεζιξεδΏ βερ μοηγοξ » ξοπε¬ μοη το γοξζιη δισλ κσς νμι δβ ¤γ¶ » μοη το πςοηςαν δισλ ¨χιτθ ΑΓΟΣ®ΟΒΚ© δχ πίπζψ΄ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª νοφε ζιμεξανε το υσες ςουτιξενοφξανε στψ δοσβωτ » ποιξτ το ζιμεξανε στα δοσβωτ«± μδω £±µνοφξαν² μδα ¨δοσβωτ©¬ω » γοπω ζιμεξανε στα ζμξανε¬ω δεω βπμ νοφξαν² ςτσ» φαςιαβμεσ αξδ στυζζνσηςεζ δβ °νοδυμε δβ °σδφπαςν δβ °¬°¬°ζξαν² ερυ ζξαν±ζβυζ² ερυ ζβυζ±νσηξαν ερυ ζξαν±νσηβυζ ερυ ζβυζ±νισγξαν ερυ ζξαν±νισγβυζ ερυ ζβυζ±ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª μοη δςιφε σπεγιζιες α­μμοησπεγ μδψ £° » σταςτ οζζσετ ατ Έ στα τενπ γνπ £° » χε δοξε ¨δςιφε αΊ© βερ μοησπγ³ » ωεπμοησπγ² τψα  » υσε ασ βασε σεγ  » αδδ εψτςα ± αδγ δεφξαν¬ψ » αδδ οζζσετ ταψ  » ναλε ιξτο οζζσετ δεγ τενπ » δοξεΏ βξε μοησπγ² » ξοπεμοησπγ³ μδα δεφξαν¬ψ στα τενπ » σαφε πατθ μεξητθ μδω £°μοησπγ΄ μδα δεφξαν¬ψ » γοπω πατθξανε στα μξβυζ¬ω ιξψ ιξω δεγ τενπ » γουξτ δοχξ βπμ μοησπγ΄ κσς νμι δβ ¤γ¶ » μοη το τθε πςεζιψ δχ πίπζψ γμγ βερ ª«³ » ξο εςςοςσ σεγ ςτσγοπωςτσ κνπ μοηγοξ » μοη βαγλ το ναιξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γοπω α μιστ οζ ζιμεσγοπω στψ τενπ΄ » σαφε ποιξτες ζος ηετξανε στα τενπ΄«±γοπω² κσς ηετξανε » ηετ σουςγε ξανε βγσ γοπωςτσ κσς μοηγοξ » μοη το γοξζιη δισλ μδψ £Όζμξανε » ηετ ιξζο οξ ζιμε μδα £Ύζμξανε κσς ηετιξζο βξε γοπω² » οππσ¬ εςςος¬ σλιπ τθισ ζιμε κσς οπεξ κσς ηετεοζ » ηετ εοζ ναςλες στψ πίηεοζ«² στα πίηεοζ«³ » σαφε ναςλες στα τενπ γπψ £° » σαφε ξυνβες οζ παηεσ το ςεαδ βερ ª«΄ ιξγ τενπ μδψ £Όγοπωβυζ μδα £Ύγοπωβυζ μδω £Ύγοπωναψª² » ηετ ναψινυν ςαν σπαγε κσς ςδβμλ κσς γμοσε » γμοσε τθε ζιμε κσς μοηδστ » μοη το δεστιξατιοξ μδω £° » υσε τωπε ¤°° κσς γςεατε » γςεατε ζιμε κσς οπεξ » οπεξ ζιμε μδα τενπ ασμ α » ηετ ξυνβες οζ βμογλσ ¨±―² παηεσ© το χςιτε ταω μδψ £Όγοπωβυζ μδα £Ύγοπωβυζ κσς χςβμλ » χςιτε ουτ τθε βμογλ κσς σετεοζ » σετ εξδ οζ ζιμε κσς γμοσε μδψ £Όζμξανε μδα £Ύζμξανε κσς σετιξζο » σετ ζιμε ιξζο κνπ γοπω²ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ ιξζο οξ α ζιμεηετιξζο στψ πίηιξζο«± » ποιξτ το ζιμεξανε στα πίηιξζο«² μδα £±° στα πίηιξζο κσς νμι δβ ¤γ΄ » ηετ ιξζο δχ πίηιξζο ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετ τθε ζιμε ιξζοσετιξζο στψ πίηιξζο«± » ποιξτ το ζιμεξανε στα πίηιξζο«² μδα £· στα πίηιξζο κσς νμι δβ ¤γ³ » σετ ιξζο δχ πίηιξζο ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετ τθε γυςςεξτ εξδ οζ ζιμεπυτεοζ στψ πίηεοζ«² » σετ εοζ ναςλες στα πίηεοζ«³σετεοζ μδα ςεζξυν στα πίηεοζ«± κσς νμι δβ ¤δ° » σετ εοζ δχ πίηεοζ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεξανε α ζιμεςεξανε στψ τενπ΄ » ποιξτ το δατα στα τενπ΄«± κσς ηετξανε » ηετ ζιςστ ξανε μδω £¶³ςεξ² μδα ζμξανε¬ω » γοπω ζιςστ ξανε στα μξβυζ«±²Έ¬ω δεω βπμ ςεξ² κσς ηετξανε » ηετ ξεχ ξανε κσς νμι δβ ¤γ² » ςεξανε ζιμε δχ πίςεξ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ζιξδ τθε γοξζιη δισλζιξδγοξ μδψ £²³ μδα £°Ίμοοπ στα ¤βζµΈ¬ψ » γμεας πςοδοσ σωστεν βιτ­ναπ δεψ βξε Ίμοοπ κσς νμι δβ ¤γ· » ηετ πςεζιψ δχ πίπζψ² » ποιξτ το πατθ μδα γοξπζψ » ισ πςεζιψ σετ το ξυμμΏ βξε ζιξδγ² » ξοπε μδα ¤βζ³° » ηετ γυςςεξτ σμοτ―δςιφε στα πίοξμιξ«± κσς νμι δβ ¤γµ » ζιξδ ουτ πςεζιψ οζ φομυνε δχ πίοξμιξ μδα γοξπζψ«± αξδ £¤°ζ » κυστ σαφε ξανε μεξητθ γμγ αδγ £± » αδφαξγε μεξητθ οζ πςεζιψ στα γοξπζψ μδα £§―§ » αδδ μεαδιξη σμασθ ζος φομυνε ξανε στα γοξπζψ«±ζιξδγ² κνπ μοηγοξ » μοη το γοξζιηª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γθεγλ ζςεε σπαγε οξ φομυνεγθλσπγ μδα δςιφε ασμ α ασμ α ασμ α οςα σμοτ » ναλε ιξτο £δσσσ°°°° ζοςνατ ασμ α ασμ α ασμ α ασμ α στα πίοξμξ«± κσς νμι δβ ¤γµ » ηετ δςιφε ξανε δχ πίοξμξ βερ γθλσπγ² » αμμ ισ χεμμ μδα £° » ςετυςξ ° βμογλσ ζςεε ­­ εςςος ταψ ςτσγθλσπγ² μδα δστπζψ«± αξδ £¤°ζ ταψ  » ναλε ιξτο φομυνε ξανε ιξψ στψ δστπζψ μδα £§―§ στα δστπζψ«± μδψ £Όδστπζψ μδα £Ύδστπζψ » ηετ ιξζο οξ φομυνε κσς ηετιξζο σεγ μδα πίηιξζο«µ » ςετυςξ τοταμ ξυνβες οζ ζςεε βμογλσ σβγ πίηιξζο«Έ ταψ μδα πίηιξζο«¶ σβγ πίηιξζο«Ή ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ιξιτιαμ δςιφε σπεγ μιστσετσπεγ κσς γθλσπγ »ςεσετ πατθ το οςιηιξαμ δςιφε κσς ναλεσεησ »ταγλ τθε ―πςοηςαν οξ πατθ μδω £° μδα £± κσς γοππατθ »γοπω ± πατθ ¨ΑΊ© στω τενπ κσς γθλσπγ »ςεσετ πατθ κσς ναλεσωσ »ΣΩΣΤΕΝ μδω τενπ μδα £± »γοπω ± πατθ ¨ΒΊ© κσς γοππατθ στω τενπ κσς γθλσπγ κσς ναλεηζιμε »ΗΖΙΜΕΣ μδω τενπ μδα £± »γοπω ± πατθσ ¨ΓΊ© κσς γοππατθ στω τενπ κσς γθλσπγ κσς ναλεσωσ »ΣΩΣΤΕΝ ¨αηαιξ© μδω τενπ μδα £² »γοπω ² νοςε πατθσ ¨ΔΊ ­ ΕΊ© κσς γοππατθ στω τενπ »Ϋ±Ή°΄°΄έ Ζιψ σετυπ οζ ΓΊ πατθ κσς γθλσπγ κσς ναλεβμτξ »ΒΥΜΜΕΤΙΞΣ μδω τενπ μδα £± »γοπω ± πατθ ¨ΖΊ© κσς γοππατθ στω τενπ κσς γθλσπγ κσς ναλεναιμ »ΝΑΙΜ μδω τενπ μδα £± »γοπω ± πατθ ¨ΗΊ© κσς γοππατθ μδψ £¶ » ζιμμ ουτ ςεστ οζ τθε σπεγσ ¨θΊ ­ μΊ© μδα £°Ίμοοπ στα δεφξαν¬ω ιξω δεψ βξε Ίμοοπ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γοπω α πατθ οξτο τθε πατθξανεγοππατθ στα τενπΊμοοπ¶ μδψ £­±Ίμοοπµ ιξψ μδα δστπζψ¬ψ » γοπω ιξ πατθξανε στα δεφξαν¬ω ιξω γπψ δστπζψ » δοξεΏ βξε Ίμοοπµ » ξοπε δεγ τενπ » γουξτ δοχξ πατθσ το εξτες βξε Ίμοοπ¶ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ―ψψψ―ηββσ®πςο―πςοηςαν αξδ μοη ιτναλεσεησ κσς ναλεηββσ μδψ £° μδω δστπζψΊμοοπ μδα πςηξανε«±¬ψ » γοπω οξ ―ψψψψ―ηββσ®πςο―πςοηςαν στα δστπζψ«±¬ω ιξψ ιξω ιξγ δστπζψ » υπδατε μεξητθ γπψ πςηξανε βξε Ίμοοπ ςτσσετπςη κσς ναλεσεησ κσς νμι δβ ¤γ° » γςεατε ξεχ πατθ δχ πίγςπτθ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ―ψψψ―ηββσ®πςο―σωστεν αξδ μοη ιτναλεσωσ κσς ναλεηββσ μδψ £° μδω δστπζψΊμοοπ μδα σωσξανε«±¬ψ » γοπω οξ ―ψψψψ―ηββσ®πςο―σωστεν στα δστπζψ«±¬ω ιξψ ιξω ιξγ δστπζψ » υπδατε μεξητθ γπψ σωσξανε βξε Ίμοοπ ςτσσετσωσ κσς ναλεσωσ κσς νμι δβ ¤γ° » γςεατε ξεχ πατθ δχ πίγςπτθ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ―ψψψ―ηββσ®πςο―ηζιμεσ αξδ μοη ιτναλεηζιμε κσς ναλεηββσ μδψ £° μδω δστπζψΊμοοπ μδα ηζιμεξανε«±¬ψ » γοπω οξ ―ψψψψ―ηββσ®πςο―ηζιμεσ στα δστπζψ«±¬ω ιξψ ιξω ιξγ δστπζψ » υπδατε μεξητθ γπψ ηζιμεξανε βξε Ίμοοπ ςτσσετηζιμε κσς ναλεηζιμε κσς νμι δβ ¤γ° » γςεατε ξεχ πατθ δχ πίγςπτθ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ―ψψψ―ηββσ®πςο―βυμμετιξσ αξδ μοη ιτναλεβμτξ κσς ναλεηββσ μδψ £° μδω δστπζψΊμοοπ μδα βμτξξανε«±¬ψ » γοπω οξ ―ψψψψ―ηββσ®πςο―βυμμετιξσ στα δστπζψ«±¬ω ιξψ ιξω ιξγ δστπζψ » υπδατε μεξητθ γπψ βμτξξανε βξε Ίμοοπ ςτσσετβμτξ κσς ναλεβμτξ κσς νμι δβ ¤γ° » γςεατε ξεχ πατθ δχ πίγςπτθ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ―ψψψ―ηββσ®πςο―ναιμ αξδ μοη ιτναλεναιμ κσς ναλεηββσ μδψ £° μδω δστπζψΊμοοπ μδα ναιμξανε«±¬ψ » γοπω οξ ―ψψψψ―ηββσ®πςο―ναιμ στα δστπζψ«±¬ω ιξψ ιξω ιξγ δστπζψ » υπδατε μεξητθ γπψ ναιμξανε βξε Ίμοοπ ςτσσετναιμ κσς ναλεναιμ κσς νμι δβ ¤γ° » γςεατε ξεχ πατθ δχ πίγςπτθ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ―ψψψ―ηββσ®πςο αξδ μοη ιτναλεηββσ μδψ £° μδω δστπζψΊμοοπ μδα διςξανε«±¬ψ » γοπω οξ ―ψψψψ―ηββσ®πςο στα δστπζψ«±¬ω ιξψ ιξω ιξγ δστπζψ » υπδατε μεξητθ γπψ διςξανε βξε Ίμοοπ ςτσσετηββσ κσς ναλεηββσ κσς νμι δβ ¤γ° » γςεατε ξεχ πατθ δχ πίγςπτθ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª φαςιαβμεσδιςξανε στς §―ΗΒΒΣ®ΠÒΟ§πςηξανε στς §―ΠÒΟΗÒΑΝ§σωσξανε στς §―ΣΩΣΤΕΝ§ηζιμεξανε στς §―ΗΖΙΜΕΣ§βμτξξανε στς §―ΒΥΜΜΕΤΙΞΣ§ναιμξανε στς §―ΝΑΙΜ§πίσπζψ δβ ± δχ μξβυζ­²πίηεοζ δβ ¤°² δβ ° δβ °¬°¬°πίηιξζο δβ ¤°α δχ ° δβ ° δβ ° δχ ° δβ ° δχ ° δχ ° δχ ° δχ ° δχ °πίςεξ δβ ¤°² δχ μξβυζ«±²Έ δχ ζμξανεπίπζψ δβ ± δχ μξβυζπίπζψ² δβ ± δχ γοξπζψπίπζψ³ δβ ± δχ δστπζψπίπζψ΄ δβ ± δχ πςηπζψγοξπζψ δσ ΄°¬° » ναψ μεξητθδστπζψ δσ ΄°¬° » ναψ μεξητθπςηπζψ δσ ΄°¬° » ναψ μεξητθπίοξμιξ δβ ² δβ ° δχ γοξπζψ«±πίοξμξ δβ ² δβ ° δχ δστπζψ«±πίγςπτθ δβ · δχ δστπζψ δβ ¤γ³ δβ ¤°ζ δχ ¤°°°° δβ ¤°δ δχ ° δχ °
+********************************
+*                              *
+*   Config Program - Ospjunk   *
+*                              *
+********************************
+
+*-------------------------------
+* Date: 3/11/88
+*-------------------------------
+
+*-------------------------------
+* load the acos.obj file after find out where it is
+
+ldconfg jsr cls ; clear screen
+
+ jsr print
+ asc 'Please enter the pathname of the volume',0d
+ asc 'or subdirectory which contains the file',0d,0d
+ asc 'ACOS.OBJ',0d,0d,0d
+ asc 'Path: /',00
+
+ lda #32 ; set maximum pathname at 32
+ sta maxlen
+ lda #%11000000
+ sta inpmode ; set input mode
+
+ jsr inpln
+ iny
+ sty lnbuf-2 ; save length
+ lda #'/'
+ sta lnbuf-1 ; save initial '/'
+
+ jsr mli
+ db $c6 ; set prefix
+ dw p_spfx
+ bne ldcon2 ; error
+
+ jsr mli
+ db $c7 ; get prefix and put into
+ dw p_pfx4 ; program byffer
+
+ jsr ldacos ; load in the stats
+ bcc logcon ; all is ok
+
+ldcon2 jmp ldconfg ; opps, error
+
+
+*-------------------------------
+* log back to the config disk
+; log back to config disk
+logcon jsr mli
+ db $c6 ; set prefix
+ dw p_pfx2
+
+; ... later, add in error checking
+
+ rts
+
+*-------------------------------
+* log the destination disk
+
+logdst jsr mli
+ db $c6
+ dw p_pfx3
+
+; ... later, add in error checking
+
+ rts
+
+*-------------------------------
+* log the program disk
+
+logprg lda prgpfx ; has a program prefix been defined?
+ beq logcon ; nope, log to config disk
+
+ jsr mli
+ db $c6 ; log to program disk (with ACOS.OBJ)
+ dw p_pfx4
+ rts
+
+*-------------------------------
+* move filename to user routine
+
+movname stx dosbyt ; point to filename
+ sta dosbyt+1
+
+ ldy #15
+movnam2 lda (dosbyt),y ; copy filename
+ sta flname,y
+ dey
+ bpl movnam2
+ rts
+
+
+; variables and stuff
+msgref db 0
+module db 0
+sdvparm db 0,0,0
+fnam2 equ fnam1
+fbuf2 equ fbuf1
+msgnam equ fnam1
+msgbuf equ fbuf1
+miscnam equ fnam1
+miscbuf equ fbuf1
+
+*-------------------------------
+* log drive specifier a-l
+
+logspec ldx #0 ; start offset at 8
+ sta temp
+ cmp #0 ; we done (drive a:)
+ beq logspc3 ; yep
+
+logspc2 txa  ; use as base
+ sec  ; add extra 1
+ adc devnam,x ; add offset
+ tax  ; make into offset
+ dec temp ; done?
+ bne logspc2 ; nope
+
+logspc3 lda devnam,x
+ sta temp ; save path length
+ ldy #0
+logspc4 lda devnam,x ; copy pathname
+ sta lnbuf,y
+ inx
+ iny
+ dec temp ; count down
+ bpl logspc4
+
+ jsr mli
+ db $c6 ; log to the prefix
+ dw p_pfx
+ clc
+ beq *+3 ; no errors
+ sec
+ rts
+
+
+copyrts jmp logcon ; log back to main
+
+*-------------------------------
+* copy a list of files
+
+copy stx temp4 ; save pointer for getname
+ sta temp4+1
+
+copy2 jsr getname ; get source name
+ bcs copyrts
+
+ jsr logcon ; log to config disk
+
+ ldx #<flname ; get info on file
+ lda #>flname
+ jsr getinfo
+ bne copy2 ; opps, error, skip this file
+
+ jsr open
+ jsr geteof ; get eof marker
+ stx p_geof+2
+ sta p_geof+3 ; save marker
+ sta temp
+ cpx #0 ; save number of pages to read
+ beq *+4
+ inc temp
+
+ ldx #<copybuf
+ lda #>copybuf
+ ldy #>copymax*2 ; get maximum ram space
+ jsr rdblk
+
+ jsr close ; close the file
+
+ jsr logdst ; log to destination
+
+ ldy #0 ; use type $00
+ jsr create ; create file
+
+ jsr open ; open file
+
+ lda temp
+ asl a ; get number of blocks (1/2 pages) to write
+ tay
+ ldx #<copybuf
+ lda #>copybuf
+ jsr wrblk ; write out the block
+
+ jsr seteof ; set end of file
+ jsr close
+
+ ldx #<flname
+ lda #>flname
+ jsr setinfo ; set file info
+ jmp copy2
+
+
+*-------------------------------
+* get info on a file
+
+getinfo stx p_ginfo+1 ; point to filename
+ sta p_ginfo+2
+ lda #10
+ sta p_ginfo
+
+ jsr mli
+ db $c4 ; get info
+ dw p_ginfo
+ rts
+
+*-------------------------------
+* set the file info
+
+setinfo stx p_ginfo+1 ; point to filename
+ sta p_ginfo+2
+ lda #7
+ sta p_ginfo
+
+ jsr mli
+ db $c3 ; set info
+ dw p_ginfo
+ rts
+
+*-------------------------------
+* set the current end of file
+
+puteof stx p_geof+2 ; set eof marker
+ sta p_geof+3
+
+seteof lda refnum
+ sta p_geof+1
+
+ jsr mli
+ db $d0 ; set eof
+ dw p_geof
+ rts
+
+*-------------------------------
+* rename a file
+
+rename stx temp4 ; point to data
+ sta temp4+1
+ jsr getname ; get first name
+
+ ldy #63
+ren2 lda flname,y ; copy first name
+ sta lnbuf+128,y
+ dey
+ bpl ren2
+
+ jsr getname ; get new name
+
+ jsr mli
+ db $c2 ; rename file
+ dw p_ren
+ rts
+
+*-------------------------------
+* find the config disk
+
+findcon ldx #23
+ lda #0
+:loop sta $bf58,x ; clear prodos system bit-map
+ dex
+ bne :loop
+
+ jsr mli
+ db $c7 ; get prefix
+ dw p_pfx2 ; point to path
+
+ lda conpfx ; is prefix set to null?
+ bne findc2 ; nope
+
+ lda $bf30 ; get current slot/drive
+ sta p_onlin+1
+
+ jsr mli
+ db $c5 ; find out prefix of volume
+ dw p_onlin
+
+ lda conpfx+1
+ and #$0f ; just save name length
+ clc
+ adc #1 ; advance length of prefix
+ sta conpfx
+
+ lda #'/' ; add leading slash for volume name
+ sta conpfx+1
+
+findc2 jmp logcon ; log to config
+
+*-------------------------------
+* check free space on volume
+
+chkspc lda drive
+ asl a
+ asl a
+ asl a
+ ora slot ; make into #dsss0000 format
+ asl a
+ asl a
+ asl a
+ asl a
+
+ sta p_onln+1
+ jsr mli
+ db $c5 ; get drive name
+ dw p_onln
+ beq chkspc2 ; all is well
+
+ lda #0 ; return 0 blocks free -- error
+ tax
+ rts
+
+chkspc2 lda dstpfx+1
+ and #$0f
+ tax  ; make into volume name
+ inx
+ stx dstpfx
+ lda #'/'
+ sta dstpfx+1
+
+ ldx #<dstpfx
+ lda #>dstpfx ; get info on volume
+ jsr getinfo
+
+ sec
+ lda p_ginfo+5 ; return total number of free blocks
+ sbc p_ginfo+8
+ tax
+ lda p_ginfo+6
+ sbc p_ginfo+9
+ rts
+
+*-------------------------------
+* setup initial drive spec list
+
+setspec
+ jsr chkspc ;reset path to original drive
+ jsr makesegs ;tack the /program on path
+
+ ldy #0
+ lda #1
+ jsr coppath ;copy 1 path (A:)
+
+ sty temp
+ jsr chkspc ;reset path
+ jsr makesys ;SYSTEM
+ ldy temp
+
+ lda #1 ;copy 1 path (B:)
+ jsr coppath
+
+ sty temp
+ jsr chkspc
+ jsr makegfile ;GFILES
+ ldy temp
+
+ lda #1 ;copy 1 paths (C:)
+ jsr coppath
+
+ sty temp
+ jsr chkspc
+ jsr makednload ;DOWNLOAD
+ ldy temp
+
+ lda #1 ;copy 1 path (D:)
+ jsr coppath
+
+ sty temp
+ jsr chkspc
+ jsr makeupload ;UPLOAD
+ ldy temp
+
+ lda #1 ;copy 1 path (E:)
+ jsr coppath
+
+ sty temp
+ jsr chkspc
+ jsr makebltn ;BULLETINS
+ ldy temp
+
+ lda #1 ;copy 1 path (F:)
+ jsr coppath
+
+ sty temp
+ jsr chkspc
+ jsr makemail ;MAIL
+ ldy temp
+
+ lda #1 ;copy 1 path (G:)
+ jsr coppath
+
+ ldx #6 ; fill out rest of the specs (h: - l:)
+ lda #0
+:loop sta devnam,y
+ iny
+ dex
+ bne :loop
+
+ rts
+
+*-------------------------------
+* copy a path onto the pathname
+
+coppath sta temp
+
+:loop6 ldx #-1
+:loop5 inx
+ lda dstpfx,x ; copy in pathname
+ sta devnam,y
+ iny
+ cpx dstpfx ; done?
+ bne :loop5 ; nope
+
+ dec temp ; count down paths to enter
+ bne :loop6
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro/program and log it
+
+makesegs jsr makegbbs
+ ldx #0
+ ldy dstpfx
+:loop lda prgname+1,x ; copy on /xxxx/gbbs.pro/program
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx prgname
+ bne :loop
+ rts
+
+setprg jsr makesegs
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro/system and log it
+
+makesys jsr makegbbs
+ ldx #0
+ ldy dstpfx
+:loop lda sysname+1,x ; copy on /xxxx/gbbs.pro/system
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx sysname
+ bne :loop
+ rts
+
+setsys jsr makesys
+
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro/gfiles and log it
+
+makegfile jsr makegbbs
+ ldx #0
+ ldy dstpfx
+:loop lda gfilename+1,x ; copy on /xxxx/gbbs.pro/gfiles
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx gfilename
+ bne :loop
+ rts
+
+setgfile jsr makegfile
+
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro/download and log it
+
+makednload jsr makegbbs
+ ldx #0
+ ldy dstpfx
+:loop lda dnldname+1,x ; copy on /xxxx/gbbs.pro/download
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx dnldname
+ bne :loop
+ rts
+
+setdnload jsr makednload
+
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro/upload and log it
+
+makeupload jsr makegbbs
+ ldx #0
+ ldy dstpfx
+:loop lda upldname+1,x ; copy on /xxxx/gbbs.pro/upload
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx upldname
+ bne :loop
+ rts
+
+setupload jsr makeupload
+
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro/bulletins and log it
+
+makebltn jsr makegbbs
+ ldx #0
+ ldy dstpfx
+:loop lda bltnname+1,x ; copy on /xxxx/gbbs.pro/bulletins
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx bltnname
+ bne :loop
+ rts
+
+setbltn jsr makebltn
+
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro/mail and log it
+
+makemail jsr makegbbs
+ ldx #0
+ ldy dstpfx
+:loop lda mailname+1,x ; copy on /xxxx/gbbs.pro/mail
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx mailname
+ bne :loop
+ rts
+
+setmail jsr makemail
+
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* setup /xxx/gbbs.pro and log it
+
+makegbbs ldx #0
+ ldy dstpfx
+:loop lda dirname+1,x ; copy on /xxxx/gbbs.pro
+ sta dstpfx+1,y
+ inx
+ iny
+ inc dstpfx ; update length
+ cpx dirname
+ bne :loop
+ rts
+
+setgbbs jsr makegbbs
+ jsr mli
+ db $c0 ; create new path
+ dw p_crpth
+ rts
+
+*-------------------------------
+* variables
+
+dirname str '/GBBS.PRO'
+prgname str '/PROGRAM'
+sysname str '/SYSTEM'
+gfilename str '/GFILES'
+dnldname str '/DOWNLOAD'
+upldname str '/UPLOAD'
+bltnname str '/BULLETINS'
+mailname str '/MAIL'
+
+p_spfx db 1
+ dw lnbuf-2
+
+p_geof db $02
+ db 0
+ db 0,0,0
+
+p_ginfo db $0a
+ dw 0
+ db 0
+ db 0
+ dw 0
+ db 0
+ dw 0
+ dw 0
+ dw 0
+ dw 0
+ dw 0
+
+p_ren db $02
+ dw lnbuf+128
+ dw flname
+
+p_pfx db 1
+ dw lnbuf
+
+p_pfx2 db 1
+ dw conpfx
+
+p_pfx3 db 1
+ dw dstpfx
+
+p_pfx4 db 1
+ dw prgpfx
+
+conpfx ds 40,0 ; max length
+
+dstpfx ds 40,0 ; max length
+
+prgpfx ds 40,0 ; max length
+
+p_onlin db 2
+ db 0
+ dw conpfx+1
+
+p_onln db 2
+ db 0
+ dw dstpfx+1
+
+p_crpth db 7
+ dw dstpfx
+ db $c3
+ db $0f
+ dw $0000
+ db $0d
+ dw 0
+ dw 0

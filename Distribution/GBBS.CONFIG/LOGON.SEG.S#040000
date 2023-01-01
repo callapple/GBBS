@@ -6,6 +6,7 @@
 ; logon segment rev - 2/19/2017
 
  public get.pass
+
  clear
  set pa$=ram,8:set ph$=ram+8,12
  when$=ram+20:flag=ram+22
@@ -40,7 +41,7 @@ start1
  print @(20-len(x$)/2),8 x$
  x$="This will be call "+str$(ct)+" today"
  print @(20-len(x$)/2),9 x$
-; use "b:acos.time,20,20"
+; use "b:acos.time",20,20
  modem(0):bb=0:home:clock(0)
  d=0:on nocar goto start
  tone(100,50):tone(125,50):tone(150,50):cm$=date$+" "+time$
@@ -62,6 +63,7 @@ logon
  print \"Account Number"
  un=0:input "-->" i$:x=val(i$)
  if i$="NEW" goto new.user
+
  print \"Enter Password"
  echo="X":input "-->" i$:echo=""
  print \"Verifying Account..."
@@ -80,6 +82,7 @@ bad.user
  print \"Illegal Access":goto start
 
 ; *** New User Logon ***
+
 new.user
  print \"Enter your real full name [20 chars max]"
  input @3 ":" i$:if i$="" goto new.user
@@ -93,7 +96,7 @@ new.user
 
 get.city
  print \"City [16 chars max]"
- input ":" d4$
+ input @4 ":" d4$
  if len(d4$)>16 print "Too long, try again":goto get.city
 
 get.state
@@ -108,6 +111,7 @@ get.phone
  if len(i$)<>12 goto get.phone
  a$=left$(i$,3)+"-"+mid$(i$,5,3)+"-"+right$(i$,4)
  ph$=a$
+
  print \"We have the following."\
  print d3$\d4$", "d5$\ph$\:input @2 "Is this correct (Y/[N]) ? " i$
  if left$(i$,1)<>"Y" goto logon
@@ -121,6 +125,7 @@ get.guest
  input @0 "-->" i$
  if i$="P" goto get.pass
  if i$<>"G" goto get.guest
+
  x=0:pa$="GUEST   ":flag(0)=1
  lc$="UNKNOWN":goto login
 
@@ -141,8 +146,10 @@ add.user
  a=a+1:if info(2)<>1 print chr$(8,4);right$("00"+str$(a),3)"]";
  if info(2)=1 if not (a mod 5) print chr$(8,4);right$("00"+str$(a),3)"]";
  if a<=nu goto add.user
- a=z:if not z then nu=nu+1:a=nu:close
- print sc$:copy "sys.newinfo":x=0:print
+ a=z:if not z then nu=nu+1:a=nu
+ close
+
+ print sc$:copy "b:sys.newinfo":x=0:print
  create "b:temp":open #1,"b:sys.questions":open #2,"b:temp"
 
 info
@@ -158,7 +165,7 @@ info.2
  input @2 "a Message (Y/[N]) ? " i$:if left$(i$,1)<>"Y" goto info.3
  print sc$"Enter message now, 40 colums, 4k max"
  print '".h" for help, "DONE" when finished'
- close #1:edit(0):edit(1):if not edit(2) goto info.3
+ edit(0):edit(1):if not edit(2) goto info.3
  print #2:append #2:copy #8,#2:append #2:print #2
 
 info.3
@@ -184,10 +191,12 @@ info.3a
  print #1,a$;ph$\a$;date$" "time$\:append #1
  copy #8,#1:append #1:print #1,chr$(1):close
  ready "g:mail":kill #msg(a):update
+
  print \"Press <CR> to enter "sn$;
  input @3 " " i$:x=a:i$=pa$:goto logon2
 
 ; *** Main Logon Routine ***
+
 login
  if lc$<>date$ then nibble(6)=0:flag(36)=0:byte(7)=0
  lr=byte(5)+byte(6)*256:if lr>mn then lr=0
@@ -199,6 +208,7 @@ login1
  b=((nibble(5)*10)-byte(7))*60
 login1a
  clock(2)=b:b=((clock(2)-clock(1))/60)+1
+
 
 ; This code can be deleted if you are running a new 1.3 system
 ; or all users have logged on since the change over.
@@ -230,6 +240,7 @@ login2
 
  if lr<wm then f$="b:sys.news":gosub show.file
  if lr+1=wm then lr=wm
+
  print \"Welcome to the board"
  print \"Sysop ->"sys$
 
@@ -286,6 +297,7 @@ up.state
  input ":" d5$
  if len(d5$)<2 print "Two letter code please.":goto up.state
  if len(d5$)>2 print "Two letter code only.":goto up.state
+
  print \"We have the following."\
  print d4$", "d5$\:input @2 "Is this correct (Y/[N]) ? " i$
  if left$(i$,1)<>"Y" goto up.from
