@@ -263,8 +263,8 @@ hard1 ldx #<einit3
  jsr cls
  jsr print
  asc 'Please enter the slot and drive of your'0d
- asc 'mass storage device. If your media is',0d
- asc 'removable, then please make sure there'0d
+ asc 'mass  storage device.  If your media is',0d
+ asc 'removable,  then please make sure there'0d
  asc 'is formatted media in place.',0d,0d,0d
  asc '     Slot? [1-7] ',00
  ldx #7
@@ -288,12 +288,11 @@ hard1 ldx #<einit3
 
  jsr cls
  jsr print
- asc 'If you continue, a subdirectory',0d
- asc 'GBBS.PRO will be created on your',0d
- asc 'mass storage device. All needed',0d
- asc 'files will be copied into this',0d
- asc 'subdirectory.  No existing files',0d
- asc 'will be destroyed.'00
+ asc 'If you  continue,  a directory GBBS.PRO',0d
+ asc 'will be  created  on your mass  storage',0d
+ asc 'device. All needed files will be copied',0d
+ asc 'into  this  folder. Existing files will',0d
+ asc 'not be destroyed.',00
  jsr getcr
 
  lda #0 ; no more turning away..
@@ -306,19 +305,18 @@ hard1 ldx #<einit3
 
 :nospace jsr cls
  jsr print
- asc 'The storage device checked does not'0d
- asc 'contain enough storage space to run',0d
- asc 'the system. You need to make some'0d
- asc 'more room on the device, or choose',0d
- asc 'another device.',00
+ asc "The storage device  checked doesn't have",0d
+ asc 'enough  free  storage  space  to run the',0d
+ asc 'system.  You need to make some more room'0d
+ asc 'on the device, or choose another device.',00
 
  jsr getcr
  jmp hard1 ; goto hard/floppy question
 
 hard2 jsr cls
  jsr print
- asc 'The configuration program is now going'0d
- asc 'to copy all the files needed to run',0d
+ asc 'The configuration  program is now going'0d
+ asc 'to copy all the files  necessary to run',0d
  asc 'GBBS Pro onto your mass storage device.',00
 
  jsr getg ; get permission
@@ -359,10 +357,10 @@ hard2 jsr cls
 
  jsr cls
  jsr print
- asc 'Your system is now configured and is'0d
- asc 'ready to run. To bring up your system',0d
+ asc 'Your  system  is now  configured and is'0d
+ asc 'ready to run. To bring  up your  system',0d
  asc 'for operation, do the following:',0d,0d
- asc 'Boot up your mass storage device and'0d
+ asc 'Boot up your  mass storage  device  and'0d
  asc 'type "PREFIX GBBS.PRO/PROGRAM".',0d,0d
  asc 'Type "-ACOS" to start your system.',00
 

@@ -1,1 +1,130 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Σεςιαμ Πςο Δςιφες ­ ±² θςσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ςεμ δσλ ςεμ―σεςιαμπςομξβυζ ερυ ¤²°°νμι ερυ ¤βζ°°δατε ερυ ¤βζΉ°ηετίτινε ερυ ¤Έ²σεςιαμπςο εξτ οςη ¤°δ°°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­σμοτ θεψ ΄°νοδε δβ ° κνπ ηετδατε κνπ ηεττινε κνπ σετδατεª ηετ τθε δατε ιξ πςοδοσ ηββσ ζοςνατª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηετδατε κσς ¤βζ°° » νμι γαμμ δβ ηετίτινε θεψ °°°° » ξο πςανατες ταβμε μδψ δατε μδα δατε«±σετδατε ςτσª ηετ τθε γυςςεξτ τινεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηεττινε κσς ςδτινε βιτ νοδε βπμ ητινε± κσς γοξφεςτητινε± μδψ £Ότινεστς » ποιξτ το στςιξη μδα £Ύτινεστς ςτσª ςεαδ τθε γυςςεξτ τινε ζςον γμογλª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ςδτινε βιτ ιξιτβωτ » θασ ςουτιξε βεεξ γαμμεδ βεζοςεΏ βνι γμογλ± » ωεπ μδα σμοτ » ηετ γμογλ σμοτ μσς μσς μσς μσς οςα £¤γ° » ναλε ιξτο ¤Γξ ζοςν στα γμογλ²«² » νοδιζω γοδε ζος σμοτ στα γμογλ³«² δεγ ιξιτβωτ » σθοχ ςουτιξε θασ βεεξ ιξιτ§εδγμογλ± μδα £¤α¶ » υσε Ά¦Ά νοδεγμογλ² κσς ¤γ°²° » νοδιζιεδ ¨¤γ΄²°©γμογλ³ κσς ¤γ°±δ » νοδιζιεδ ¨¤γ΄μδ© μδω £±² μδψ £°γμογλ΄ μδα μξβυζ¬ω στα τινεστς¬ψ ιξω ιξψ γπψ £Έ βξε γμογλ΄ ςτσª γοξφεςτ τινε το ±² θους ζοςνατª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γοξφεςτ μδα τινεστς »γοξφεςτ το ±² θους μδψ τινεστς«±γοξφ αξδ £¤°ζ ταω τψα αξδ £¤°ζ δεω βνι γοξφ² γμγ αδγ £±° δεω βνι γοξφ² αδγ £±°γοξφ² γνπ £±² βξε γοξφ²α μδα £²΄γοξφ²α ταω βξε γοξφ³ μδα £±²γοξφ³ μδψ £§Α§ γνπ £±³ βγγ γοξφ΄ σβγ £±² μδψ £§Π§γοξφ΄ μδω £§°§γοξφµ γνπ £±° βγγ γοξφ¶ σβγ £±° ιξω βξε γοξφµγοξφ¶ οςα £§°§ στα τινεστς«± στω τινεστς στψ τινεστς«Ή μδψ £§Ν§ στψ τινεστς«±° ςτσιξιτβωτ θεψ °°τινεστς ασγ §°°Ί°°Ί°° ΑΝ§¬°°
+*-------------------------------
+* Serial Pro Driver - 12 hrs
+*-------------------------------
+
+ lst off
+
+ rel
+ dsk rel/serialpro
+
+lnbuf equ $200
+mli equ $bf00
+date equ $bf90
+get_time equ $82
+
+
+serialpro ent
+
+ org $0d00
+
+*-------------------------------
+
+slot hex 40
+mode db 0
+
+ jmp getdate
+ jmp gettime
+ jmp setdate
+
+* get the date in prodos gbbs format
+*-------------------------------
+getdate jsr $bf00 ; mli call
+ db get_time
+ hex 0000 ; no pramater table
+
+ ldx date
+ lda date+1
+setdate rts
+
+* get the current time
+*-------------------------------
+gettime jsr rdtime
+ bit mode
+ bpl gtime1
+ jsr convert
+
+gtime1 ldx #<timestr ; point to string
+ lda #>timestr
+ rts
+
+* read the current time from clock
+*-------------------------------
+rdtime bit initbyt ; has routine been called before?
+ bmi clock1 ; yep
+
+ lda slot ; get clock slot
+ lsr
+ lsr
+ lsr
+ lsr
+ ora #$c0 ; make into $Cn form
+
+ sta clock2+2 ; modify code for slot
+ sta clock3+2
+ dec initbyt ; show routine has been init'ed
+
+clock1 lda #$a6 ; use "&" mode
+clock2 jsr $c020 ; modified ($c420)
+clock3 jsr $c01d ; modified ($c4ld)
+
+ ldy #12
+ ldx #0
+clock4 lda lnbuf,y
+ sta timestr,x
+ iny
+ inx
+ cpx #8
+ bne clock4
+ rts
+
+* convert time to 12 hour format
+*-------------------------------
+convert lda timestr ;convert to 12 hour
+ ldx timestr+1
+
+conv and #$0f
+ tay
+ txa
+ and #$0f
+
+ dey
+ bmi conv2
+ clc
+ adc #10
+ dey
+ bmi conv2
+ adc #10
+
+conv2 cmp #12
+ bne conv2a
+ lda #24
+conv2a tay
+ bne conv3
+ lda #12
+
+conv3 ldx #'A'
+ cmp #13
+ bcc conv4
+
+ sbc #12
+ ldx #'P'
+
+conv4 ldy #'0'
+conv5 cmp #10
+ bcc conv6
+
+ sbc #10
+ iny
+ bne conv5
+
+conv6 ora #'0'
+ sta timestr+1
+ sty timestr
+ stx timestr+9
+
+ ldx #'M'
+ stx timestr+10
+ rts
+
+initbyt hex 00
+timestr asc '00:00:00 AM',00

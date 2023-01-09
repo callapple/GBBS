@@ -1,1 +1,253 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª φιδεο δςιφες ζος γοξζιηª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ ³―±±―ΈΈª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­παηε± ερυ ¤γ°µ΄παηε² ερυ ¤γ°µµΦιδεοΣταςτυπ στα ¤γ°°γ »γμςΈ°φιδ στα ¤γ°°° »γμςΈ°γομ στα παηε± μδα £° » σετ το παηε ± στα ιξφεςσε » σετ το ξοςναμ νοδε ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γμσ μδα £¶ »γμεας σγςεεξ στα γφ »μιξε ¶ οξ δοχξγμσμυπ² μδα γφ »γμεας το εξδ οζ σγςεεξ ασμ α »γφ Ί½ γφ ª ² ταω μδα ΜιξεΑδδςεσσ¬ω στα βασε ιξω μδα ΜιξεΑδδςεσσ¬ω στα βασε«± μδω £³Ή μδα £¤α°Ίμοοπ στα ¨βασε©¬ω δεω βπμ Ίμοοπ ιξγ γφ μδα γφ γνπ £²΄ βξε γμσμυπ² μδα £° »°¬¶ στα γθ μδα £· στα γφ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γμεοσ στψ γφ κνπ γμσμυπ²γμεομ πθα μδα γθ » σαφε μογατιοξ οζ γυςσος πθα μδα γφ πθαγμεομ² μδα £§ § κσς γουτ » πυτ σπαγε οφες γθας μδα γθ βξε γμεομ² » ηο υξτιμ ιτ χςαπσ το ξεψτ μιξε πμα στα γφ » πυτ γυςσος βαγλ πμα στα γθ πμα ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΤοπΒοψ πθα μδα £° στα γφ κσς δοΙΜιξε ιξγ γφ κσς δοΕδηε ιξγ γφ κσς δοΕδηε ιξγ γφ κσς δοΕδηε ιξγ γφ κσς δοΕδηε ιξγ γφ κσς δοΙΜιξε μδω £³Ή μδα £¤²° στα ¨βασε©¬ω μδω £° στα ¨βασε©¬ω πμα ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­δοΕδηε κσς ναλεβασε μδω £° μδα £¤²° στα ¨βασε©¬ω μδω £³Έ μδα £¤α°Ίμοοπ στα ¨βασε©¬ω δεω βξε Ίμοοπ μδω £³Ή μδα £¤²° στα ¨βασε©¬ω ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª πςιξτ αξ ιξφεςσε μιξε αγςοσσ τθε σγςεεξδοΙΜιξε κσς ναλεβασε μδω £³Ή μδα £¤ΔΖΊμοοπ στα ¨βασε©¬ω δεω βπμ Ίμοοπ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ναλεβασε μδα γφ ασμ α ταω  »σετυπ ιξδιςεγτ αδδςεσσ μδα ΜιξεΑδδςεσσ¬ω στα βασε ιξω μδα ΜιξεΑδδςεσσ¬ω στα βασε«± ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­πμοτγθς πθα  » σαφε κσς ναλεβασε »σετυπ ιξδιςεγτ ζος σγςεεξ αδδςεσσ μδω γθ πμα οςα £¤Έ° »σετ θιηθ βιτ στα ¨βασε©¬ω »πυτ ιτ οξτο τθε σγςεεξ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ουτπυτ α γθαςαγτεςγουτ στψ ψίσαφε » σαφε εφεςωτθιξη στω ωίσαφε πθα αξδ £¤·ζ » γμεας θιηθ γνπ £γς βερ γουτ² γνπ £μζ βερ γουτ³ γνπ £βσ βερ γουτµ γνπ £§ § βγγ γουτ΄ κσς πμοτγθς » πμοτ τθε συγλες ιξγ γθ » νοφε οφες ± σπαγε μδω γθ γπω £΄° » χςαπ­αςουξδΏ βξε γουτ΄ » ξοπεγουτ² μδω £° » ςεσετ θοςιϊ στω γθγουτ³ ιξγ γφ » ηο δοχξ ± μιξε μδα γφ » ισ ιτ ιξ ςαξηεΏ γνπ £²΄ βξε γουτ΄ » ξοπε δεγ γφ » πυτ ιτ βαγλγουτ΄ πμα μδψ ψίσαφε » ςεστοςε στυζζ μδω ωίσαφε ςτσγουτµ δεγ γθ » βαγλυπ βπμ γουτ΄ » αμμ ισ χεμμ μδα £΄° » νοφε το εξδ οζ μιξε στα γθ μδα γφ » αςε χε ατ τθε τοπ γνπ £° βερ γουτ΄ » ωεπ δεγ γφ κνπ γουτ΄ » ολ¬ χε αςε δοξεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΜιξεΑδδςεσσ δχ ¤΄°° δχ ¤΄Έ° δχ ¤µ°° δχ ¤µΈ° δχ ¤¶°° »ζιςστ ±―³ οζ τεψτ σγςεεξ δχ ¤¶Έ° δχ ¤·°° δχ ¤·Έ° δχ ¤΄²Έ δχ ¤΄αΈ δχ ¤µ²Έ δχ ¤µαΈ δχ ¤¶²Έ »σεγοξδ ±―³ οζ τεψτ σγςεεξ δχ ¤¶αΈ δχ ¤·²Έ δχ ¤·αΈ δχ ¤΄µ° δχ ¤΄δ° δχ ¤µµ° δχ ¤µδ° δχ ¤¶µ° »μαστ ±―³ οζ τεψτ σγςεεξ δχ ¤¶δ° δχ ¤·µ° δχ ¤·δ°
+
+*-------------------------------
+* video driver for config
+*-------------------------------
+
+*-------------------------------
+* Date: 3/11/88
+*-------------------------------
+
+page1 equ $c054
+page2 equ $c055
+
+VideoStartup sta $c00c ;clr80vid
+ sta $c000 ;clr80col
+ sta page1
+
+ lda #0 ; set to page 1
+ sta inverse ; set to normal mode
+ rts
+
+*-------------------------------
+
+cls lda #6 ;clear screen
+ sta cv ;line 6 on down
+
+clslup2 lda cv ;clear to end of screen
+ asl a ;cv := cv * 2
+ tay
+ lda LineAddress,y
+ sta base
+ iny
+ lda LineAddress,y
+ sta base+1
+
+ ldy #39
+ lda #$a0
+:loop sta (base),y
+ dey
+ bpl :loop
+
+ inc cv
+ lda cv
+ cmp #24
+ bne clslup2
+
+ lda #0 ;0,6
+ sta ch
+ lda #7
+ sta cv
+ rts
+
+*-------------------------------
+
+cleos stx cv
+ jmp clslup2
+
+cleol pha
+ lda ch ; save location of cursor
+ pha
+ lda cv
+ pha
+
+cleol2 lda #' '
+ jsr cout ; put space over char
+ lda ch
+ bne cleol2 ; go until it wraps to next line
+
+ pla
+ sta cv ; put cursor back
+ pla
+ sta ch
+ pla
+ rts
+
+*-------------------------------
+
+TopBox pha
+
+ lda #0
+ sta cv
+
+ jsr doILine
+ inc cv
+ jsr doEdge
+ inc cv
+ jsr doEdge
+ inc cv
+ jsr doEdge
+ inc cv
+ jsr doEdge
+ inc cv
+ jsr doILine
+
+ ldy #39
+ lda #$20
+ sta (base),y
+ ldy #0
+ sta (base),y
+
+ pla
+ rts
+
+*-------------------------------
+
+doEdge jsr makebase
+
+ ldy #0
+ lda #$20
+ sta (base),y
+
+ ldy #38
+ lda #$a0
+:loop sta (base),y
+ dey
+ bne :loop
+
+ ldy #39
+ lda #$20
+ sta (base),y
+ rts
+
+*-------------------------------
+* print an inverse line across the screen
+
+doILine jsr makebase
+
+ ldy #39
+ lda #$DF
+:loop sta (base),y
+ dey
+ bpl :loop
+ rts
+
+*-------------------------------
+
+makebase lda cv
+ asl a
+ tay  ;setup indirect address
+ lda LineAddress,y
+ sta base
+ iny
+ lda LineAddress,y
+ sta base+1
+ rts
+
+*-------------------------------
+
+plotchr pha  ; save
+ jsr makebase ;setup indirect for screen address
+ ldy ch
+ pla
+
+ ora #$80 ;set high bit
+
+* check for ][ plus
+
+ stx x_save ; save x
+ ldx $fbb3
+ cpx #$ea ;][ plus?
+ bne plotchr1 ;nope
+
+* convert everything to uppercase
+
+ cmp #"a" ;lower?
+ bcc plotchr1 ;nope
+ cmp #"z"+1 ;lower
+ bcs plotchr1 ;nope
+ sbc #$1f ;make upper
+
+plotchr1 ldx x_save
+ sta (base),y ;put it onto the screen
+ rts
+
+*-------------------------------
+* output a character
+
+cout stx x_save ; save everything
+ sty y_save
+ pha
+
+ and #$7f ; clear high
+ cmp #cr
+ beq cout2
+ cmp #lf
+ beq cout3
+ cmp #bs
+ beq cout5
+ cmp #' '
+ bcc cout4
+
+ jsr plotchr ; plot the sucker
+
+ inc ch ; move over 1 space
+ ldy ch
+ cpy #40 ; wrap-around?
+ bne cout4 ; nope
+
+cout2 ldy #0 ; reset horiz
+ sty ch
+
+cout3 inc cv ; go down 1 line
+ lda cv ; is it in range?
+ cmp #24
+ bne cout4 ; nope
+
+ dec cv ; put it back
+
+cout4 pla
+ ldx x_save ; restore stuff
+ ldy y_save
+ rts
+
+cout5 dec ch ; backup
+ bpl cout4 ; all is well
+
+ lda #40 ; move to end of line
+ sta ch
+
+ lda cv ; are we at the top
+ cmp #0
+ beq cout4 ; yep
+
+ dec cv
+ jmp cout4 ; ok, we are done
+
+*-------------------------------
+
+LineAddress dw $400
+ dw $480
+ dw $500
+ dw $580
+ dw $600 ;first 1/3 of text screen
+ dw $680
+ dw $700
+ dw $780
+
+ dw $428
+ dw $4a8
+ dw $528
+ dw $5a8
+ dw $628 ;second 1/3 of text screen
+ dw $6a8
+ dw $728
+ dw $7a8
+
+ dw $450
+ dw $4d0
+ dw $550
+ dw $5d0
+ dw $650 ;last 1/3 of text screen
+ dw $6d0
+ dw $750
+ dw $7d0

@@ -1,1 +1,189 @@
-╙╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜█╙ нО сЛОТ цЛОЦК ╜ ╡╢ ХР█╙╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜█╙ рЕЖИСЕД дАТЕ╨ ╟╦╞╟╡╞╦╥█╙╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜╜██═ЛСТ═ОФФ██═РЕЛ█═ДСК═РЕЛ╞НОСЛОТ███збуф═еяу═╓╢╠█птр═еяу═╓╢╡██ыеар═еяу═╓╢╢█монтх═еяу═╓╢╣█дате═еяу═╓╢╤█даы═еяу═╓╢╥█хоурс═еяу═╓╢╦█минутес═еяу═╓╢╧█сецондс═еяу═╓╢а█мсецондс═еяу═╓╢б█темп═еяу═╓╡ф╟██НОСЛОТ═ЕНТ█═ОРГ═╓╟Д╟╟██═ДБ═╟█╨моде═ДБ═╟═╩╡╢ ХОУР ФОРМАТ█╨гетдате═ймп═╨фмтдате█╨геттиме═ймп═╨фмттиме█╨сетцлк═ртс█╙█╙ формат но╜слот цлоцк дате█╙█╨фмтдате═йср═╨рдцлоцк█═лда═монтх█═асл█═асл█═асл█═асл█═асл█═рол═ыеар█═ора═дате█═таь█═лда═ыеар█═пха█═йср═╨зрецалл█═пла█╨сетртн═ртс█╙█╙ формат но╜слот цлоцк тиме█╙█╨фмттиме═йср═╨рдцлоцк█═лды═хоурс█═бит═╨моде█═бпл═╨фмт╡╢█═лда═ё╖м╖█═ста═╨тиме╚╠╟█═лдь═ё╖а╖█═сед█═сец█═тыа█═сбц═ё╓╠╡█═цлд█═бцц═╨сетхоур█═таы█═бне═╨нотноон█═лды═ё╓╠╡█╨нотноон═лдь═ё╖п╖█╨сетхоур═сть═╨тиме╚╧█═тыа█═бне═╨фмт╡╢█═лды═ё╓╠╡█╨фмт╡╢═тыа█═лды═ё╓╟╟█═лдь═ё╓╟╟█╨фмт═пха█═анд═ё╓ф╟█═лср█═лср█═лср█═лср█═цлц█═адц═ё╓Ё╟█═ста═╨тиме╛ы█═ины█═пла█═анд═ё╓╟ф█═адц═ё╓Ё╟█═ста═╨тиме╛ы█═ины█═ины█═инь█═лда═хоурс╛ь█═цпь═ё╓╟Ё█═бне═╨фмт█═йср═╨зрецалл█╙█═лдь═ё╪╨тиме█═лда═ё╬╨тиме█═ртс█╙█╙ рецалл пг зеро буффер ╗аццесс жиа ймп╘█╙█╨зрецалл═лды═ё╓╟а█╨зрецалл╠═лда═темп╛ы█═ста═птр╛ы█═деы█═бне═╨зрецалл╠█═ртс█╙█╙ реад тхе но╜слот цлоцк анд ретриеже дате╞тиме█╙█╨рдцлоцк═лды═ё╓╟а█╨сторбуф═лда═збуф╛ы█═ста═темп╛ы█═деы█═бне═╨сторбуф█═пхп█═сеи█═лда═╓ц╟╠╣█═пха█═ста═╓ц╟╟╥█═лда═╓ц╦╟╢█═лда═ё╪╨рецсея█═ста═птр█═лда═ё╬╨рецсея█═ста═птр╚╠█═лды═ё╓╟╥█╨рецог╠═лда═╗птр╘╛ы█═сец█═рор█╨рецог╡═пха█═лда═ё╓╟╟█═рол█═таь█═лда═╓ц╦╟╟╛ь█═пла█═лср█═бне═╨рецог╡█═деы█═бпл═╨рецог╠█═лдь═ё╓╟╥█╨неьтреад═лды═ё╓╟╥█╨реадбит═лда═╓ц╦╟╢█═рор█═рор═ыеар╛ь█═деы█═бпл═╨реадбит█═цпь═ё╓╟Ё█═бпл═╨стордате█═лда═ыеар╛ь█═пха█═анд═ё╓╟ф█═ста═ыеар╛ь█═пла█═анд═ё╓ф╟█═лср█═лср█═лср█═лср█═таы█═бея═╨стордате█═лда═ё╓╟╟█╨аддтенс═адц═ё╓╟а█═деы█═бне═╨аддтенс█╨стор╣═адц═ыеар╛ь█═ста═ыеар╛ь█╨стордате═деь█═бпл═╨неьтреад█═пла█═рол█═бцс═╨рденд█═ста═╓ц╟╟╤█═плп█╨рденд═ртс█╙█╙ дефине рецогнитион сеяуенце фор но╜слот цлоцк█╙█╨рецсея═ДФБ═╓╣ц╛╓аЁ╛╓Ёа╛╓ц╣╛╓╣ц╛╓аЁ╛╓Ёа╛╓ц╣█╙█╙ тиме оутпут буффер█╙█╨тиме═ДФБ═╓Ё╟╛╓Ё╟╛╓Ёа█═ДФБ═╓Ё╟╛╓Ё╟╛╓Ёа█═ДФБ═╓Ё╟╛╓Ё╟╛╓╡╟╛╓╡╟╛╓╡╟█
+*-------------------------------
+* No Slot Clock - 24 hr
+*-------------------------------
+* Revised Date: 08/02/87
+*-------------------------------
+
+ lst off
+
+ rel
+ dsk rel/noslot
+
+
+ZBUF EQU $41
+PTR EQU $42
+
+YEAR EQU $44
+MONTH EQU $45
+DATE EQU $46
+DAY EQU $47
+HOURS EQU $48
+MINUTES EQU $49
+SECONDS EQU $4A
+MSECONDS EQU $4B
+TEMP EQU $2F0
+
+noslot ent
+ org $0d00
+
+ db 0
+:MODE db 0 ;24 hour format
+:GETDATE JMP :FMTDATE
+:GETTIME JMP :FMTTIME
+:SETCLK RTS
+*
+* FORMAT NO-SLOT CLOCK DATE
+*
+:FMTDATE JSR :RDCLOCK
+ LDA MONTH
+ ASL
+ ASL
+ ASL
+ ASL
+ ASL
+ ROL YEAR
+ ORA DATE
+ TAX
+ LDA YEAR
+ PHA
+ JSR :ZRECALL
+ PLA
+:SETRTN RTS
+*
+* FORMAT NO-SLOT CLOCK TIME
+*
+:FMTTIME JSR :RDCLOCK
+ LDY HOURS
+ BIT :MODE
+ BPL :FMT24
+ LDA #'M'
+ STA :TIME+10
+ LDX #'A'
+ SED
+ SEC
+ TYA
+ SBC #$12
+ CLD
+ BCC :SETHOUR
+ TAY
+ BNE :NOTNOON
+ LDY #$12
+:NOTNOON LDX #'P'
+:SETHOUR STX :TIME+9
+ TYA
+ BNE :FMT24
+ LDY #$12
+:FMT24 TYA
+ LDY #$00
+ LDX #$00
+:FMT PHA
+ AND #$F0
+ LSR
+ LSR
+ LSR
+ LSR
+ CLC
+ ADC #$30
+ STA :TIME,Y
+ INY
+ PLA
+ AND #$0F
+ ADC #$30
+ STA :TIME,Y
+ INY
+ INY
+ INX
+ LDA HOURS,X
+ CPX #$03
+ BNE :FMT
+ JSR :ZRECALL
+*
+ LDX #<:TIME
+ LDA #>:TIME
+ RTS
+*
+* RECALL PG ZERO BUFFER (ACCESS VIA JMP)
+*
+:ZRECALL LDY #$0A
+:ZRECALL1 LDA TEMP,Y
+ STA PTR,Y
+ DEY
+ BNE :ZRECALL1
+ RTS
+*
+* READ THE NO-SLOT CLOCK AND RETRIEVE DATE/TIME
+*
+:RDCLOCK LDY #$0A
+:STORBUF LDA ZBUF,Y
+ STA TEMP,Y
+ DEY
+ BNE :STORBUF
+ PHP
+ SEI
+ LDA $C015
+ PHA
+ STA $C007
+ LDA $C804
+ LDA #<:RECSEQ
+ STA PTR
+ LDA #>:RECSEQ
+ STA PTR+1
+ LDY #$07
+:RECOG1 LDA (PTR),Y
+ SEC
+ ROR
+:RECOG2 PHA
+ LDA #$00
+ ROL
+ TAX
+ LDA $C800,X
+ PLA
+ LSR
+ BNE :RECOG2
+ DEY
+ BPL :RECOG1
+ LDX #$07
+:NEXTREAD LDY #$07
+:READBIT LDA $C804
+ ROR
+ ROR YEAR,X
+ DEY
+ BPL :READBIT
+ CPX #$03
+ BPL :STORDATE
+ LDA YEAR,X
+ PHA
+ AND #$0F
+ STA YEAR,X
+ PLA
+ AND #$F0
+ LSR
+ LSR
+ LSR
+ LSR
+ TAY
+ BEQ :STORDATE
+ LDA #$00
+:ADDTENS ADC #$0A
+ DEY
+ BNE :ADDTENS
+:STOR5 ADC YEAR,X
+ STA YEAR,X
+:STORDATE DEX
+ BPL :NEXTREAD
+ PLA
+ ROL
+ BCS :RDEND
+ STA $C006
+ PLP
+:RDEND RTS
+*
+* DEFINE RECOGNITION SEQUENCE FOR NO-SLOT CLOCK
+*
+:RECSEQ dfb $5C,$A3,$3A,$C5,$5C,$A3,$3A,$C5
+*
+* TIME OUTPUT BUFFER
+*
+:TIME dfb $30,$30,$3A
+ dfb $30,$30,$3A
+ dfb $30,$30,$20,$20,$20

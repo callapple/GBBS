@@ -1,1 +1,60 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Δατε °±―°¶―Έ·ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ςεμ δσλ ςεμ―ξυμμνδνξυμμνδν εξτ οςη ¤ε°°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª κυνπ ταβμε δζβ ° »σεςιαμ γαςδ σμοτ δζβ ° »ιξιτ νοδεν ατΏ δζβ ° »σπεεδ οζ γαμμβωτγξτ δζβ °¬°¬° ΚΝΠ δοίςτσ ΚΝΠ δοίςτσ ΚΝΠ ςιξη ΚΝΠ δοίςτσ ΚΝΠ δοίςτσ ΚΝΠ ιξπ ΚΝΠ ουτ ΚΝΠ γθλδγδ κνπ δοίςτσ κνπ δοίςτσ κνπ δοίςτσ κνπ δοίςτσ» ιξιτ τθε σεςιαμ γαςδδοίςτσ ÒΤΣ» σγαξ ζος ςιξη αξδ θαξδμε ιτςιξη ΓΜΓ ÒΤΣ» ιξπυτ δαταιξπ ΜΔΑ £° ΓΜΓ ÒΤΣ» ουτπυτ δαταουτ ΙΞΓ βωτγξτ »δο βωτε­γουξτιξη ΒΞΕ ουτ± ΙΞΓ βωτγξτ«± ΒΞΕ ουτ± ΙΞΓ βωτγξτ«²ουτ± ÒΤΣ» γθεγλ ζος γαςςιεςγθλδγδ ΓΜΓ ÒΤΣ ασγ §ΞυμμΝοδεν§
+*-------------------------------
+* Date 01/06/87
+*-------------------------------
+ lst off
+
+ rel
+ dsk rel/nullmdm
+
+nullmdm ent
+
+ org $e00
+
+*-------------------------------
+* jump table
+
+ dfb 0 ;serial card slot
+ dfb 0 ;init modem at?
+ dfb 0 ;speed of call
+
+bytcnt dfb 0,0,0
+
+ JMP do_rts
+ JMP do_rts
+ JMP ring
+ JMP do_rts
+ JMP do_rts
+ JMP inp
+ JMP out
+ JMP chkdcd
+ jmp do_rts
+ jmp do_rts
+ jmp do_rts
+ jmp do_rts
+
+; init the serial card
+do_rts RTS
+
+; scan for ring and handle it
+ring CLC
+ RTS
+
+; input data
+inp LDA #0
+ CLC
+ RTS
+
+; output data
+out INC bytcnt ;do byte-counting
+ BNE out1
+ INC bytcnt+1
+ BNE out1
+ INC bytcnt+2
+
+out1 RTS
+
+; check for carrier
+chkdcd CLC
+ RTS
+
+ asc 'NullModem'

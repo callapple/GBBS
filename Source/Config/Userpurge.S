@@ -1,1 +1,584 @@
-ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª   Γοξζιη ­ Υσεςμιστ Πυςηε    ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ °±―±¶―Ή° ­ ΜΤΧª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­υσςλιμμ μδψ £Όσταςτ μδα £Ύσταςτ  » σετυπ εσγ θαξδμες κσς εσγαπε κσς ΤοπΒοψ κσς πςιξτ δβ ±¬³¬¶ ασγ §­ Πυςηε Υσεςσ Ζςον Σωστεν ­§¬°° κσς γμσ κσς πςιξτ δβ ±¬·¬° ασγ §Πυςηε α ηςουπ οζ υσεςσΊ§¬°δ¬°δ ασγ §Δεμετε ξοςναμ υσεςσ χθο θαφε ξοτ γαμμεδ§¬°δ ασγ §σιξγεΊ ¨Υσε ΫÒΕΤΥÒΞέ το λιμμ ξο υσεςσ©§¬°δ¬°δ ασγ §ΫΨΨ―ΨΨ―ΨΨέ Ώ §¬°° κσς ιξπδατε  » ιξπυτ τθε δατε τθςεσθομδ στψ δατε στα δατε«± κσς πςιξτ δβ γς ασγ §Δεμετε σπεγιαμ υσεςσ ¨τθοσε υσεςσ χθο§¬°δ ασγ §θαφε α πεςγεξτ ¨¥© σιηξ ιξ τθεις πθοξε§¬°δ ασγ §ξυνβες© χθο θαφε ξοτ γαμμεδ σιξγεΊ§¬°δ¬°δ ασγ §ΫΨΨ―ΨΨ―ΨΨέ Ώ §¬°° μδα £­±  » σετ δεζαυμτ το αυτο­νοδε στα δατε«΄ κσς ιξπδατε στψ δατε«² στα δατε«³ οςα δατε οςα δατε«± οςα δατε«² βερ λιμμ±  » κυστ δο στατ γθεγλ κσς πςιξτ δβ γς ασγ §Χαιτ ζος Σωσοπ φεςιζιγατιοξ βεζοςε§¬°δ ασγ §λιμμιξη ομδ υσεςσ ος λιμμ αυτονατιγ­§¬°δ ασγ §αμμωΏ Χαιτ ζος φεςιζιγατιοξ ΫΩ―Ξέ Ώ §¬°° κσς ιξπωξ μδα £° ςος α  » σαφε αυτο―ναξυαμ στατυσ στα δατε«΄λιμμ± κσς γμσ κσς πςιξτ ασγ §Υσεςπυςηε παςανετες συνναςωΊ§¬°δ¬°δ¬°δ ασγ §Λιμμ ξοςναμ βεζοςεΊ §¬°° μδψ δατε μδα δατε«±  » ηετ ξοςναμ δατε γμγ κσς πςδατε  » σθοχ δατε κσς πςιξτ δβ γς¬γς ασγ §Λιμμ σπεγιαμ βεζοςεΊ §¬°° μδψ δατε«² μδα δατε«³  » πςιξτ δατε γμγ κσς πςδατε κσς πςιξτ δβ γς¬γς ασγ §Πςοηςαν νοδεΊ §¬°° βιτ δατε«΄ βπμ λιμμ²  » ναξυαμ νοδε κσς πςιξτ ασγ §Αυτονατιγ§¬°° κνπ λιμμ³λιμμ² κσς πςιξτ ασγ §Ναξυαμ§¬°°λιμμ³ κσς πςιξτ δβ γς¬γς¬γς ασγ §Ισ τθε αβοφε γοςςεγτ ΫΩ―Ξέ Ώ §¬°° κσς ιξπωξ βγγ λιμμ³α κνπ υσςλιμμ  » τςω ιτ αηαιξλιμμ³α κσς πςιξτ δβ γς¬γς ασγ §Ναλε συςε βοτθ τθε γοξζιη δισλ§¬°δ ασγ §αξδ τθε σωστεν δισλ αςε οξ­μιξε®§¬°°λιμμ³β κσς ηετγς μδα £± κσς μοησπεγ βγσ λιμμ³β  » οππσ¬ τςω αηαιξ κσς γμσ κσς πςιξτ ασγ §ΥσεςπυςηεΊ Òυξξιξη®®®§¬°° μδψ £Όυσςξανε μδα £Ύυσςξανε » οπεξ υσες ζιμε κσς νοφξανε κσς οπεξ μδψ £Όθδςβυζ μδα £Ύθδςβυζ » ηοββμε ςεγοςδ ° μδω £±²Έ κσς ςδπαςτ μδψ £± στψ δατε«¶  » σταςτ ατ υσες £± δεψ στψ δατε«· στψ δατε«Έ  » ςεσετ λιμμεδ γουξτ στψ δατε«Ή στψ δατε«±°  » ςεσετ οπεξ σμοτσ στψ δατε«±± στψ σοςτβυζ  » ςεσετ δεμναιμ μιστ στψ σοςτβυζ«±λιμμ΄ μδα ¤γ°°°  » γθεγλ ζος λεωπςεσσ γνπ £εσγ«±²Έ » διδ τθεω θιτ εσγΏ βξε λιμμ΄λ  » ξοπε στα ¤γ°±°  » γμεας λεω κνπ λιμμ¶  » εξδ τθε υσεςμιστλιμμ΄λ μδα £° στα θδςβυζ μδψ £Όθδςβυζ μδα £Ύθδςβυζ » ςεαδ α υσες ςεγοςδ μδω £±²Έ κσς ςδπαςτ βγσ λιμμ΄ϊ  » ξο νοςε δατα μδα θδςβυζ  » ισ τθεςε ςεαμ δαταΏ βξε λιμμ΄ψ  » ωεπλιμμ΄ϊ κνπ λιμμ¶  » ζιξισθ υπ υσεςπυςηελιμμ΄ψ μδα θδςβυζ αξδ £¤·ζ γνπ £§ §  » ηοοδ υσεςΏ βγγ λιμμ΄β  » ξοπε¬ λιμμεδ κσς πςψυσες  » σθοχ υσες κσς γθλιμμ  » λιμμ υσεςΏ βγγ λιμμµ  » αμμ ισ χεμμ¬ λεεπ υσες βιτ δατε«΄  » γθεγλ λιμμ νοδε βνι λιμμ΄α  » δο αυτο­λιμμ κσς πςιξτ δβ γς¬γς ασγ §Λιμμ τθισ υσες ΫΩ―Ξέ Ώ §¬°° κσς ιξπωξ βγσ λιμμµ  » ξοπελιμμ΄α κσς πςιξτ δβ γς¬γς ασγ §Υσες Λιμμεδ§¬°° μδα £°  » δο σναμμ δεμαω κσς ¤ζγαΈ μδα £γς  » δεμετε υσες στα θδςβυζ μδψ δατε«¶  » ποσιτιοξ το υσες ςεγοςδ μδα δατε«· κσς ηουσες μδψ £Όθδςβυζ μδα £Ύθδςβυζ » χςιτε ουτ ξεχ υσες ςεγοςδ μδω £±²Έ κσς χςπαςτ μδψ δατε«¶ μδα δατε«· κσς δεμναιμ  » λιμμ τθε υσεςσ ναιμ ¨ναςλ ζος λιμμ© ιξγ δατε«Έ βξε λιμμ΄β  » ιξγ ξυνβες οζ δεμετεδ υσεςσ ιξγ δατε«Ήλιμμ΄β ιξγ δατε«±°  » ιξγ ξυνβες οζ οπεξ σμοτσ βξε λιμμµ ιξγ δατε«±±λιμμµ ιξγ δατε«¶  » μοοπ αξδ δο ξεψτ υσες βξε λιμμµα ιξγ δατε«·λιμμµα κνπ λιμμ΄λιμμ¶ κσς γμοσε  » χε αςε δοξε μδα σοςτβυζ οςα σοςτβυζ«± » δεμετε ναιμΏ βερ λιμμ·  » ξοπε κσς λιμναιμ  » δεμετε ναιμλιμμ· κσς γμσ κσς πςιξτ ασγ §Υσεςπυςηε Òεσυμτ ΣυνναςωΊ§¬°δ¬°δ¬°δ ασγ §Τοταμ ξυνβες οζ υσες σμοτσΊ §¬°° μδψ δατε«¶ μδα δατε«· κσς πςξυνβ κσς πςιξτ δβ γς¬γς ασγ §Τοταμ ξυνβες οζ υσεςσ πυςηεδΊ §¬°° μδψ δατε«Έ μδα δατε«Ή κσς πςξυνβ κσς πςιξτ δβ γς¬γς ασγ §Τοταμ ξυνβες οζ ζςεε σμοτσΊ §¬°° μδψ δατε«±° μδα δατε«±± κσς πςξυνβ κσς ηετγς κνπ σταςτ» γθεγλ το σεε ιζ υσες σθουμδ βε λιμμεδγθλιμμ μδα θδςβυζ«Έµ » ηετ πθοξε―λιμμ στατυσ αξδ £¤·ζ γνπ £§ª§  » ξεφες λιμμΏ βερ γθλιμμ΄  » ωεπ γνπ £§¥§  » υσε σπεγιαμ γθεγλΏ βερ γθλιμμ²  » ωεπ μδα δατε«±  » γθεγλ δατεΏ οςα δατε βερ γθλιμμ΄  » ξοπε μδα θδςβυζ«Ή± » γθεγλ θιηθª αξδ £¥°°°±±±±± γνπ δατε«±  βγγ γθλιμμ³  » λιμμ θιν βξε γθλιμμ΄  » αμμ ισ χεμμ μδα θδςβυζ«Ή° » γθεγλ μοχ γνπ δατε βγσ γθλιμμ΄  » τθεω αςε ολ βγγ γθλιμμ³  » λιμμ τθενγθλιμμ² μδα δατε«³  » γθεγλ δατεΏ οςα δατε«² βερ γθλιμμ΄  » ξοπε μδα θδςβυζ«Ή± » γθεγλ θιηθª αξδ £¥°±±±±±±± γνπ δατε«³ βγγ γθλιμμ³  » λιμμ τθε συγλες βξε γθλιμμ΄  » αμμ ισ χεμμ μδα θδςβυζ«Ή° » γθεγλ μοχ γνπ δατε«² βγσ γθλιμμ΄  » τθεω αςε ολγθλιμμ³ σεγ   » λιμμ υσες ςτσγθλιμμ΄ γμγ   » σαφε υσες ςτσ» πςιξτ δατα οξ υσες το λιμμπςψυσες μδψ £·  » γμεας βοττον οζ σγςεεξ κσς γμεοσ μδα £·  » φταβ ³ στα γφ μδα £§£§  » αδδ ιξ πςεζιψ κσς γουτ μδψ δατε«¶ μδα δατε«·  » γονπυτε υσες­ξυνβες τεψτ κσς πςξυνβ πθα μδα £§ § κσς γουτ  » νοφε οφες ± σπαγε πμα μδψ £Όθδςβυζ » ποιξτ ατ υσες ξανε μδα £Ύθδςβυζ μδω £Ά¬Ά  » δισπμαω ζιςστ ξανε κσς πςστς πθα μδα £§ § κσς γουτ  » νοφε οφες ± σπαγε πμα μδω £γς«±²Έ κσς πςστς  » δισπμαω μαστ ξανε κσς γμεομ  » γμεας το εξδ μδω £γς«±²Έ  »σλιπ μοχεςγασε ξανε κσς σλιπστς κσς πςιξτ δβ γς ασγ §οζ §¬°° μδω £γς«±²Έ κσς πςστς  » πςιξτ χθεςε ζςον κσς γμεομ κσς πςιξτ δβ γς¬γς ασγ §Μαστ Δατε ΟξΊ §¬°° μδψ θδςβυζ«Ή° μδα θδςβυζ«Ή± σεγ κνπ πςδατε  » δισπμαω δατε» ιξπυτ α δατειξπδατε μδα £Έ  » σετ μεξητθ στα ναψμεξ μδα £¥±±±°°°°° στα ιξπνοδε μδα γθ στα δατε«µιξπδατ± κσς ιξπμξ  » ηετ δατε μδα μξβυζ γνπ £γς  » βμαξλ μιξεΏ βξε ιξπδατ²  » ωεπ μδψ £°  » ςετυςξ ξο δατε τψα ςτσιξπδατ² μδα £°  » ςεσετ σγςατγθ στα τενπ³ μδψ £Όμξβυζ μδα £Ύμξβυζ   » ηετ νοξτθ οζ ωεας κσς ξυνιξ τψα μσς α ςος τενπ³ μσς α ςος τενπ³  » δο μοχ μσς α ςος τενπ³ στα τενπ³«±  » σαφε θιηθ μδψ £Όμξβυζ«¶ μδα £Ύμξβυζ«¶ » ηετ τθε ωεας κσς ξυνιξ τψα αξδ £¥°±±±±±±± ασμ α οςα τενπ³«±  » αδδ ιξ νοξτθ πθα μδψ £Όμξβυζ«³ μδα £Ύμξβυζ«³  » ηετ δαω οζ νοξτθ κσς ξυνιξ τψα αξδ £¥°°°±±±±± οςα τενπ³ ταψ   » ςεστοςε δαω οςα τενπ³«± βξε ιξπδατ΄ πμα» κσς βεμμ  » ηιφε τθεν χαςξιξηιξπδατ³ μδα γθ γνπ δατε«µ βερ ιξπδατ±  » ηετ ξεχ ιξπυτ μδα £βσ  » βαγλυπ ± σπαγε κσς γουτ κνπ ιξπδατ³  » σταςτ αηαιξιξπδατ΄ πμα ςτσδατε δσ ±²» πςιξτ τθε δατε το τθε γοξσομεπςδατε στψ τενπ  » σαφε δατε στα τενπ«± οςα τενπ  » γθεγλ ζος δατε βξε πςδατε² βγσ πςδατε±  » σθοχ ομδ υσες κσς πςιξτ ασγ ®Ϋ Δοξ§τ Πυςηε έ®¬°° ςτσπςδατε± κσς πςιξτ ασγ §°°―°°―°°§¬°° ςτσπςδατε² τψα   » ηετ νοστ οζ νοξτθ μσς τενπ«±   » σθιζτ μαστ βιτ ιξτο γαςςω ςος α  » νοφε βιτ ιξ μσς α μσς α μσς α μσς α  » ηετ ιξτο ποσιτιοξ κσς βιξδεγΈ κσς δεγπςξΈ  » πςιξτ ιτ ουτ μδα £§―§ κσς γουτ μδα τενπ αξδ £¥°°°±±±±± » τςαξσματε δαω κσς βιξδεγΈ κσς δεγπςξΈ  » πςιξτ ουτ μδα £§―§ κσς γουτ μδα τενπ«± αξδ £¥°±±±±±±± κσς βιξδεγΈ   » ζαμμ τθςουηθ το πςιξτ ωεας» πςιξτ ουτ α Έ βιτ ξυνβεςδεγπςξΈ κσς γουτ τψα κνπ γουτ» δεμετε α υσεςσ ναιμδεμναιμ στψ τενπ  » σαφε υσες ξυνβες στα τενπ«± μδα £Όσοςτβυζ­¤±°° στα τενπ²  » ποιξτ το ταβμλ οζ ναιμ το λιμμ μδα £Ύσοςτβυζ­¤±°° στα τενπ²«± μδω £­±δεμνμ² ιξω   » δο α πςε­ιξγ βξε ª«΄ ιξγ τενπ²«± μδα ¨τενπ²©¬ω ιξω οςα ¨τενπ²©¬ω » γθεγλ ζος εξδ οζ ταβμε βξε δεμνμ²  » ξοπε δεω μδα τενπ  » σαφε υσες ξυνβες στα ¨τενπ²©¬ω ιξω μδα τενπ«± στα ¨τενπ²©¬ω ιξω   » ηο το ξεψτ ταβμε εξτςω βξε ª«΄ ιξγ τενπ²«± μδα £°  » σαφε εξδ οζ ταβμε ναςλες στα ¨τενπ²©¬ω ιξω στα ¨τενπ²©¬ω ςτσ» λιμμ τθε υσεςσ ναιμλιμναιμ ςτσ   » ςενοφε ζος ξοχ κσς γμσ κσς πςιξτ ασγ §Πμεασε ςενοφε τθε σωστεν δισλ αξδ§¬°δ¬°δ ασγ §ςεπμαγε ιτ χιτθ τθε ναιμ δισλ® Αμμ§¬°δ¬°δ ασγ §δεμετεδ υσεςσ χιμμ τθεξ θαφε τθεις§¬°δ¬°δ ασγ §ναιμ ναςλεδ ζος δεμετιοξ®§¬°°λιμνμ± κσς ηετγς μδα £΄ κσς μοησπεγ βγσ λιμνμ± κσς γμσ κσς πςιξτ δβ ±¬Έ¬±° ασγ §Δεμετιξη Ναιμ§¬°° μδψ £Όναιμ μδα £Ύναιμ μδω £°  » οπεξ τθε ναιμ ζιμε κσς οπεξ μδψ £Όμξβυζ μδα £Ύμξβυζ μδω £Έ  » ςεαδ ιξ θεαδες κσς ςδπαςτ μδα £Όσοςτβυζ » ποιξτ το βυζζες στα τενπ² μδα £Ύσοςτβυζ στα τενπ²«±λιμνμ² μδω £° μδα ¨τενπ²©¬ω » ηετ υσες £ το λιμμ στα τενπ ιξω μδα ¨τενπ²©¬ω στα τενπ«± οςα τενπ βερ λιμνμ΄  » χε αςε δοξε μδα τενπ«± ασμ τενπ ςομ α ασμ τενπ  » γονπυτε δις βμογλ ςομ α ασμ τενπ ςομ α στα τενπ«± κσς ποσδις  » ποσιτιοξ το βμογλ μδψ £Όθδςβυζ μδα £Ύθδςβυζ μδω £±²Έ  » ςεαδ ιξ δις βμογλ κσς ςδπαςτ μδα τενπ μσς α  » ηετ οζζσετ ιξτο βμογλ ταψ μδα θδςβυζ«²¬ψ » δο τθεω θαφε ναιμΏ οςα θδςβυζ«³¬ψ βερ λιμνμ³  » ξοπε μδα £°  » σετ ναςλες το ±°²΄ στα θδςβυζ¬ψ μδα £΄ στα θδςβυζ«±¬ψ μδα τενπ«±  » ποσιτιοξ βαγλ το βμογλ κσς ποσδις μδψ £Όθδςβυζ μδα £Ύθδςβυζ μδω £±²Έ  » χςιτε ουτ διςεγτοςω βμογλ κσς χςπαςτλιμνμ³ ιξγ τενπ²  » ιξγ το ξεψτ υσες £ ιξγ τενπ² βξε ª«΄ ιξγ τενπ²«± κνπ λιμνμ²λιμνμ΄ κνπ γμοσε  » γμοσε ναιμ αξδ ςετυςξ» ποσιτιοξ ιξτο τθε διςεγτοςωποσδις μδα μξβυζ  » ηετ £ οζ βιτ­ναπσ στα τενπ³ μδα £±¶ μσς τενπ³ ςος α  » ποσιτιοξ ιξτο δις ζιμε ταψ μδα τενπ³ μδω £° κνπ σετναςλ» ξανε οζ τθε ναιμ ζιμε οξ δισλναιμ δβ ΄ ασγ §ΝΑΙΜ§
+********************************
+*                              *
+*   Config - Userlist Purge    *
+*                              *
+********************************
+
+*-------------------------------
+* Date: 01/16/90 - LTW
+*-------------------------------
+
+usrkill ldx #<start
+ lda #>start  ; setup esc handler
+ jsr escape
+
+ jsr TopBox
+ jsr print
+ db 1,3,6
+ asc '- Purge Users From System -',00
+
+ jsr cls
+ jsr print
+ db 1,7,0
+ asc 'Purge a group of users:',0d,0d
+ asc 'Delete normal users who have not called',0d
+ asc 'since: (Use [RETURN] to kill no users)',0d,0d
+ asc '[XX/XX/XX] ? ',00
+
+ jsr inpdate  ; input the date threshold
+ stx date
+ sta date+1
+
+ jsr print
+ db cr
+ asc 'Delete special users (those users who',0d
+ asc 'have a percent (%) sign in their phone',0d
+ asc 'number) who have not called since:',0d,0d
+ asc '[XX/XX/XX] ? ',00
+
+ lda #-1  ; set default to auto-mode
+ sta date+4
+
+ jsr inpdate
+ stx date+2
+ sta date+3
+ ora date
+ ora date+1
+ ora date+2
+ beq kill1  ; just do stat check
+
+ jsr print
+ db cr
+ asc 'Wait for Sysop verification before',0d
+ asc 'killing old users or kill automatic-',0d
+ asc 'ally? Wait for verification [Y/N] ? ',00
+
+ jsr inpyn
+ lda #0
+ ror a  ; save auto/manual status
+ sta date+4
+
+kill1 jsr cls
+ jsr print
+ asc 'Userpurge parameter summary:',0d,0d,0d
+ asc 'Kill normal before: ',00
+ ldx date
+ lda date+1  ; get normal date
+ clc
+ jsr prdate  ; show date
+
+ jsr print
+ db cr,cr
+ asc 'Kill special before: ',00
+ ldx date+2
+ lda date+3  ; print date
+ clc
+ jsr prdate
+
+ jsr print
+ db cr,cr
+ asc 'Program mode: ',00
+ bit date+4
+ bpl kill2  ; manual mode
+
+ jsr print
+ asc 'Automatic',00
+ jmp kill3
+
+kill2 jsr print
+ asc 'Manual',00
+
+kill3 jsr print
+ db cr,cr,cr
+ asc 'Is the above correct [Y/N] ? ',00
+ jsr inpyn
+ bcc kill3a
+ jmp usrkill  ; try it again
+
+kill3a jsr print
+ db cr,cr
+ asc 'Make sure both the config disk',0d
+ asc 'and the system disk are on-line.',00
+kill3b jsr getcr
+ lda #1
+ jsr logspec
+ bcs kill3b  ; opps, try again
+
+ jsr cls
+ jsr print
+ asc 'Userpurge: Running...',00
+
+ ldx #<usrname
+ lda #>usrname ; open user file
+ jsr movname
+ jsr open
+
+ ldx #<hdrbuf
+ lda #>hdrbuf ; gobble record 0
+ ldy #128
+ jsr rdpart
+
+ ldx #1
+ stx date+6  ; start at user #1
+ dex
+ stx date+7
+ stx date+8  ; reset killed count
+ stx date+9
+ stx date+10  ; reset open slots
+ stx date+11
+ stx sortbuf  ; reset delmail list
+ stx sortbuf+1
+
+kill4 lda $c000  ; check for keypress
+ cmp #esc+128 ; did they hit esc?
+ bne kill4k  ; nope
+
+ sta $c010  ; clear key
+ jmp kill6  ; end the userlist
+
+kill4k lda #0
+ sta hdrbuf
+ ldx #<hdrbuf
+ lda #>hdrbuf ; read a user record
+ ldy #128
+ jsr rdpart
+ bcs kill4z  ; no more data
+
+ lda hdrbuf  ; is there real data?
+ bne kill4x  ; yep
+
+kill4z jmp kill6  ; finish up userpurge
+
+kill4x lda hdrbuf
+ and #$7f
+ cmp #' '  ; good user?
+ bcc kill4b  ; nope, killed
+
+ jsr prxuser  ; show user
+ jsr chkill  ; kill user?
+ bcc kill5  ; all is well, keep user
+
+ bit date+4  ; check kill mode
+ bmi kill4a  ; do auto-kill
+
+ jsr print
+ db cr,cr
+ asc 'Kill this user [Y/N] ? ',00
+ jsr inpyn
+ bcs kill5  ; nope
+
+kill4a jsr print
+ db cr,cr
+ asc 'User Killed',00
+
+ lda #0  ; do small delay
+ jsr $fca8
+ lda #cr  ; delete user
+ sta hdrbuf
+
+ ldx date+6  ; position to user record
+ lda date+7
+ jsr gouser
+
+ ldx #<hdrbuf
+ lda #>hdrbuf ; write out new user record
+ ldy #128
+ jsr wrpart
+
+ ldx date+6
+ lda date+7
+ jsr delmail  ; kill the users mail (mark for kill)
+
+ inc date+8
+ bne kill4b  ; inc number of deleted users
+ inc date+9
+
+kill4b inc date+10  ; inc number of open slots
+ bne kill5
+ inc date+11
+
+kill5 inc date+6  ; loop and do next user
+ bne kill5a
+ inc date+7
+kill5a jmp kill4
+
+kill6 jsr close  ; we are done
+ lda sortbuf
+ ora sortbuf+1 ; delete mail?
+ beq kill7  ; nope
+
+ jsr kilmail  ; delete mail
+
+kill7 jsr cls
+ jsr print
+ asc 'Userpurge Result Summary:',0d,0d,0d
+ asc 'Total number of user slots: ',00
+ ldx date+6
+ lda date+7
+ jsr prnumb
+
+ jsr print
+ db cr,cr
+ asc 'Total number of users purged: ',00
+ ldx date+8
+ lda date+9
+ jsr prnumb
+
+ jsr print
+ db cr,cr
+ asc 'Total number of free slots: ',00
+ ldx date+10
+ lda date+11
+ jsr prnumb
+
+ jsr getcr
+ jmp start
+
+
+; check to see if user should be killed
+chkill lda hdrbuf+85 ; get phone/kill status
+ and #$7f
+ cmp #'*'  ; never kill?
+ beq chkill4  ; yep
+
+ cmp #'%'  ; use special check?
+ beq chkill2  ; yep
+
+ lda date+1  ; check date?
+ ora date
+ beq chkill4  ; nope
+
+ lda hdrbuf+91 ; check high
+* and #%00011111
+ cmp date+1 
+ bcc chkill3  ; kill him
+ bne chkill4  ; all is well
+
+ lda hdrbuf+90 ; check low
+ cmp date
+ bcs chkill4  ; they are ok
+ bcc chkill3  ; kill them
+
+chkill2 lda date+3  ; check date?
+ ora date+2
+ beq chkill4  ; nope
+
+ lda hdrbuf+91 ; check high
+* and #%01111111
+ cmp date+3
+ bcc chkill3  ; kill the sucker
+ bne chkill4  ; all is well
+
+ lda hdrbuf+90 ; check low
+ cmp date+2
+ bcs chkill4  ; they are ok
+
+chkill3 sec   ; kill user
+ rts
+
+chkill4 clc   ; save user
+ rts
+
+
+; print data on user to kill
+prxuser ldx #7  ; clear bottom of screen
+ jsr cleos
+ lda #7  ; vtab 3
+ sta cv
+
+ lda #'#'  ; add in prefix
+ jsr cout
+
+ ldx date+6
+ lda date+7  ; compute user-number text
+ jsr prnumb
+
+ pha
+ lda #' '
+ jsr cout  ; move over 1 space
+ pla
+
+ ldx #<hdrbuf ; point at user name
+ lda #>hdrbuf
+ ldy #","  ; display first name
+ jsr prstr
+
+ pha
+ lda #' '
+ jsr cout  ; move over 1 space
+ pla
+
+ ldy #cr+128
+ jsr prstr  ; display last name
+ jsr cleol  ; clear to end
+
+ ldy #cr+128  ;skip lowercase name
+ jsr skipstr
+
+ jsr print
+ db cr
+ asc 'of ',00
+
+ ldy #cr+128
+ jsr prstr  ; print where from
+ jsr cleol
+
+ jsr print
+ db cr,cr
+ asc 'Last Date On: ',00
+
+ ldx hdrbuf+90
+ lda hdrbuf+91
+ sec
+ jmp prdate  ; display date
+
+
+; input a date
+inpdate lda #8  ; set length
+ sta maxlen
+ lda #%11100000
+ sta inpmode
+ lda ch
+ sta date+5
+
+inpdat1 jsr inpln  ; get date
+ lda lnbuf
+ cmp #cr  ; blank line?
+ bne inpdat2  ; yep
+
+ ldx #0  ; return no date
+ txa
+ rts
+
+inpdat2 lda #0  ; reset scratch
+ sta temp3
+
+ ldx #<lnbuf
+ lda #>lnbuf   ; get month of year
+ jsr numin
+ txa
+ lsr a
+ ror temp3
+ lsr a
+ ror temp3  ; do low
+ lsr a
+ ror temp3
+ sta temp3+1  ; save high
+
+ ldx #<lnbuf+6
+ lda #>lnbuf+6 ; get the year
+ jsr numin
+ txa
+ and #%01111111
+ asl a
+ ora temp3+1  ; add in month
+
+ pha
+ ldx #<lnbuf+3
+ lda #>lnbuf+3  ; get day of month
+ jsr numin
+ txa
+ and #%00011111
+ ora temp3
+ tax   ; restore day
+ ora temp3+1
+ bne inpdat4
+
+ pla
+; jsr bell  ; give them warning
+inpdat3 lda ch
+ cmp date+5
+ beq inpdat1  ; get new input
+
+ lda #bs  ; backup 1 space
+ jsr cout
+ jmp inpdat3  ; start again
+
+inpdat4 pla
+ rts
+
+date ds 12
+
+
+; print the date to the console
+prdate stx temp  ; save date
+ sta temp+1
+ ora temp  ; check for date
+ bne prdate2
+ bcs prdate1  ; show old user
+
+ jsr print
+ asc .[ Don't Purge ].,00
+ rts
+
+prdate1 jsr print
+ asc '00/00/00',00
+ rts
+
+prdate2 txa   ; get most of month
+ lsr temp+1   ; shift last bit into carry
+ ror a  ; move bit in
+ lsr a
+ lsr a
+ lsr a
+ lsr a  ; get into position
+ jsr bindec8
+ jsr decprn8  ; print it out
+ lda #'/'
+ jsr cout
+
+ lda temp
+ and #%00011111 ; translate day
+ jsr bindec8
+ jsr decprn8  ; print out
+ lda #'/'
+ jsr cout
+
+ lda temp+1
+ and #%01111111
+ jsr bindec8
+   ; fall through to print year
+; print out a 8 bit number
+decprn8 jsr cout
+ txa
+ jmp cout
+
+
+; delete a users mail
+delmail stx temp  ; save user number
+ sta temp+1
+
+ lda #<sortbuf-$100
+ sta temp2  ; point to tablk of mail to kill
+ lda #>sortbuf-$100
+ sta temp2+1
+ ldy #-1
+
+delml2 iny   ; do a pre-inc
+ bne *+4
+ inc temp2+1
+ lda (temp2),y
+ iny
+ ora (temp2),y ; check for end of table
+ bne delml2  ; nope
+
+ dey
+ lda temp  ; save user number
+ sta (temp2),y
+ iny
+ lda temp+1
+ sta (temp2),y
+ iny   ; go to next table entry
+ bne *+4
+ inc temp2+1
+
+ lda #0  ; save end of table marker
+ sta (temp2),y
+ iny
+ sta (temp2),y
+ rts
+
+
+; kill the users mail
+kilmail rts   ; remove for now
+
+ jsr cls
+ jsr print
+ asc 'Please remove the system disk and',0d,0d
+ asc 'replace it with the mail disk. All',0d,0d
+ asc 'deleted users will then have their',0d,0d
+ asc 'mail marked for deletion.',00
+
+kilml1 jsr getcr
+ lda #4
+ jsr logspec
+ bcs kilml1
+
+ jsr cls
+ jsr print
+ db 1,8,10
+ asc 'Deleting Mail',00
+
+ ldx #<mail
+ lda #>mail
+ ldy #0  ; open the mail file
+ jsr open
+
+ ldx #<lnbuf
+ lda #>lnbuf
+ ldy #8  ; read in header
+ jsr rdpart
+
+ lda #<sortbuf ; point to buffer
+ sta temp2
+ lda #>sortbuf
+ sta temp2+1
+
+kilml2 ldy #0
+ lda (temp2),y ; get user # to kill
+ sta temp
+ iny
+ lda (temp2),y
+ sta temp+1
+ ora temp
+ beq kilml4  ; we are done
+
+ lda temp+1
+ asl temp
+ rol a
+ asl temp  ; compute dir block
+ rol a
+ asl temp
+ rol a
+ sta temp+1
+ jsr posdir  ; position to block
+
+ ldx #<hdrbuf
+ lda #>hdrbuf
+ ldy #128  ; read in dir block
+ jsr rdpart
+
+ lda temp
+ lsr a  ; get offset into block
+ tax
+ lda hdrbuf+2,x ; do they have mail?
+ ora hdrbuf+3,x
+ beq kilml3  ; nope
+
+ lda #0  ; set marker to 1024
+ sta hdrbuf,x
+ lda #4
+ sta hdrbuf+1,x
+
+ lda temp+1  ; position back to block
+ jsr posdir
+
+ ldx #<hdrbuf
+ lda #>hdrbuf
+ ldy #128  ; write out directory block
+ jsr wrpart
+
+kilml3 inc temp2  ; inc to next user #
+ inc temp2
+ bne *+4
+ inc temp2+1
+ jmp kilml2
+
+kilml4 jmp close  ; close mail and return
+
+
+; position into the directory
+posdir lda lnbuf  ; get # of bit-maps
+ sta temp3
+ lda #16
+ lsr temp3
+ ror a  ; position into dir file
+ tax
+ lda temp3
+ ldy #0
+ jmp setmark
+
+
+; name of the mail file on disk
+mail db 4
+ asc 'MAIL'

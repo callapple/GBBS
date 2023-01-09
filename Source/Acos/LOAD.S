@@ -1,1 +1,712 @@
- ΠΑΗªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª     ΑΓΟΣ®ΟΒΚ ­ Μοαδ          ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª ΔΑΤΕª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­ ςεαδ νοδυμε ιξτο νενοςω ­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΜΔίΝΟΔ ΜΔΑ £° »ςεσετ ξο γαςςιες αξδ οξ εςςος φεγτοςσ ΣΤΑ ΞΟΓΔΖΜΗ ΣΤΑ ΟΞΕÒÒΖΜΗ ΜΔΨ ΖΜΞΑΝΕ ΓΠΨ £±΄ ΒΗΕ ΜΔίΝΟΔ± »τοο μοξη΅ ΙΞΨ ΜΔΑ £§®§ ΣΤΑ ΖΜΞΑΝΕ¬Ψ »ταγλ οξ §®Γ§ εψτεξσιοξ ΙΞΨ ΜΔΑ £§Γ§ ΣΤΑ ΖΜΞΑΝΕ¬Ψ ΣΤΨ ΖΜΞΑΝΕ ΚΣÒ ΟΠΕΞ »ισ τθεςε α γονπιμεδ νοδυμεΏ ΒΓΣ ΜΔίΝΟΔ² »ξοπε ΜΔΑ ΝΣΗÒΕΖ »σαφε νση ςεζξυν ΠΘΑ ΜΔΑ ÒΕΖΞΥΝ ΣΤΑ ΝΣΗÒΕΖ ΜΔΑ £° ΣΤΑ ΜΞΒΥΖ«±΄° ΣΤΑ ΜΞΒΥΖ«±΄± ΜΔΨ £ΌΜΞΒΥΖ«±²Έ »ςεαδ μαβεμ ιξζο ΜΔΑ £ΎΜΞΒΥΖ«±²Έ ΜΔΩ £± ΚΣÒ ÒΔΒΜΛ ΜΔΑ ΜΞΒΥΖ«±΄² »σετ υπ φαςιαβμε σπαγε ΣΤΑ ΜΟΝΕΝ ΜΔΑ ΜΞΒΥΖ«±΄³ ΣΤΑ ΜΟΝΕΝ«± ΜΔΨ £ΌΓΟΔΕΞΔ »ςεαδ ιξ ςεστ οζ νοδυμε ΜΔΑ £ΎΓΟΔΕΞΔ ΜΔΩ £±²Έ ΚΣÒ ÒΔΒΜΛ ΚΣÒ ΓΜΟΣΕ ΠΜΑ ΣΤΑ ΝΣΗÒΕΖ »ςεστοςε νση ςεζξυν ΜΔΑ ΜΞΒΥΖ«±΄° »ισ ζιςστ ι―δ βωτε ολΏ ΓΝΠ £§Η§ ΒΞΕ ΜΔίΝΟΔ² »ξοπε¬ γονπιμε ΜΔΑ ΜΞΒΥΖ«±΄± »ισ σεγοξδ ι―δ βωτε ολΏ ΓΝΠ £§Σ§ ΒΞΕ ΜΔίΝΟΔ² »ξοπε¬ γονπιμε ÒΤΣ »αξδ χε αςε δοξε΅ΜΔίΝΟΔ± ΜΔΨ £βαδζξ »ιμμεηαμ ζιμεξανε ¨Ύ±΄ γθαςσ© ΚΝΠ ΒΑΔΕÒÒΜΔίΝΟΔ² ΜΔΨ ΖΜΞΑΝΕ »γθαξηε ξανε βαγλ το σουςγε ΜΔΑ £§Σ§ ΣΤΑ ΖΜΞΑΝΕ¬Ψ »§®Σ§ ζος σουςγε ΚΣÒ ΟΠΕΞ »οπεξ σουςγε ζιμε ΒΓΣ ΜΔίΝΟΔ± »οππσ¬ πςοβμεν ΚΣÒ ÒΔΜΞΣΕΤ »σετυπ ζος ςδμιξε ΜΔΑ £ΎΓΟΔΕΞΔ »ποιξτ το νοδυμε σπαγε ΣΤΑ ΤΕΝΠ«± ΜΔΑ £ΌΓΟΔΕΞΔ ΣΤΑ ΤΕΝΠ ΜΔΑ £° ΣΤΑ ΜΒΜΞΥΝ ΣΤΑ ΣΩΝΞΥΝ »ϊεςο σων―μβμ γουξτεςσ ΜΔΨ £γονπιμε± ΚΣÒ ΠÒΓΝΠΝΣΗ ΚΝΠ ΊΣΤΑΤΕ°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ πασσ ± ­­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΊΚΣΤΑΤΕ΄ ΚΝΠ ΣΤΑΤΕ΄ΊΣΤΑΤΕ°Α ΜΔΑ ΜΞΓΞΤ »χασ ιτ κυστ α βμαξλ γςΏ ΓΝΠ £² ΒΜΤ ΊΣΤΑΤΕ° »ωεπ ΜΔΑ £γθαιξ² »ιξσεςτ α γθαιξ γονναξδ ΜΔΩ £° ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΙΞΓΤΝΠΊΣΤΑΤΕ° ΜΔΑ £° ΣΤΑ ΜΞΓΞΤ »ςεσετ μιξε ποιξτες ΚΣÒ ÒΔΜΙΞΕ »ηετ μιξε οζ ιξπυτ ΒΓΣ ΊΚΣΤΑΤΕ΄ »εοζΏ ΜΔΑ ΜΞΒΥΖ »ηοββμε υπ γοννεξτσ ΓΝΠ £§»§ ΒΕΡ ΊΣΤΑΤΕ° ΚΣÒ ΤΣΤίΑΜΖ »γθεγλ ζος μαβεμ ΒΓΣ ΊΣΤΑΤΕ± ΚΣÒ ΑΔΔίΣΩΝ »αδδ το σωνβομ ταβμε ΒΓΓ ΊΣΤΑΤΕ° ΜΔΨ £σωνζυμμ »ηιφε εςςος ΚΣÒ ΣΘΕÒÒ ΚΝΠ ΊΣΤΑΤΕ°ΊΚΣΤΑΤΕ³ ΣΤΑ ΤΕΝΠ² »σαφε δεμινιτες γθας ζος τεψτ―βμογλ νοδε ΜΔΑ £ΆΆΆ ΚΝΠ ΊΣΤΑΤΕ³ΑΊΣΤΑΤΕ²Α ΚΣÒ ΑΔΔίΜΒΜ »αδδ μαβεμ το ταβμε ΚΝΠ ΊΣΤΑΤΕ±ΊΣΤΑΤΕ±Α ΙΞΓ ΜΞΓΞΤ »αδφαξγε ποιξτεςΊΣΤΑΤΕ± ΜΔΩ ΜΞΓΞΤ ΜΔΑ ΜΞΒΥΖ¬Ω ΓΝΠ £γς ΒΕΡ ΊΣΤΑΤΕ°Α »ιζ εξδ οζ μιξε ΓΝΠ £§΅§ ΒΜΤ ΊΣΤΑΤΕ±Α »ηο υξτιμ α μεηαμ γθαςαγτες οζ σονε σοςτ ΓΝΠ £§Ά§ ΒΕΡ ΊΚΣΤΑΤΕ³ »γθεγλ ζος τεψτ νοδε ΓΝΠ £§§§ ΒΕΡ ΊΚΣΤΑΤΕ³ »γθεγλ ζος βμογλ τεψτ νοδε ΚΣÒ ΤΟΛΕΞ »ηετ τολεξ τωπε ΓΝΠ £ΆΪΆ«± ΒΗΕ ΊΣΤΑΤΕ±Σ ΓΝΠ £ΆΑΆ ΒΗΕ ΊΣΤΑΤΕ±Δ »γθεγλ ζος φαςιαβμε ΜΔΩ £° ΣΤΩ ΜΣΤΤΟΛΊΣΤΑΤΕ±Σ ΓΝΠ £πυβμιγ ΒΕΡ ΊΣΤΑΤΕ²Α »ισ ιτ πυβμιγΏ¬ ωεπ ΜΔΩ £° »σαφε ιξτο νενοςω ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΙΞΓΤΝΠ ΓΝΠ £ηοτο ΒΕΡ ΊΣΤΑΤΕ² ΓΝΠ £πυσθ ΒΕΡ ΊΣΤΑΤΕ² ΓΝΠ £ηοσυβ ΒΞΕ ΊΣΤΑΤΕ±Ϊ »γθεγλ το σεε ιζ μαβεμ ζομμοχσ ΜΔΩ ΜΣΤΤΟΛ ΓΠΩ £γμεας ΒΞΕ ΊΣΤΑΤΕ²ΊΣΤΑΤΕ±Ϊ ΣΤΑ ΜΣΤΤΟΛ ΚΝΠ ΊΣΤΑΤΕ±ΊΣΤΑΤΕ±Γ ΚΝΠ ΊΣΤΑΤΕ°Α »ςεσταςτ χιτθ στατε °ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ θαξδμε φαςιαβμεσ ­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΊΣΤΑΤΕ±Δ ΣΤΑ ΤΕΝΠ² »σαφε ζιςστ γθας οζ ξανε ΜΔΨ ΜΞΓΞΤ ΜΔΑ ΜΞΒΥΖ¬Ψ »σεε ιζ τθεςε ισ αξοτθες ΚΣÒ ΤΣΤίΑΜΖ ΒΓΓ ΊΣΤΑΤΕ±Ε ΚΣÒ ΤΣΤίΞΥΝ ΒΓΓ ΊΣΤΑΤΕ±Ε ΔΕΓ ΜΞΓΞΤ »ξοπε¬ οξμω ± διηιτ ΜΔΑ £§ §ΊΣΤΑΤΕ±Ε ΣΤΑ ΤΕΝΠ²«± »σαφε σεγοξδ γθας οζ ξανε ΜΔΨ ΜΞΓΞΤΊΣΤΑΤΕ±Ζ ΙΞΨ ΜΔΑ ΜΞΒΥΖ¬Ψ »ηοββμε ςεστ οζ ξανε ΚΣÒ ΤΣΤίΑΜΖ ΒΓΓ ΊΣΤΑΤΕ±Ζ ΚΣÒ ΤΣΤίΞΥΝ ΒΓΓ ΊΣΤΑΤΕ±Ζ ΣΤΨ ΜΞΓΞΤ ΜΔΨ £ξυνβες ΓΝΠ £§¤§ ΒΞΕ ΊΣΤΑΤΕ±Η »ζιξδ ουτ χθετθες ιτ ισ α ξυνβες ΙΞΓ ΜΞΓΞΤ »ος α στςιξη ΜΔΨ £στςιξηΊΣΤΑΤΕ±Η ΜΔΩ £° »σαφε φαςιαβμε τωπε ΤΨΑ ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΙΞΓΤΝΠ ΜΔΑ ΤΕΝΠ² ΚΣÒ ΓΟΞΦ ΣΤΑ ¨ΤΕΝΠ©¬Ω »σαφε ζιςστ γθας ΚΣÒ ΙΞΓΤΝΠ ΜΔΑ ΤΕΝΠ²«± ΚΣÒ ΓΟΞΦ ΣΤΑ ¨ΤΕΝΠ©¬Ω »σαφε σεγοξδ γθας ΚΣÒ ΙΞΓΤΝΠ ΚΝΠ ΊΣΤΑΤΕ±ΊΣΤΑΤΕ² ΜΔΩ £° ΜΔΑ £ΜΑΒΕΜ ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΙΞΓΤΝΠ ΚΣÒ ΑΔΔίΜΒΜ »αδδ μαβεμ το ταβμε ² ΒΓΣ ΊΣΤΑΤΕ±Γ ΜΔΩ £° ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΙΞΓΤΝΠ ΚΝΠ ΊΣΤΑΤΕ±ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª δο τεψτ―βμογλ νοδε πςογεσσιξηª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΊΣΤΑΤΕ³ ΜΔΩ ΜΞΓΞΤ ΜΔΑ ΜΞΒΥΖ¬Ω »ηετ βωτε ΓΝΠ ΤΕΝΠ² ΒΕΡ ΊΣΤΑΤΕ³Γ »γθεγλ ζος δεμινιτες¬ χεςε δοξεΊΣΤΑΤΕ³Α ΓΝΠ £γς ΒΞΕ ΊΣΤΑΤΕ³Β »εξδ οζ μιξεΏ¬ ξοπε ΜΔΑ ΤΕΝΠ² »ιξ τεψτ ος βμογλΏ ΓΝΠ £§Ά§ ΒΕΡ ΊΣΤΑΤΕ³Δ »τεψτ¬ δο ζιξισθ υπ ΜΔΑ £γς »στιγλ ιξ γς ιζ ιξ βμογλΊΣΤΑΤΕ³Β ΜΔΩ £° »σαφε βωτε ΣΤΑ ¨ΤΕΝΠ©¬Ω ΠΘΑ ΚΣÒ ΙΞΓΤΝΠ ΙΞΓ ΜΞΓΞΤ ΠΜΑ ΓΝΠ £γς ΒΞΕ ΊΣΤΑΤΕ³ »γθεγλ βωτε ΜΔΑ £° ΣΤΑ ΜΞΓΞΤ »ςεσετ μιξε γουξτες ΚΣÒ ÒΔΜΙΞΕ »ςεαδ ξεχ μιξε ΒΓΓ ΊΣΤΑΤΕ³ »λεεπ γθεγλιξη ΜΔΨ £ξορυοτε »Υξγμοσεδ ρυοτε ατ ΕΟΖ ΚΣÒ ΕÒÒΟÒ »πςιξτ ιξ τεψτ χαςξιξη ΚΝΠ ΣΤΑΤΕ΄ »χεςε δοξεΊΣΤΑΤΕ³Γ ΙΞΓ ΜΞΓΞΤΊΣΤΑΤΕ³Δ ΜΔΑ £ΆΆΆ ΜΔΩ £° »σαφε μαστ ρυοτε ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΙΞΓΤΝΠ ΚΝΠ ΊΣΤΑΤΕ±ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ πασσ ² ­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΣΤΑΤΕ΄ ΜΔΨ £γονπιμε² ΚΣÒ ΠÒΓΝΠΝΣΗ ΜΔΩ £° ΜΔΑ £εξδ ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΙΞΓΤΝΠ ΜΔΑ £ΡΥΙΤ σαφε εξδ ποιξτες ΣΤΑ ¨ΤΕΝΠ©¬Ω ΚΣÒ ΓΜΟΣΕ ΜΔΑ £° »ναςλ εξδ οζ ταβμεσ ΜΔΨ ΣΩΝΞΥΝ ΣΤΑ ΣΩΝΤΑΒ¬Ψ ΜΔΨ ΜΒΜΞΥΝ ΣΤΑ ΜΒΜΤΑΒ¬Ψ ΚΣÒ ΙΞΓΤΝΠ ΜΔΑ ΤΕΝΠ »σετυπ ποιξτεςσ το φαςιαβμε σπαγε ΣΤΑ ΜΟΝΕΝ ΣΤΑ ΜΞΒΥΖ«±΄² »σαφε ζος γονπιμεδ σεηνεξτσ ΜΔΑ ΤΕΝΠ«± ΣΤΑ ΜΞΒΥΖ«±΄³ ΣΤΑ ΜΟΝΕΝ«± ΜΔΨ £±²Έ »σταςτ γουξτεςσ ΜΔΩ £°ΊΣΤΑΤΕ΄Α ΜΔΑ £ΎΜΒΜΤΑΒ ΣΤΑ ΊΣΤΑΤΕ΄Β«² »γθαξηεσ γοδεΊΣΤΑΤΕ΄Β ΜΔΑ ΜΒΜΤΑΒ¬Ω »ªªª σεμζ­νοδιζιεδ ΙΞΓ ΊΣΤΑΤΕ΄Β«² »γθαξηεσ γοδε ΣΤΑ ΜΞΒΥΖ¬Ψ »σαφε δατα ΙΞΨ ΤΨΑ ΑΞΔ £¥°°°°±°°° »θαφε χε δοξε Έ ωετΏ ΒΕΡ ΊΣΤΑΤΕ΄Β »ξοπε ΙΞΩ »ςεαδω ζος ξεψτ ΓΜΓ ΤΨΑ ΑΔΓ £Έ »αδδ ιτ υπ® ΤΑΨ ΒΓΓ ΊΣΤΑΤΕ΄Α »λεεπ ηοιξη ΜΔΨ £­± »σταςτ ατ βεηιξξιξη οζ ταβμεΊΣΤΑΤΕµ ΙΞΨ ΜΔΑ ΜΒΜΤΑΒ¬Ψ ΒΞΕ ΊΣΤΑΤΕµΔ ΚΝΠ ΊΣΤΑΤΕ¶ »αςε χε δοξεΏΊΣΤΑΤΕµΔ ΜΔΩ £­±ΊΣΤΑΤΕµΖ ΙΞΩ ΜΔΑ ΣΩΝΤΑΒ¬Ω ΒΞΕ ΊΣΤΑΤΕµΓ »λεεπ γθεγλιξη ΤΨΑ ΠΘΑ ΜΔΨ £μβμξζ »μαβεμ ξοτ ζουξδ ΚΣÒ ΕÒÒΟÒ ΠΜΑ ΤΑΨ ΜΔΑ £ΎΜΒΜΤΑΒ ΣΤΑ ΊΣΤΑΤΕµΕ«² »σταςτ ατ ζιςστ γθας ΜΔΑ £ΆΫΆ ΚΣÒ ΓΟΥΤΊΣΤΑΤΕµΕ ΜΔΑ ΜΒΜΤΑΒ¬Ψ ΠΘΠ ΚΣÒ ΓΟΥΤ »πςιξτ γθας ΙΞΓ ΊΣΤΑΤΕµΕ«² »ηετ ςεαδω ζος ξεψτ ΠΜΠ ΒΠΜ ΊΣΤΑΤΕµΕ »μοοπ υξτιμ ζιξισθεδ ΜΔΑ £ΆέΆ ΚΣÒ ΓΟΥΤ ΜΔΑ £ΌΞΟΜΒΜΔΕΖ ΣΤΑ ΜΒΜΤΑΒ¬Ψ »πυτ βαδ βςαξγθ εςςος ςουτιξε ΜΔΑ £ΎΞΟΜΒΜΔΕΖ ΣΤΑ ΜΒΜΤΑΒ«Μ±¬Ψ »αδδςεσσ ιξτο ταβμε ΚΝΠ ΊΣΤΑΤΕµΊΣΤΑΤΕµΑ ΚΝΠ ΊΣΤΑΤΕµΖ »εψτεξσιοξ ζςον βςαξγθεσΊΣΤΑΤΕµΓ ΜΔΑ ΜΒΜΤΑΒ¬Ψ »γθεγλ εαγθ βωτε ΓΝΠ ΣΩΝΤΑΒ¬Ω ΒΞΕ ΊΣΤΑΤΕµΑ »οππσ¬ ξο νατγθ ΑΣΜ ΒΓΣ ΊΣΤΑΤΕµΒ »θιηθ βιτ νεαξσ χεςε δοξε ΜΔΑ ΜΒΜΤΑΒ«Μ±¬Ψ ΓΝΠ ΣΩΝΤΑΒ«Μ±¬Ω ΒΞΕ ΊΣΤΑΤΕµΑ ΑΣΜ ΒΓΣ ΊΣΤΑΤΕµΒ ΜΔΑ ΜΒΜΤΑΒ«Μ²¬Ψ ΓΝΠ ΣΩΝΤΑΒ«Μ²¬Ω ΒΞΕ ΊΣΤΑΤΕµΑ ΑΣΜ ΒΓΣ ΊΣΤΑΤΕµΒ ΜΔΑ ΜΒΜΤΑΒ«Μ³¬Ψ ΓΝΠ ΣΩΝΤΑΒ«Μ³¬Ω ΒΞΕ ΊΣΤΑΤΕµΑ ΑΣΜ ΒΓΣ ΊΣΤΑΤΕµΒ ΜΔΑ ΜΒΜΤΑΒ«Μ΄¬Ψ ΓΝΠ ΣΩΝΤΑΒ«Μ΄¬Ω ΒΞΕ ΊΣΤΑΤΕµΑ ΑΣΜ ΒΓΣ ΊΣΤΑΤΕµΒ ΜΔΑ ΜΒΜΤΑΒ«Μµ¬Ψ ΓΝΠ ΣΩΝΤΑΒ«Μµ¬Ω ΒΞΕ ΊΣΤΑΤΕµΑ ΑΣΜ ΒΓΣ ΊΣΤΑΤΕµΒ ΜΔΑ ΜΒΜΤΑΒ«Μ¶¬Ψ ΓΝΠ ΣΩΝΤΑΒ«Μ¶¬Ω ΒΞΕ ΊΣΤΑΤΕµΑ ΑΣΜ ΒΓΣ ΊΣΤΑΤΕµΒ ΜΔΑ ΜΒΜΤΑΒ«Μ·¬Ψ ΓΝΠ ΣΩΝΤΑΒ«Μ·¬Ω ΒΞΕ ΊΣΤΑΤΕµΑΊΣΤΑΤΕµΒ ΜΔΑ ΣΩΝΤΑΒ«ΜΈ¬Ω ΣΤΑ ΜΒΜΤΑΒ¬Ψ »γοπω μαβεμ αδδςεσσ ΜΔΑ ΣΩΝΤΑΒ«ΜΉ¬Ω ΣΤΑ ΜΒΜΤΑΒ«Μ±¬Ψ ΚΝΠ ΊΣΤΑΤΕµª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ πασσ ³ ­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΊΣΤΑΤΕ¶ ΜΔΨ £±²Έ »σταςτ γουξτεςσ ΜΔΩ £°ΊΣΤΑΤΕ¶Δ ΜΔΑ ΜΒΜΤΑΒ¬Ω ΣΤΑ ΜΞΒΥΖ«Έ¬Ψ »νοφε ζιςστ αδδςεσσ ΜΔΑ ΜΒΜΤΑΒ«Μ±¬Ω ΣΤΑ ΜΞΒΥΖ«Ή¬Ψ ΙΞΩ »ιξγ αδδςεσσ £ ΓΜΓ ΤΨΑ ΑΔΓ £±¶ »νοφε δεστ ποιξτες ΤΑΨ ΒΓΓ ΊΣΤΑΤΕ¶Δ »νοςε δατα¬ λεεπ ηοιξη ΜΔΑ £ΌΓΟΔΕΞΔ »ποιξτ ατ νοδυμε ΣΤΑ ΤΕΝΠ ΜΔΑ £ΎΓΟΔΕΞΔ ΣΤΑ ΤΕΝΠ«±ΊΣΤΑΤΕ¶Α ΜΔΩ £° ΜΔΑ ¨ΤΕΝΠ©¬Ω ΓΝΠ £ΡΥΙΤ ΒΕΡ ΊΣΤΑΤΕ¶Γ ΓΝΠ £ΜΑΒΕΜ ΒΞΕ ΊΣΤΑΤΕ¶Β ΙΞΩ ΜΔΑ ¨ΤΕΝΠ©¬Ω »ηετ μαβεμ αδδςεσσ ΤΑΨ »αξδ ιξσεςτ ιξτο γοδε ΜΔΑ ΜΒΜΤΑΒ«Μ±¬Ψ ΣΤΑ ¨ΤΕΝΠ©¬Ω ΔΕΩ ΜΔΑ ΜΒΜΤΑΒ¬Ψ ΣΤΑ ¨ΤΕΝΠ©¬Ω ΙΞΓ ΤΕΝΠ ΒΞΕ ΊΣΤΑΤΕ¶Β »ιξγ ποιξτεςσ ΙΞΓ ΤΕΝΠ«±ΊΣΤΑΤΕ¶Β ΙΞΓ ΤΕΝΠ ΒΞΕ ΊΣΤΑΤΕ¶Α ΙΞΓ ΤΕΝΠ«± ΒΞΕ ΊΣΤΑΤΕ¶ΑΊΣΤΑΤΕ¶Γ ΜΔΨ ΖΜΞΑΝΕ »αδδ §®Γ§ βαγλ οξ ΜΔΑ £§Γ§ ΣΤΑ ΖΜΞΑΝΕ¬Ψ ΜΔΩ £α²οβκ »υσες δεζιξεδ ζιμετωπε ΜΔΑ £Ύγονζιμε ΜΔΨ £Όγονζιμε ΚΣÒ ΓÒΕΑΤΕ ΚΣÒ ΟΠΕΞ ΒΓΣ ΊΣΤΑΤΕ¶Ε »ιζ πςοβμεν ΜΔΑ ΝΣΗÒΕΖ »σαφε νση ςεζξυν ΠΘΑ ΜΔΑ ÒΕΖΞΥΝ ΣΤΑ ΝΣΗÒΕΖ »αξδ ςεπμαγε χιτθ γυςςεξτ ΜΔΑ £§Η§ »σαφε ι―δ βωτεσ ΣΤΑ ΜΞΒΥΖ«±΄° ΜΔΑ £§Σ§ ΣΤΑ ΜΞΒΥΖ«±΄± ΜΔΨ £ΌΜΞΒΥΖ«±²Έ »χςιτε ουτ θεαδες ¨χιτθ μαβεμ ιξζο© ΜΔΑ £ΎΜΞΒΥΖ«±²Έ ΜΔΩ £± ΚΣÒ ΧÒΒΜΛ ΣΕΓ ΜΔΑ ΜΟΝΕΝ«± ΣΒΓ £ΎΓΟΔΕΞΔ »ζιξδ £ οζ παηεσ ιξ νοδυμε ΑΣΜ »νυμτιπμω βω ² ιξτο βμογλσ ΤΑΩ ΙΞΩ »αδδ ιξ εψτςα παηε κυστ ιξ γασε ΙΞΩ ΜΔΨ £ΌΓΟΔΕΞΔ »χςιτε ςεστ οζ δατα ΜΔΑ £ΎΓΟΔΕΞΔ ΚΣÒ ΧÒΒΜΛ ΚΣÒ ΓΜΟΣΕ »ζιξισθ υπ ΠΜΑ ΣΤΑ ΝΣΗÒΕΖ »αξδ ςεστοςεΊΣΤΑΤΕ¶Ε ΜΔΨ £γονπχιπε ΚΣÒ ΠÒΓΝΠΝΣΗ ΚΝΠ ΠΑΥΣΕ »χεςε δοξεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ αδδ το σωνβομ ταβμε ­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΑΔΔίΣΩΝ ΜΔΩ £­±ΊΑΔΔίΣΝ² ΙΞΩ »ζιξδ μαστ γθας οζ μαβεμ ΜΔΑ ΜΞΒΥΖ¬Ω ΚΣÒ ΓΟΞΦ »γοξφεςτ το υππεςγασε ΣΤΑ ΜΞΒΥΖ¬Ω ΓΝΠ £§ § ΒΕΡ ΊΑΔΔίΣΝ³ ΓΝΠ £§Ί§ ΒΕΡ ΊΑΔΔίΣΝ³ ΓΝΠ £γς ΒΞΕ ΊΑΔΔίΣΝ²ΊΑΔΔίΣΝ³ ΔΕΩ ΜΔΑ ΜΞΒΥΖ¬Ω »σετ θιηθ­βιτ οζ μαστ γθας ΟÒΑ £θιβιτ ΣΤΑ ΜΞΒΥΖ¬Ω ΜΔΑ ΜΞΒΥΖ«· »ναςλ μαστ γθας κυστ ιξ γασε ΟÒΑ £θιβιτ ΣΤΑ ΜΞΒΥΖ«· ΜΔΨ ΣΩΝΞΥΝ »γθεγλ ζος οφεςζμοχ ΓΠΨ £¤ΖΖ ΒΕΡ ΊΑΔΔίΣΝ¶ ΜΔΑ £ΎΣΩΝΤΑΒ ΣΤΑ ΊΑΔΔίΣΝµ«² »σετ υπ ταβμε ΜΔΩ £­±ΊΑΔΔίΣΝ΄ ΙΞΩ ΜΔΑ ΜΞΒΥΖ¬Ω ΠΘΠΊΑΔΔίΣΝµ ΣΤΑ ΣΩΝΤΑΒ¬Ψ »ªªª σεμζ­νοδιζιεδ ªªª ΙΞΓ ΊΑΔΔίΣΝµ«² ΠΜΠ ΒΠΜ ΊΑΔΔίΣΝ΄ »μοοπ υξτιμ δοξε ΜΔΑ ΤΕΝΠ ΣΤΑ ΣΩΝΤΑΒ«ΜΈ¬Ψ »σαφε μαβεμ μογατιοξ ΜΔΑ ΤΕΝΠ«± ΣΤΑ ΣΩΝΤΑΒ«ΜΉ¬Ψ ΙΞΓ ΣΩΝΞΥΝ »αδδ το ταβμε ΓΜΓ ÒΤΣΊΑΔΔίΣΝ¶ ΣΕΓ »σωνβομ ταβεμ οφεςζμοχ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ αδδ το μαβεμ ταβμε ­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΑΔΔίΜ±² ΜΔΨ £ξοσωνβομ ΚΣÒ ΣΘΕÒÒ »νισσιξη σωνβομ ΣΕΓ ÒΤΣΑΔΔίΜΒΜ ΜΔΩ ΜΞΓΞΤ ΔΕΩΊΑΔΔίΜΒ± ΙΞΩ ΜΔΑ ΜΞΒΥΖ¬Ω ΓΝΠ £γς ΒΕΡ ΑΔΔίΜ±² »εομΏ¬ οππσ¬ εςςος ΚΣÒ ΤΣΤίΑΜΖ »ηοββμε υξτιμ α μεηαμ γθας ΒΓΣ ΊΑΔΔίΜΒ± ΣΤΩ ΜΞΓΞΤ »σαφε ξεχ μογατιοξ ΔΕΩ ΜΔΨ £ΈΊΑΔΔίΜΒ² ΙΞΩ »ζιξδ μαστ γθας οζ μαβεμ ΜΔΑ ΜΞΒΥΖ¬Ω ΓΝΠ £§ § ΒΕΡ ΊΑΔΔίΜΒ³ ΓΝΠ £§Ί§ ΒΕΡ ΊΑΔΔίΜΒ³ ΓΝΠ £γς ΒΕΡ ΊΑΔΔίΜΒ³ ΚΣÒ ΓΟΞΦ »γοξφεςτ το υππες ΔΕΨ ΒΞΕ ΊΑΔΔίΜ²Α ΟÒΑ £θιβιτ »αμχαωσ ζιψ Έτθ γθαςΊΑΔΔίΜ²Α ΣΤΑ ΜΞΒΥΖ¬Ω ΚΝΠ ΊΑΔΔίΜΒ²ΊΑΔΔίΜΒ³ ΣΤΩ ΜΞΓΞΤ² »σαφε ξεχ μιξε γουξτ ΔΕΩ ΜΔΑ ΜΞΒΥΖ¬Ω »σετ θιηθ­βιτ οζ μαστ γθας ΟÒΑ £θιβιτ ΣΤΑ ΜΞΒΥΖ¬Ω ΜΔΨ ΜΒΜΞΥΝ »γθεγλ ζος οφεςζμοχ ΓΠΨ £¤ΖΖ ΒΕΡ ΑΔΔίΜ±± ΜΔΨ £­± »ηο τθςουηθ αξδ αδδ το ταβμεΊΑΔΔίΜΒ΄ ΙΞΨ ΓΠΨ ΜΒΜΞΥΝ ΒΕΡ ΊΑΔΔίΜΒ· »αδδ ξεχ μαβεμ ΜΔΑ £ΎΜΒΜΤΑΒ ΣΤΑ ΊΑΔΔίΜΒ¶«² »σετ υπ ταβμε ΜΔΩ ΜΞΓΞΤΊΑΔΔίΜΒµ ΜΔΑ ΜΞΒΥΖ¬ΩΊΑΔΔίΜΒ¶ ΓΝΠ ΜΒΜΤΑΒ¬Ψ »ªªª σεμζ­νοδιζιεδ ªªª ΠΘΠ ΙΞΓ ΊΑΔΔίΜΒ¶«² ΙΞΩ ΠΜΠ ΒΞΕ ΊΑΔΔίΜΒ΄ ΑΣΜ »πυτ θιηθ­βιτ ιξτο γαςςω ΒΓΓ ΊΑΔΔίΜΒµ »μοοπ υξτιμ δοξε ΒΓΣ ΊΑΔΔίΜ±° »χε αμςεαδω θαφε μαβεμ ιξ ταβμεΊΑΔΔίΜΒ· ΜΔΑ £ΎΜΒΜΤΑΒ ΣΤΑ ΊΑΔΔίΜΒΉ«² »νοφε μαβεμ ιξτο ξεχ μογατιοξ ΜΔΩ ΜΞΓΞΤΊΑΔΔίΜΒΈ ΜΔΑ ΜΞΒΥΖ¬Ω ΠΘΠΊΑΔΔίΜΒΉ ΣΤΑ ΜΒΜΤΑΒ¬Ψ ΙΞΓ ΊΑΔΔίΜΒΉ«² ΙΞΩ ΠΜΠ ΒΠΜ ΊΑΔΔίΜΒΈ ΙΞΓ ΜΒΜΞΥΝ »ιξγςενεξτ γουξτΊΑΔΔίΜ±° ΜΔΩ ΜΞΓΞΤ² ΣΤΩ ΜΞΓΞΤ ΤΨΑ »ςετυςξ μαβεμ ξυνβες ΓΜΓ ÒΤΣΑΔΔίΜ±± ΜΔΨ £σωνζυμμ ΚΣÒ ΣΘΕÒÒ ΣΕΓ »σωνβομ ταβεμ οφεςζμοχ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ ηετ α τολεξ ­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΤΟΛΕΞ ΜΔΑ £ΌΣΩΝΤΨΤ »ποιξτ ατ τολεξ ταβμε ΣΤΑ ΤΕΝΠ² ΜΔΑ £ΎΣΩΝΤΨΤ ΣΤΑ ΤΕΝΠ²«± ΜΔΩ £° ΣΤΩ ΤΟΛΤΩΠ »σταςτ τολεξ γουξτ ΒΕΡ ΊΤΟΛΕΞ΄ »τςω αξδ ζιξδ α νατγθΊΤΟΛΕΞ± ΙΞΓ ΤΟΛΤΩΠ »τςω ξεψτ τολεξΊΤΟΛΕΞ² ΜΔΑ ¨ΤΕΝΠ²©¬Ω ΙΞΩ ΒΞΕ ΊΤΟΛΕΞ³ ΙΞΓ ΤΕΝΠ²«±ΊΤΟΛΕΞ³ ΑΣΜ »πυτ ιξτο γαςςω ΒΓΓ ΊΤΟΛΕΞ² »χασ θιηθ βιτ σετΏΊΤΟΛΕΞ΄ ΜΔΨ ΜΞΓΞΤ »ηετ μιξε οζζσετΊΤΟΛΕΞµ ΜΔΑ ¨ΤΕΝΠ²©¬Ω »χεςε δοξε¬ ξο νατγθ ΒΕΡ ΊΤΟΛΕΞ· ΣΤΑ ΠÒΞ ΜΔΑ ΜΞΒΥΖ¬Ψ »γθεγλ ιτ ΚΣÒ ΓΟΞΦ ΕΟÒ ΠÒΞ »νατγθ βιτσ ΑΣΜ »νοφε βιτ · ΒΞΕ ΊΤΟΛΕΞ± »ξο νατγθ ΙΞΨ »ιξγςενεξτ ποιξτεςσ ΙΞΩ ΒΞΕ ΊΤΟΛΕΞ¶ ΙΞΓ ΤΕΝΠ²«±ΊΤΟΛΕΞ¶ ΒΓΓ ΊΤΟΛΕΞµ »λεεπ γθεγλιξη ΣΤΨ ΜΞΓΞΤ »σαφε ξεχ τεψτ ποιξτες ΜΔΑ ΤΟΛΤΩΠ ÒΤΣΊΤΟΛΕΞ· ΜΔΑ ΜΞΒΥΖ¬Ψ »ηετ γθας ΙΞΓ ΜΞΓΞΤ ΚΣÒ ΓΟΞΦ »ναλε υππεςγασε ΟÒΑ £θιβιτ ÒΤΣ
+ PAG
+********************************
+*                              *
+*     ACOS.OBJ - Load          *
+*                              *
+********************************
+ DATE
+*-------------------------------
+* -- read module into memory --
+*-------------------------------
+
+LD_MOD LDA #0 ;reset no carrier and on error vectors
+ STA NOCDFLG
+ STA ONERRFLG
+
+ LDX FLNAME
+ CPX #14
+ BGE LD_MOD1 ;too long!
+
+ INX
+ LDA #'.'
+ STA FLNAME,X ;tack on '.C' extension
+ INX
+ LDA #'C'
+ STA FLNAME,X
+ STX FLNAME
+
+ JSR OPEN ;is there a compiled module?
+ BCS LD_MOD2 ;nope
+
+ LDA MSGREF ;save msg refnum
+ PHA
+ LDA REFNUM
+ STA MSGREF
+
+ LDA #0
+ STA LNBUF+140
+ STA LNBUF+141
+
+ LDX #<LNBUF+128 ;read label info
+ LDA #>LNBUF+128
+ LDY #1
+ JSR RDBLK
+
+ LDA LNBUF+142 ;set up variable space
+ STA LOMEM
+ LDA LNBUF+143
+ STA LOMEM+1
+
+ LDX #<CODEND ;read in rest of module
+ LDA #>CODEND
+ LDY #128
+ JSR RDBLK
+
+ JSR CLOSE
+ PLA
+ STA MSGREF ;restore msg refnum
+
+ LDA LNBUF+140 ;is first i/d byte ok?
+ CMP #'G'
+ BNE LD_MOD2 ;nope, compile
+
+ LDA LNBUF+141 ;is second i/d byte ok?
+ CMP #'S'
+ BNE LD_MOD2 ;nope, compile
+
+ RTS ;and we are done!
+
+LD_MOD1 LDX #badfn ;illegal filename (>14 chars)
+ JMP BADERR
+
+LD_MOD2 LDX FLNAME ;change name back to source
+ LDA #'S'
+ STA FLNAME,X ;'.S' for source
+ JSR OPEN ;open source file
+ BCS LD_MOD1 ;opps, problem
+
+ JSR RDLNSET ;setup for rdline
+ LDA #>CODEND ;point to module space
+ STA TEMP+1
+ LDA #<CODEND
+ STA TEMP
+ LDA #0
+ STA LBLNUM
+ STA SYMNUM ;zero sym/lbl counters
+ LDX #compile1
+ JSR PRCMPMSG
+ JMP :STATE0
+
+*-------------------------------
+* ----- pass 1 ------
+*-------------------------------
+
+:JSTATE4 JMP STATE4
+
+:STATE0A LDA LNCNT ;was it just a blank cr?
+ CMP #2
+ BLT :STATE0 ;yep
+
+ LDA #chain2 ;insert a chain command
+ LDY #0
+ STA (TEMP),Y
+ JSR INCTMP
+
+:STATE0 LDA #0
+ STA LNCNT ;reset line pointer
+ JSR RDLINE ;get line of input
+ BCS :JSTATE4 ;eof?
+
+ LDA LNBUF ;gobble up comments
+ CMP #';'
+ BEQ :STATE0
+
+ JSR TST_ALF ;check for label
+ BCS :STATE1
+
+ JSR ADD_SYM ;add to symbol table
+ BCC :STATE0
+
+ LDX #symfull ;give error
+ JSR SHERR
+ JMP :STATE0
+
+:JSTATE3 STA TEMP2 ;save delimiter char for text/block mode
+ LDA #"""
+ JMP :STATE3A
+
+:STATE2A JSR ADD_LBL ;add label to table
+ JMP :STATE1
+
+:STATE1A INC LNCNT ;advance pointer
+:STATE1 LDY LNCNT
+ LDA LNBUF,Y
+ CMP #cr
+ BEQ :STATE0A ;if end of line
+
+ CMP #'!'
+ BLT :STATE1A ;go until a legal character of some sort
+
+ CMP #'"'
+ BEQ :JSTATE3 ;check for text mode
+
+ CMP #'''
+ BEQ :JSTATE3 ;check for block text mode
+
+ JSR TOKEN ;get token type
+ CMP #"Z"+1
+ BGE :STATE1S
+
+ CMP #"A"
+ BGE :STATE1D ;check for variable
+
+ LDY #0
+ STY LSTTOK
+
+:STATE1S CMP #public
+ BEQ :STATE2A ;is it public?, yep
+
+ LDY #0 ;save into memory
+ STA (TEMP),Y
+ JSR INCTMP
+
+ CMP #goto
+ BEQ :STATE2
+ CMP #push
+ BEQ :STATE2
+
+ CMP #gosub
+ BNE :STATE1Z ;check to see if label follows
+
+ LDY LSTTOK
+ CPY #clear
+ BNE :STATE2
+
+:STATE1Z STA LSTTOK
+ JMP :STATE1
+
+:STATE1C JMP :STATE0A ;restart with state 0
+
+*-------------------------------
+* ----- handle variables -----
+*-------------------------------
+
+:STATE1D STA TEMP2 ;save first char of name
+ LDX LNCNT
+ LDA LNBUF,X ;see if there is another
+ JSR TST_ALF
+ BCC :STATE1E
+
+ JSR TST_NUM
+ BCC :STATE1E
+
+ DEC LNCNT ;nope, only 1 digit
+ LDA #' '
+:STATE1E STA TEMP2+1 ;save second char of name
+
+ LDX LNCNT
+:STATE1F INX
+ LDA LNBUF,X ;gobble rest of name
+ JSR TST_ALF
+ BCC :STATE1F
+
+ JSR TST_NUM
+ BCC :STATE1F
+
+ STX LNCNT
+ LDX #number
+ CMP #'$'
+ BNE :STATE1G ;find out whether it is a number
+
+ INC LNCNT ;or a string
+ LDX #string
+
+:STATE1G LDY #0 ;save variable type
+ TXA
+ STA (TEMP),Y
+ JSR INCTMP
+
+ LDA TEMP2
+ JSR CONV
+ STA (TEMP),Y ;save first char
+ JSR INCTMP
+
+ LDA TEMP2+1
+ JSR CONV
+ STA (TEMP),Y ;save second char
+ JSR INCTMP
+ JMP :STATE1
+
+:STATE2 LDY #0
+ LDA #LABEL
+ STA (TEMP),Y
+ JSR INCTMP
+
+ JSR ADD_LBL ;add label to table 2
+ BCS :STATE1C
+
+ LDY #0
+ STA (TEMP),Y
+ JSR INCTMP
+ JMP :STATE1
+
+*-------------------------------
+* do text/block mode processing
+*-------------------------------
+
+:STATE3 LDY LNCNT
+ LDA LNBUF,Y ;get byte
+ CMP TEMP2
+ BEQ :STATE3C ;check for delimiter, were done
+
+:STATE3A CMP #cr
+ BNE :STATE3B ;end of line?, nope
+
+ LDA TEMP2 ;in text or block?
+ CMP #'"'
+ BEQ :STATE3D ;text, do finish up
+
+ LDA #cr ;stick in cr if in block
+:STATE3B LDY #0 ;save byte
+ STA (TEMP),Y
+ PHA
+ JSR INCTMP
+ INC LNCNT
+ PLA
+ CMP #cr
+ BNE :STATE3 ;check byte
+
+ LDA #0
+ STA LNCNT ;reset line counter
+ JSR RDLINE ;read new line
+
+ BCC :STATE3 ;keep checking
+
+ LDX #noquote ;Unclosed quote at EOF
+ JSR ERROR ;print in text warning
+ JMP STATE4 ;were done
+
+:STATE3C INC LNCNT
+:STATE3D LDA #"""
+ LDY #0 ;save last quote
+ STA (TEMP),Y
+ JSR INCTMP
+ JMP :STATE1
+
+*-------------------------------
+* ----- pass 2 -----
+*-------------------------------
+
+STATE4 LDX #compile2
+ JSR PRCMPMSG
+
+ LDY #0
+ LDA #end
+ STA (TEMP),Y
+ JSR INCTMP
+
+ LDA #QUIT save end pointer
+ STA (TEMP),Y
+ JSR CLOSE
+
+ LDA #0 ;mark end of tables
+ LDX SYMNUM
+ STA SYMTAB,X
+ LDX LBLNUM
+ STA LBLTAB,X
+
+ JSR INCTMP
+
+ LDA TEMP ;setup pointers to variable space
+ STA LOMEM
+ STA LNBUF+142 ;save for compiled segments
+ LDA TEMP+1
+ STA LNBUF+143
+ STA LOMEM+1
+
+ LDX #128 ;start counters
+ LDY #0
+:STATE4A LDA #>LBLTAB
+ STA :STATE4B+2 ;changes code
+:STATE4B LDA LBLTAB,Y ;*** self-modified
+ INC :STATE4B+2 ;changes code
+ STA LNBUF,X ;save data
+ INX
+ TXA
+ AND #%00001000 ;have we done 8 yet?
+ BEQ :STATE4B ;nope
+
+ INY ;ready for next
+ CLC
+ TXA
+ ADC #8 ;add it up.
+ TAX
+ BCC :STATE4A ;keep going
+
+ LDX #-1 ;start at beginning of table
+:STATE5 INX
+ LDA LBLTAB,X
+ BNE :STATE5D
+ JMP :STATE6 ;are we done?
+
+:STATE5D LDY #-1
+:STATE5F INY
+ LDA SYMTAB,Y
+ BNE :STATE5C ;keep checking
+
+ TXA
+ PHA
+ LDX #lblnf ;label not found
+ JSR ERROR
+ PLA
+ TAX
+ LDA #>LBLTAB
+ STA :STATE5E+2 ;start at first char
+ LDA #"["
+ JSR COUT
+
+:STATE5E LDA LBLTAB,X
+ PHP
+ JSR COUT ;print char
+ INC :STATE5E+2 ;get ready for next
+ PLP
+ BPL :STATE5E ;loop until finished
+
+ LDA #"]"
+ JSR COUT
+ LDA #<NOLBLDEF
+ STA LBLTAB,X ;put bad branch error routine
+ LDA #>NOLBLDEF
+ STA LBLTAB+L1,X ;address into table
+ JMP :STATE5
+
+:STATE5A JMP :STATE5F ;extension from branches
+
+:STATE5C LDA LBLTAB,X ;check each byte
+ CMP SYMTAB,Y
+ BNE :STATE5A ;opps, no match
+ ASL
+ BCS :STATE5B ;high bit means were done
+
+ LDA LBLTAB+L1,X
+ CMP SYMTAB+L1,Y
+ BNE :STATE5A
+ ASL
+ BCS :STATE5B
+
+ LDA LBLTAB+L2,X
+ CMP SYMTAB+L2,Y
+ BNE :STATE5A
+ ASL
+ BCS :STATE5B
+
+ LDA LBLTAB+L3,X
+ CMP SYMTAB+L3,Y
+ BNE :STATE5A
+ ASL
+ BCS :STATE5B
+
+ LDA LBLTAB+L4,X
+ CMP SYMTAB+L4,Y
+ BNE :STATE5A
+ ASL
+ BCS :STATE5B
+
+ LDA LBLTAB+L5,X
+ CMP SYMTAB+L5,Y
+ BNE :STATE5A
+ ASL
+ BCS :STATE5B
+
+ LDA LBLTAB+L6,X
+ CMP SYMTAB+L6,Y
+ BNE :STATE5A
+ ASL
+ BCS :STATE5B
+
+ LDA LBLTAB+L7,X
+ CMP SYMTAB+L7,Y
+ BNE :STATE5A
+
+:STATE5B LDA SYMTAB+L8,Y
+ STA LBLTAB,X ;copy label address
+ LDA SYMTAB+L9,Y
+ STA LBLTAB+L1,X
+ JMP :STATE5
+
+*-------------------------------
+* ----- pass 3 -----
+*-------------------------------
+
+:STATE6 LDX #128 ;start counters
+ LDY #0
+:STATE6D LDA LBLTAB,Y
+ STA LNBUF+8,X ;move first address
+ LDA LBLTAB+L1,Y
+ STA LNBUF+9,X
+ INY ;inc address #
+ CLC
+ TXA
+ ADC #16 ;move dest pointer
+ TAX
+ BCC :STATE6D ;more data, keep going
+
+ LDA #<CODEND ;point at module
+ STA TEMP
+ LDA #>CODEND
+ STA TEMP+1
+
+:STATE6A LDY #0
+ LDA (TEMP),Y
+ CMP #QUIT
+ BEQ :STATE6C
+
+ CMP #LABEL
+ BNE :STATE6B
+
+ INY
+ LDA (TEMP),Y ;get label address
+ TAX ;and insert into code
+ LDA LBLTAB+L1,X
+ STA (TEMP),Y
+ DEY
+ LDA LBLTAB,X
+ STA (TEMP),Y
+
+ INC TEMP
+ BNE :STATE6B ;inc pointers
+ INC TEMP+1
+
+:STATE6B INC TEMP
+ BNE :STATE6A
+ INC TEMP+1
+ BNE :STATE6A
+
+:STATE6C LDX FLNAME ;add '.C' back on
+ LDA #'C'
+ STA FLNAME,X
+
+ LDY #a2obj ;user defined filetype
+ LDA #>comfile
+ LDX #<comfile
+ JSR CREATE
+
+ JSR OPEN
+ BCS :STATE6E ;if problem
+
+ LDA MSGREF ;save msg refnum
+ PHA
+ LDA REFNUM
+ STA MSGREF ;and replace with current
+
+ LDA #'G' ;save i/d bytes
+ STA LNBUF+140
+ LDA #'S'
+ STA LNBUF+141
+
+ LDX #<LNBUF+128 ;write out header (with label info)
+ LDA #>LNBUF+128
+ LDY #1
+ JSR WRBLK
+
+ SEC
+ LDA LOMEM+1
+ SBC #>CODEND ;find # of pages in module
+ ASL ;multiply by 2 into blocks
+ TAY
+ INY ;add in extra page just in case
+ INY
+
+ LDX #<CODEND ;write rest of data
+ LDA #>CODEND
+ JSR WRBLK
+
+ JSR CLOSE ;finish up
+ PLA
+ STA MSGREF ;and restore
+
+:STATE6E LDX #compwipe
+ JSR PRCMPMSG
+ JMP PAUSE ;were done
+
+*-------------------------------
+* ----- add to symbol table ----
+*-------------------------------
+
+ADD_SYM LDY #-1
+:ADD_SM2 INY ;find last char of label
+ LDA LNBUF,Y
+ JSR CONV ;convert to uppercase
+ STA LNBUF,Y
+ CMP #' '
+ BEQ :ADD_SM3
+ CMP #':'
+ BEQ :ADD_SM3
+ CMP #cr
+ BNE :ADD_SM2
+
+:ADD_SM3 DEY
+ LDA LNBUF,Y ;set high-bit of last char
+ ORA #hibit
+ STA LNBUF,Y
+
+ LDA LNBUF+7 ;mark last char just in case
+ ORA #hibit
+ STA LNBUF+7
+
+ LDX SYMNUM ;check for overflow
+ CPX #$FF
+ BEQ :ADD_SM6
+
+ LDA #>SYMTAB
+ STA :ADD_SM5+2 ;set up table
+ LDY #-1
+:ADD_SM4 INY
+ LDA LNBUF,Y
+ PHP
+:ADD_SM5 STA SYMTAB,X ;*** self-modified ***
+ INC :ADD_SM5+2
+ PLP
+ BPL :ADD_SM4 ;loop until done
+
+ LDA TEMP
+ STA SYMTAB+L8,X ;save label location
+ LDA TEMP+1
+ STA SYMTAB+L9,X
+ INC SYMNUM ;add to table
+ CLC
+ RTS
+
+:ADD_SM6 SEC ;symbol tabel overflow
+ RTS
+
+*-------------------------------
+* ----- add to label table -----
+*-------------------------------
+
+ADD_L12 LDX #nosymbol
+ JSR SHERR ;missing symbol
+ SEC
+ RTS
+
+ADD_LBL LDY LNCNT
+ DEY
+:ADD_LB1 INY
+ LDA LNBUF,Y
+ CMP #cr
+ BEQ ADD_L12 ;eol?, opps, error
+
+ JSR TST_ALF ;gobble until a legal char
+ BCS :ADD_LB1
+ STY LNCNT ;save new location
+ DEY
+ LDX #8
+:ADD_LB2 INY ;find last char of label
+ LDA LNBUF,Y
+ CMP #' '
+ BEQ :ADD_LB3
+ CMP #':'
+ BEQ :ADD_LB3
+ CMP #cr
+ BEQ :ADD_LB3
+
+ JSR CONV ;convert to upper
+ DEX
+ BNE :ADD_L2A
+
+ ORA #hibit ;always fix 8th char
+:ADD_L2A STA LNBUF,Y
+ JMP :ADD_LB2
+
+:ADD_LB3 STY LNCNT2 ;save new line count
+ DEY
+ LDA LNBUF,Y ;set high-bit of last char
+ ORA #hibit
+ STA LNBUF,Y
+
+ LDX LBLNUM ;check for overflow
+ CPX #$FF
+ BEQ ADD_L11
+
+ LDX #-1 ;go through and add to table
+:ADD_LB4 INX
+ CPX LBLNUM
+ BEQ :ADD_LB7 ;add new label
+
+ LDA #>LBLTAB
+ STA :ADD_LB6+2 ;set up table
+
+ LDY LNCNT
+:ADD_LB5 LDA LNBUF,Y
+:ADD_LB6 CMP LBLTAB,X ;*** self-modified ***
+ PHP
+ INC :ADD_LB6+2
+ INY
+ PLP
+ BNE :ADD_LB4
+
+ ASL ;put high-bit into carry
+ BCC :ADD_LB5 ;loop until done
+ BCS :ADD_L10 ;we already have label in table
+
+:ADD_LB7 LDA #>LBLTAB
+ STA :ADD_LB9+2 ;move label into new location
+ LDY LNCNT
+:ADD_LB8 LDA LNBUF,Y
+ PHP
+:ADD_LB9 STA LBLTAB,X
+ INC :ADD_LB9+2
+ INY
+ PLP
+ BPL :ADD_LB8
+
+ INC LBLNUM ;increment count
+:ADD_L10 LDY LNCNT2
+ STY LNCNT
+ TXA ;return label number
+ CLC
+ RTS
+
+ADD_L11 LDX #symfull
+ JSR SHERR
+ SEC ;symbol tabel overflow
+ RTS
+
+*-------------------------------
+* ----- get a token -----
+*-------------------------------
+
+TOKEN LDA #<SYMTXT ;point at token table
+ STA TEMP2
+ LDA #>SYMTXT
+ STA TEMP2+1
+ LDY #0
+ STY TOKTYP ;start token count
+ BEQ :TOKEN4 ;try and find a match
+
+:TOKEN1 INC TOKTYP ;try next token
+:TOKEN2 LDA (TEMP2),Y
+ INY
+ BNE :TOKEN3
+
+ INC TEMP2+1
+:TOKEN3 ASL ;put into carry
+ BCC :TOKEN2 ;was high bit set?
+
+:TOKEN4 LDX LNCNT ;get line offset
+:TOKEN5 LDA (TEMP2),Y ;were done, no match
+ BEQ :TOKEN7
+
+ STA PRN
+ LDA LNBUF,X ;check it
+ JSR CONV
+ EOR PRN ;match bits
+ ASL ;move bit 7
+ BNE :TOKEN1 ;no match
+
+ INX ;increment pointers
+ INY
+ BNE :TOKEN6
+ INC TEMP2+1
+
+:TOKEN6 BCC :TOKEN5 ;keep checking
+
+ STX LNCNT ;save new text pointer
+ LDA TOKTYP
+ RTS
+
+:TOKEN7 LDA LNBUF,X ;get char
+ INC LNCNT
+ JSR CONV ;make uppercase
+ ORA #hibit
+ RTS

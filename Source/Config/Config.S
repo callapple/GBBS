@@ -1,1 +1,29 @@
-ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª  ΗΒΒΣ Πςο ­ Γοξζιη Πςοηςαν   ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª Δατεªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª ςεμ δσλ ςεμ―γοξζιη μστ οζζ πυτ ερυατεσ πυτ σταςτ πυτ ςουτιξε πυτ δισλ πυτ πδισλιο πυτ οσπκυξλ πυτ φιδδφς πυτ νοδεν πυτ φιδεο πυτ γμογλ πυτ πςιξτες πυτ ιξιτ πυτ πζιμτες πυτ πστος πυτ βοαςδεδιτ πυτ υσες πυτ υσεςπυςηε
+********************************
+*                              *
+*  GBBS Pro - Config Program   *
+*                              *
+********************************
+ Date
+********************************
+
+ rel
+ dsk rel/config
+
+ lst off
+ put equates
+ put start
+ put routine
+ put disk
+ put pdiskio
+ put ospjunk
+ put viddvr
+ put modem
+ put video
+ put clock
+ put printer
+ put init
+ put pfilter
+ put pstor
+ put boardedit
+ put user
+ put userpurge

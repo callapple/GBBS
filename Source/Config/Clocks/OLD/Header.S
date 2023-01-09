@@ -1,1 +1,52 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Γμογλ Δςιφες Θεαδες Βμογλª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Òεφισεδ ΔατεΊ ±±―°Έ―ΈΉª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ªª δςιφες μοαδ ιξζοªª ¤°Έ°° ½ θεαδες βμογλ                  »οζζσετª ¤°α°° ½ Τθυξδες―Τινεναστες            »²ª ¤°β°° ½ Α®Ε® Σεςιαμ Πςο               »³ª ¤°γ°° ½ ΣΝΤ Ξο Σμοτ γμογλ             »΄ª ¤°δ°° ½ Αππμε ――ησ Γμογλ              »µª ¤°ε°° ½ Α®Ε® Υμτςα Γμογλ              »¶ª ¤°ζ°° ½ πςοδοσ γονπατιβμε             »·ª ¤±°°° ½ Νουξταιξ Γμογλ                »Έª ¤±±°° ½ Φεςσαγαςδ                     »Ήª ¤±²°° ½ ξο γμογλ ιξ σωστεν            »αª ¤±³°° ½ ――γ Σωστεν Γμογλ              »β ςεμ δσλ ςεμ―θεαδες οςη ¤°Έ°°γμογλσ θεψ °²°± ασγ §Τθυξδεςγμογλ Γονπαταβμε       § θεψ °²°± ασγ §Α®Ε® Τινεναστες ΙΙ Θ®Ο®       § θεψ °³°± ασγ §Α®Ε® Σεςιαμ Πςο               § θεψ Έ΄°± ασγ §ΣΝΤ Ξο Σμοτ Γμογλ             § θεψ Έµ°± ασγ §Αππμε ――ΗΣ βυιμτ­ιξ γμογλ     § θεψ Έ¶°± ασγ §Α®Ε® Υμτςα Γμογλ              § θεψ Έ·°± ασγ §ΠςοΔΟΣ Γονπατιβμε Γμογλ       § θεψ °Έ°± ασγ §Νουξταιξ Θαςδχαςε Γμογλ       § θεψ °Ή°± ασγ §Πςονετθευσ Φεςσαγαςδ          § θεψ Έα°± ασγ §Ξο Γμογλ ιξ Σωστεν            § θεψ °β°± ασγ §Α®Ε® ――γ Σωστεν Γμογλ         § θεψ °°°° δσ ά
+*-------------------------------
+* Clock Driver Header Block
+*-------------------------------
+* Revised Date: 11/08/89
+*-------------------------------
+*
+* driver load info
+*
+* $0800 = header block                  ;offset
+* $0a00 = Thunder/Timemaster            ;2
+* $0b00 = A.E. Serial Pro               ;3
+* $0c00 = SMT No Slot clock             ;4
+* $0d00 = Apple //gs Clock              ;5
+* $0e00 = A.E. Ultra Clock              ;6
+* $0f00 = prodos compatible             ;7
+* $1000 = Mountain Clock                ;8
+* $1100 = Versacard                     ;9
+* $1200 = no clock in system            ;a
+* $1300 = //c System Clock              ;b
+
+ rel
+ dsk rel/header
+
+ org $0800
+
+clocks hex 0201
+ asc 'Thunderclock Compatable       '
+ hex 0201
+ asc 'A.E. Timemaster II H.O.       '
+ hex 0301
+ asc 'A.E. Serial Pro               '
+ hex 8401
+ asc 'SMT No Slot Clock             '
+ hex 8501
+ asc 'Apple //GS built-in clock     '
+ hex 8601
+ asc 'A.E. Ultra Clock              '
+ hex 8701
+ asc 'ProDOS Compatible Clock       '
+ hex 0801
+ asc 'Mountain Hardware Clock       '
+ hex 0901
+ asc 'Prometheus Versacard          '
+ hex 8a01
+ asc 'No Clock in System            '
+ hex 0b01
+ asc 'A.E. //c System Clock         '
+
+ hex 0000
+ ds \
+
+

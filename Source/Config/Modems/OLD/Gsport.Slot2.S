@@ -1,1 +1,522 @@
-ª ΗΣ Ποςτ Δςιφες Βιοσ ­ Σμοτ £²ª χςιττεξ βω Αξδω Ξιγθομασ οξ Κυμω ²¶¬ ±ΉΈ·ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ ςεμ δσλ ςεμ―ησποςτ²γς ερυ ¤°δμζ ερυ ¤°αιξιτστς ερυ ¤±±δ°αξσστς ερυ ¤±±γ°γδβωτε ερυ ¤±±βζΒυζζες ερυ ¤±±α°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ησποςτ² εξτª Κυνπ Ταβμεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ οςη ¤ε°° θεψ ²° »σεςιαμ γαςδ σμοτ ª ±¶ιξιτσπδ θεψ °°γαμμσπδ δζβ ° »σπεεδ οζ γαμμβωτγξτ δζβ °¬°¬° κνπ ιξιτ κνπ ςιξησετ κνπ ςιξη κνπ αξσχεςÒιξη κνπ θαξηυπ κνπ ιξπ κνπ ουτ κνπ ηετγαςς κνπ σετσπεεδ κνπ ςαισεδτςδοιξιτ κνπ ¤γ²°°δοςεαδ κνπ ¤γ²°°δοχςιτε κνπ ¤γ²°°δοστατυσ κνπ ¤γ²°°δοεψτ κνπ ¤γ²°°ª ιξιτ τθε σεςιαμ ποςτ πασγαμ μογατιοξσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ιξιτ μδα ¤γ²°δ »ηετ ιξιτ αδδςεσσ στα δοιξιτ«± μδα ¤γ²°ε »ηετ ςεαδ αδδςεσσ στα δοςεαδ«± μδα ¤γ²°ζ »ηετ χςιτε αδδςεσσ στα δοχςιτε«± μδα ¤γ²±° »ηετ στατυσ αδδςεσσ στα δοστατυσ«± μδα ¤γ²±² στα δοεψτ«± ςτσª ιξπυτ δαταª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ιξπ πθψ σαφε »ψ πθω μδψ £¤γ² »αςε χε ςεαδωΏ μδω £¤²° μδα £± κσς δοστατυσ βγγ ιξπ² »ξοπε¬ εψιτ μδψ £¤γ² »ωεσ¬ ςεαδ μδω £¤²° κσς δοςεαδ σεγ πμω πμψ ςεστοςε »¦ ςετυςξ ςτσιξπ² μδα £° γμγ πμω πμψ ςτσª ουτπυτ δαταª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ουτ πθψ  »σαφε ψ πθω  »σαφε ω πθα  »σαφε αουτ± μδψ £¤γ² »ςεαδω ζος σεξδΏ μδω £¤²° μδα £¤°° κσς δοστατυσ βγγ ουτ± »ξοπε πμα ηετ »α μδψ £¤γ² μδω £¤²° κσς δοχςιτε »σεξδ ιτ πμω ηετ »ω πμψ ηετ »ψ ςτσª σετυπ ζος γαμμª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ςιξησετ κσς θαξηυπ μδα £° »μετ νοδεν ςεσετ κσς χαιτ κσς χαιτ μδα £¤°° κσς ησδτς μδω ιξιτσπδ »σετ ιξιτ σπεεδ κσς σετσπεεδ μδα £° »σμιηθτ δεμαω ¨μετ νοδεν δο ιξιτ© κσς χαιτ μδψ £¤ΖΖςσετ² ιξψ δο »πςε­ιξγ μδα ιξιτστς¬ψ »ηετ νοδεν ιξιτ στςιξη βερ ςσετ³ »χε αςε δοξε κσς ουτ »ουτπυτ βςα ςσετ² »μοοπ ¨Ϊ­βιτ σετ αζτες χαιτ©ςσετ³ μδα £¶ στα γουξτμο στα γουξτθιςσετ΄ μδω £¤ΖΖςσετµ δεω βερ δεγουξτ κσς ιξπ βγγ ςσετµ αξδ £¤·ζ γνπ £§°§ »γθεγλ ζος Ά°Ά ςεσυμτ βερ μεαφε κνπ ςσετµδεγουξτ δεγ γουξτμο βξε ςσετ΄ δεγ γουξτθι βξε ςσετ΄ κνπ ςιξησετμεαφε κσς ιξπ »ηςαβ τθε ΌγςΎ οζζ τθε ταιμ εξδ οζ τθε Ά°Ά βγγ μεαφε κσς γμεαςΒυζζες μδα £° στα βωτγξτ »ςεσετ βωτε γουξτες στα βωτγξτ«± στα βωτγξτ«² γμγ ςτσ  »ςετυςξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª τεστ ζος α ςιξη αξδ θαξδμε ιτςιξη κσς ιξπ »γθεγλ ζος α γθας βγγ ξοÒιξη »ξοπε®®® αξδ £¤·ζ »στςιπ θιηθ γνπ £§²§ »ισ ιτ α §ςιξη§Ώ ¨ξυνεςιγ© βξε ξοτÒιξη »ξοπε¬ γθεγλ ζος γοξξεγτ νεσσαηεσªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªηςαβΓÒ κσς ιξπ »ηςαβ τθε ΌγςΎ οζζ τθε ταιμ εξδ οζ τθε Ά²Ά βγγ ηςαβΓÒαξσχεςÒιξη κσς αξσχες »τθε πθοξε ςαξη¬ σο σεξδ §ΑΤΑ§ γμγ ςτσªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªξοτÒιξη γνπ £§±§ »ισ ιτ α §±§ ος §±°§ ος §±±§ ος §±²§ ος §±΄§Ώ βερ ηοτΓοδε »ωεσ¬ σαφε ιτ γνπ £§µ§ »ισ ιτ γοξξεγτ ±²°°Ώ βξε ξοÒιξη »ξοπεηοτΓοδε στα γοδεσεγοξδΓθας κσς ιξπ »σεγοξδ γθαςαγτες χιμμ ΑΜΧΑΩΣ βε τθεςε βγγ σεγοξδΓθας αξδ £¤·ζ »στςιπ θιηθ γνπ £γς »βυτ νιηθτ βε α ΌγςΎ βξε νυμτιΓοδεªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªσιξημεΓοδε μδω £° »γοξξεγτ ³°°Ώ μδα γοδε γνπ £§±§ βερ ςιξη³ ιξω γνπ £§µ§ »γοξξεγτ ±²°°Ώ βερ ςιξη³ »ξοπε¬ υξλξοχξ γοδε¬ λεεπ γθεγλιξη κνπ ξοÒιξηªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªνυμτιΓοδε στα γοδε«± μδω £² »δεζ ½ ²΄°° βαυδ μδα γοδε »ηετ τθε ζιςστ γοδε γθας γνπ £§±§ »νυστ βε α οξε βξε ξοÒιξη »ιζ ξοτ¬ τθεξ λεεπ τςωιξη μδα γοδε«± »ισ ιτ ²΄°°Ώ γνπ £§°§ βερ ςιξη³ ιξω γνπ £§±§ »ισ ιτ ΄Έ°°Ώ βερ ςιξη³ ιξω γνπ £§²§ »ισ ιτ Ή¶°° βερ ςιξη³ ιξω γνπ £§΄§ »ισ ιτ ±Ή²°°Ώ βερ ςιξη³ κνπ ξοÒιξηªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªςιξη³ κσς σετσπεεδ »σετ τθε γοςςεγτ σπεεδ μδω £µςιξη΄ μδα £° »μετ γαςςιες§σ σεττμε κσς χαιτ δεω βξε ςιξη΄ κσς γμεαςΒυζζες »ςενοφε αξω ηαςβαηε σεγ  »χε θαφε α γοξξεγτιοξ΅ ςτσξοÒιξη γμγ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γμεας τθε ιξπυτ βυζζεςγμεαςΒυζζες μδα £ΖμυσθίΜιστ μδψ £ΎΖμυσθίΜιστ μδω £° κνπ δοεψτª σετ ΔΤÒ οξ ΗΣ Σεςιαμ Ποςτ¬ αξδ θαξηυπ ιζ ξεεδεδª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­θαξηυπ μδα £¤Έ° »βμοχ §εν οζζ ¨θαξηυπ©ησδτς στα ΔΤÒστατε μδα £ΔΤÒίΜιστ μδψ £ΎΔΤÒίΜιστ μδω £° κνπ δοεψτª χαιτ ςουτιξεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­χαιτ σεγ  »ζςον αππμε έΫ« ςεζ ναξ ­ πη ±΄·χαιτ² πθαχαιτ³ σβγ £± βξε χαιτ³ πμα σβγ £± βξε χαιτ² ςτσª Γθεγλ ζος γαςςιες υσιξη ΗετίΠοςτίΣτατ ςουτιξεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηετγαςς πθψ πθω μδα £γαςςμιστ μδψ £Ύγαςςμιστ μδω £° κσς δοεψτ μδα γαςςβιτσ αξδ γδβωτε βερ ξογαςς σεγ πμω πμψ ςτσξογαςς γμγ πμω πμψ ςτσª σεξδ ατα το πθοξεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­αξσχες μδα £¤Έ° κσς χαιτ μδψ £¤ζζαξσχες² ιξψ μδα αξσστς¬ψ »ηετ τεψτ βερ αξσχες³ »χε αςε δοξε κσς ουτ »σεξδ ιτ βςα αξσχες²αξσχες³ ςτσª σετ τθε ςσ­²³² σπεεδ Ϋσπεεδ οζζσετ ιξ Ωέªª ° ½   ³°° βαυδª ± ½  ±²°° βαυδª ² ½  ²΄°° βαυδª ³ ½  ΄Έ°° βαυδª ΄ ½  Ή¶°° βαυδª µ ½ ±Ή²°° βαυδª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­σετσπεεδ πθψ πθω μδα £± »ζιξδ γαμμες σπεεδ ¨ψ³°°© στα γαμμσπδ γπω £° »ατ ³°°Ώ βερ ΔοίΒαυδ »ωεπ ασμ γαμμσπδ »σπεεδ ½ σπεεδ ª ²σετσπεεδ² ασμ γαμμσπδ »σπεεδ ½ σπεεδ ª ² δεω βξε σετσπεεδ² »μοοπ υξτιμ γοςςεγτ σπεεδ ζουξδΔοίΒαυδ πμα  »ηετ ω­ςεη βξε Τςω±²°° μδα £ΌΒαυδ³°° στα Βαυδςεαδ«± μδα £ΎΒαυδ³°° στα Βαυδςεαδ«² βςα ΣετΒαυδΤςω±²°° γνπ £± βξε Τςω²΄°° μδα £ΌΒαυδ±²°° στα Βαυδςεαδ«± μδα £ΎΒαυδ±²°° στα Βαυδςεαδ«² βςα ΣετΒαυδΤςω²΄°° γνπ £² βξε Τςω΄Έ°° μδα £ΌΒαυδ²΄°° στα Βαυδςεαδ«± μδα £ΎΒαυδ²΄°° στα Βαυδςεαδ«² βςα ΣετΒαυδΤςω΄Έ°° γνπ £³ βξε ΤςωΉ¶°° μδα £ΌΒαυδ΄Έ°° στα Βαυδςεαδ«± μδα £ΎΒαυδ΄Έ°° στα Βαυδςεαδ«² βςα ΣετΒαυδΤςωΉ¶°° γνπ £΄ βξε Τςω±Ή²°° μδα £ΌΒαυδΉ¶°° στα Βαυδςεαδ«± μδα £ΎΒαυδΉ¶°° στα Βαυδςεαδ«² βςα ΣετΒαυδΤςω±Ή²°° μδα £ΌΒαυδ±Ή²°° στα Βαυδςεαδ«± μδα £ΎΒαυδ±Ή²°° στα Βαυδςεαδ«²ΣετΒαυδ μδψ £¤γ² μδω £¤²° κσς δοιξιτ μδψ £°Βαυδςεαδ μδα ¤ζζζζ¬ψ βερ ΖιξίΙξιτ κσς ουτ ιξψ βςα ΒαυδςεαδΖιξίΙξιτ μδψ £°ΙξιτίΜοοπ μδα ΠοςτίΙξιτ¬ψ βερ δοξεβαυδ κσς ουτ ιξψ βςα ΙξιτίΜοοπδοξεβαυδ μδα £ΟυτίΒυζ μδψ £ΎΟυτίΒυζ μδω £° κσς δοεψτ πμψ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςαισε δτςςαισεδτς μδα £° πθψ πθω κσς ησδτς πμω πμψ ςτσª ημοβαμσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γουξτθι δβ °γουξτμο δβ °Βαυδ³°° θεψ °± ασγ §¶Β§ θεψ °° »αγγεπτ ³°° ΒαυδΒαυδ±²°° θεψ °± ασγ §ΈΒ§ θεψ °° »αγγεπτ ±²°° ΒαυδΒαυδ²΄°° θεψ °± ασγ §±°Β§ θεψ °° »αγγεπτ ²΄°° ΒαυδΒαυδ΄Έ°° θεψ °± ασγ §±²Β§ θεψ °° »αγγεπτ ΄Έ°° ΒαυδΒαυδΉ¶°° θεψ °± ασγ §±΄Β§ θεψ °° »αγγεπτ Ή¶°° ΒαυδΒαυδ±Ή²°° θεψ °± ασγ §±µΒ§ θεψ °° »αγγεπτ ±Ή²°° βαυδΠοςτίΙξιτ θεψ °± ασγ §°Δ§ »Έ βιτσ θεψ °± ασγ §²Π§ »ξο παςιτω θεψ °± ασγ §ΑΔ§ »αυτο­ταββιξη θεψ °± ασγ §ΨΔ§ »ξο ψοζζ ςεγοηξιτιοξ θεψ °± ασγ §ΖΔ§ »ξο ζιξδ λεωβοαςδ θεψ °± ασγ §ΓΔ§ »ξο γομυνξ οφεςζμοχ θεψ °± ασγ §ΕΔ§ »εγθο δισαβμεδ θεψ °± ασγ §ΝΔ§ »ξο μζ νασλιξη θεψ °± ασγ §ΒΕ§ »βυζζεςιξη εξαβμεδ θεψ °± ασγ §Ϊ§ θεψ °° »ξο νοςε γοξτςομ γθαςαγτεςσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΟυτίΒυζ θεψ °΄ »Παςανετεςσ το σετ τθε θεψ ±³ »Ουτπυτ βυζζες δα ° αδςμ Βυζζες »Βυζζες ιτ χθεςε δα ² βυζζεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γαςςμιστ θεψ °³ »Παςανετες μιστ ζος θεψ °¶ »δετεγτιξη γαςςιες δςοπ δα °γαςςβιτσ δα ° Γαςςιεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΤÒίΜιστ θεψ °³ »Παςανετες μιστ ζος θεψ °β »σεττιξη ΔΤÒ δα °ΔΤÒστατε δα ° βιτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΖμυσθίΜιστ θεψ °² »παςανετες μιστ ζος ζμυσθιξη ιξπυτ ρυευε θεψ ±΄ δα °ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γοδε δσ ² »² βωτε γοδε ςετυςξεδ βω νοδεν ασγ §ΗΣΠοςτ²§
+* GS Port Driver Bios - Slot #2
+* written by Andy Nicholas on July 26, 1987
+*-------------------------------
+
+ rel
+ dsk rel/gsport2
+
+cr equ $0d
+lf equ $0a
+
+initstr equ $11d0
+ansstr equ $11c0
+cdbyte equ $11bf
+Buffer equ $11a0
+
+*-------------------------------
+
+gsport2 ent
+
+
+* Jump Table
+*-------------------------------
+
+ org $e00
+
+ hex 20 ;serial card slot * 16
+initspd hex 00
+
+callspd dfb 0 ;speed of call
+
+bytcnt dfb 0,0,0
+
+ jmp init
+ jmp ringset
+ jmp ring
+ jmp answerRing
+ jmp hangup
+ jmp inp
+ jmp out
+ jmp getcarr
+ jmp setspeed
+ jmp raisedtr
+
+doinit jmp $c200
+doread jmp $c200
+dowrite jmp $c200
+dostatus jmp $c200
+doext jmp $c200
+
+* init the serial port pascal locations
+*-------------------------------
+
+init lda $c20d ;get init address
+ sta doinit+1
+ lda $c20e ;get read address
+ sta doread+1
+ lda $c20f ;get write address
+ sta dowrite+1
+ lda $c210 ;get status address
+ sta dostatus+1
+ lda $c212
+ sta doext+1
+
+ rts
+
+* input data
+*-------------------------------
+
+inp phx save ;x
+ phy
+ ldx #$c2 ;are we ready?
+ ldy #$20
+ lda #1
+ jsr dostatus
+ bcc inp2 ;nope, exit
+
+ ldx #$c2 ;yes, read
+ ldy #$20
+ jsr doread
+
+ sec
+ ply
+ plx restore ;& return
+ rts
+
+inp2 lda #0
+ clc
+ ply
+ plx
+ rts
+
+* output data
+*-------------------------------
+
+out phx  ;save x
+ phy  ;save y
+ pha  ;save a
+
+out1 ldx #$c2 ;ready for send?
+ ldy #$20
+ lda #$00
+ jsr dostatus
+ bcc out1 ;nope
+
+ pla get ;a
+ ldx #$c2
+ ldy #$20
+ jsr dowrite ;send it
+
+ ply get ;y
+ plx get ;x
+ rts
+
+* setup for call
+*-------------------------------
+
+ringset jsr hangup
+
+ lda #0 ;let modem reset
+ jsr wait
+ jsr wait
+
+ lda #$00
+ jsr gsdtr
+
+ ldy initspd ;set init speed
+ jsr setspeed
+
+ lda #0 ;slight delay (let modem do init)
+ jsr wait
+
+ ldx #$FF
+rset2 inx do ;pre-inc
+ lda initstr,x ;get modem init string
+ beq rset3 ;we are done
+
+ jsr out ;output
+ bra rset2 ;loop (Z-bit set after wait)
+
+rset3 lda #6
+ sta countlo
+ sta counthi
+
+rset4 ldy #$FF
+rset5 dey
+ beq decount
+
+ jsr inp
+ bcc rset5
+ and #$7f
+ cmp #'0' ;check for "0" result
+ beq leave
+ jmp rset5
+
+decount dec countlo
+ bne rset4
+ dec counthi
+ bne rset4
+ jmp ringset
+
+leave jsr inp ;grab the <cr> off the tail end of the "0"
+ bcc leave
+
+ jsr clearBuffer
+
+ lda #0
+ sta bytcnt ;reset byte counter
+ sta bytcnt+1
+ sta bytcnt+2
+ clc
+ rts  ;return
+
+*-------------------------------
+* test for a ring and handle it
+
+ring jsr inp ;check for a char
+ bcc noRing ;nope...
+
+ and #$7f ;strip high
+ cmp #'2' ;is it a 'ring'? (numeric)
+ bne notRing ;nope, check for connect messages
+
+********************************
+grabCR jsr inp ;grab the <cr> off the tail end of the "2"
+ bcc grabCR
+
+answerRing jsr answer ;the phone rang, so send 'ATA'
+
+ clc
+ rts
+
+********************************
+notRing
+ cmp #'1' ;is it a '1' or '10' or '11' or '12' or '14'?
+ beq gotCode ;yes, save it
+ cmp #'5' ;is it connect 1200?
+ bne noRing ;nope
+
+gotCode sta code
+
+secondChar jsr inp ;second character will ALWAYS be there
+ bcc secondChar
+
+ and #$7f ;strip high
+ cmp #cr ;but might be a <cr>
+ bne multiCode
+
+********************************
+singleCode ldy #0 ;connect 300?
+ lda code
+ cmp #'1'
+ beq ring3
+
+ iny
+ cmp #'5' ;connect 1200?
+ beq ring3 ;nope, unknown code, keep checking
+ jmp noRing
+
+********************************
+multiCode
+ sta code+1
+
+ ldy #2 ;def = 2400 baud
+
+ lda code ;get the first code char
+ cmp #'1' ;must be a one
+ bne noRing ;if not, then keep trying
+
+ lda code+1 ;is it 2400?
+ cmp #'0'
+ beq ring3
+
+ iny
+ cmp #'1' ;is it 4800?
+ beq ring3
+
+ iny
+ cmp #'2' ;is it 9600
+ beq ring3
+
+ iny
+ cmp #'4' ;is it 19200?
+ beq ring3
+ jmp noRing
+
+********************************
+ring3 jsr setspeed ;set the correct speed
+
+ ldy #5
+ring4 lda #0 ;let carrier's settle
+ jsr wait
+ dey
+ bne ring4
+
+ jsr clearBuffer ;remove any garbage
+ sec  ;we have a connection!
+ rts
+
+noRing clc
+ rts
+
+*-------------------------------
+* clear the input buffer
+
+clearBuffer
+ lda #Flush_List
+ ldx #>Flush_List
+ ldy #0
+ jmp doext
+
+* set DTR on GS Serial Port, and hangup if needed
+*-------------------------------
+
+hangup lda #$80 ;blow 'em off (hangup)
+gsdtr sta DTRstate
+
+ lda #DTR_List
+ ldx #>DTR_List
+ ldy #0
+ jmp doext
+
+* wait routine
+*-------------------------------
+
+wait sec  ;from apple ][+ ref man - pg 147
+wait2 pha
+wait3 sbc #1
+ bne wait3
+ pla
+ sbc #1
+ bne wait2
+ rts
+
+* Check for carrier using Get_Port_Stat routine
+*-------------------------------
+
+getcarr phx
+ phy
+
+ lda #carrlist
+ ldx #>carrlist
+ ldy #0
+ jsr doext
+
+ lda carrbits
+ and cdbyte
+ beq nocarr
+ sec
+ ply
+ plx
+ rts
+
+nocarr clc
+ ply
+ plx
+ rts
+
+* send ata to phone
+*-------------------------------
+
+answer lda #$80
+ jsr wait
+
+ ldx #$ff
+answer2 inx
+ lda ansstr,x ;get text
+ beq answer3 ;we are done
+
+ jsr out ;send it
+ bra answer2
+
+answer3 rts
+
+* set the rs-232 speed [speed offset in Y]
+*
+* 0 =   300 baud
+* 1 =  1200 baud
+* 2 =  2400 baud
+* 3 =  4800 baud
+* 4 =  9600 baud
+* 5 = 19200 baud
+*-------------------------------
+
+setspeed phx
+ phy
+
+ lda #1 ;find caller speed (x300)
+ sta callspd
+ cpy #0 ;at 300?
+ beq Do_Baud ;yep
+
+ asl callspd ;speed = speed * 2
+setspeed2 asl callspd ;speed = speed * 2
+ dey
+ bne setspeed2 ;loop until correct speed found
+
+Do_Baud pla  ;get y-reg
+ bne Try1200
+ lda #<Baud300
+ sta Baudread+1
+ lda #>Baud300
+ sta Baudread+2
+ bra SetBaud
+
+Try1200 cmp #1
+ bne Try2400
+ lda #<Baud1200
+ sta Baudread+1
+ lda #>Baud1200
+ sta Baudread+2
+ bra SetBaud
+
+Try2400 cmp #2
+ bne Try4800
+ lda #<Baud2400
+ sta Baudread+1
+ lda #>Baud2400
+ sta Baudread+2
+ bra SetBaud
+
+Try4800 cmp #3
+ bne Try9600
+ lda #<Baud4800
+ sta Baudread+1
+ lda #>Baud4800
+ sta Baudread+2
+ bra SetBaud
+
+Try9600 cmp #4
+ bne Try19200
+ lda #<Baud9600
+ sta Baudread+1
+ lda #>Baud9600
+ sta Baudread+2
+ bra SetBaud
+
+Try19200 lda #<Baud19200
+ sta Baudread+1
+ lda #>Baud19200
+ sta Baudread+2
+
+SetBaud ldx #$c2
+ ldy #$20
+ jsr doinit
+
+ ldx #0
+Baudread lda $ffff,x
+ beq Fin_Init
+ jsr out
+ inx
+ bra Baudread
+
+Fin_Init ldx #0
+Init_Loop lda Port_Init,x
+ beq donebaud
+ jsr out
+ inx
+ bra Init_Loop
+
+donebaud lda #Out_Buf
+ ldx #>Out_Buf
+ ldy #0
+ jsr doext
+
+ plx
+ rts
+
+*-------------------------------
+* raise dtr
+
+raisedtr lda #0
+ phx
+ phy
+
+ jsr gsdtr
+
+ ply
+ plx
+ rts
+
+* globals
+*-------------------------------
+
+counthi db 0
+countlo db 0
+
+Baud300 hex 01
+ asc '6B'
+ hex 00 ;accept 300 Baud
+Baud1200 hex 01
+ asc '8B'
+ hex 00 ;accept 1200 Baud
+Baud2400 hex 01
+ asc '10B'
+ hex 00 ;accept 2400 Baud
+Baud4800 hex 01
+ asc '12B'
+ hex 00 ;accept 4800 Baud
+Baud9600 hex 01
+ asc '14B'
+ hex 00 ;accept 9600 Baud
+Baud19200 hex 01
+ asc '15B'
+ hex 00 ;accept 19200 baud
+
+Port_Init
+ hex 01
+ asc '0D' ;8 bits
+ hex 01
+ asc '2P' ;no parity
+ hex 01
+ asc 'AD' ;auto-tabbing
+ hex 01
+ asc 'XD' ;no xoff recognition
+ hex 01
+ asc 'FD' ;no find keyboard
+ hex 01
+ asc 'CD' ;no column overflow
+ hex 01
+ asc 'ED' ;echo disabled
+ hex 01
+ asc 'MD' ;no lf masking
+ hex 01
+ asc 'BE' ;buffering enabled
+ hex 01
+ asc 'Z'
+ hex 00 ;no more control characters
+
+*-------------------------------
+
+Out_Buf hex 04 ;Parameters to set the
+ hex 13 ;Output buffer
+ da 0
+ adrl Buffer ;Buffer it where
+ da 2 buffer
+
+*-------------------------------
+
+carrlist hex 03 ;Parameter list for
+ hex 06 ;detecting carrier drop
+ da 0
+carrbits da 0 Carrier
+
+*-------------------------------
+
+DTR_List hex 03 ;Parameter list for
+ hex 0b ;setting DTR
+ da 0
+DTRstate da 0 bit
+
+*-------------------------------
+
+Flush_List hex 02 ;parameter list for flushing input queue
+ hex 14
+ da 0
+
+*-------------------------------
+
+code ds 2 ;2 byte code returned by modem
+ asc 'GSPort2'
+
+

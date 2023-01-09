@@ -1,1 +1,73 @@
-ª Φιδεο Δςιφες ςε­γοξζιηυςατιοξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­φιδ΄° εψτφιδΈ° εψτφιδ΄°πμ εψτφιδεψ εψτςείφιδ κσς ΤοπΒοψ κσς πςιξτ δβ ±¬³¬· ασγ §­ Γοξζιηυςε Φιδεο Δςιφες ­§¬°° κσς γμσ μδψ £Όσταςτ » σετυπ εσγ θαξδμες μδα £Ύσταςτ κσς εσγαπε κσς πςιξτ δβ ±¬·¬° ασγ § ± ­ Αππμε έΫ« χ―ο μοχες γασε§¬°δ ασγ § ² ­ Αππμε έΫ« χ― μοχες γασε§¬°δ ασγ § ³ ­ Αππμε έΫ« χ― Φιδεψ Έ° γομ§¬°δ ασγ § ΄ ­ Αππμε ――ε ιξ ΄° γομ νοδε§¬°δ ασγ § µ ­ Αππμε ――ε ιξ Έ° γομ νοδε§¬°δ ασγ § ¶ ­ Αππμε ――γ ιξ ΄° γομ νοδε§¬°δ ασγ § · ­ Αππμε ――γ ιξ Έ° γομ νοδε§¬°δ ασγ § Έ ­ Αππμε ΙΙησ ιξ ΄° γομ νοδε§¬°δ ασγ § Ή ­ Αππμε ΙΙησ ιξ Έ° γομ νοδε§¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­Ήέ §¬°° μδψ £Ή »ηετ πςιξτες £ κσς ιξπξυν ασμ α »ποιξτ° ποιξτσ το τθε ταψ  »φιδεο δεφιγε δςιφες μδα Ίφιδταβμε¬ψ στα ποιξτ° ιξψ μδα Ίφιδταβμε¬ψ στα ποιξτ°«± μδα £Όφιδδςφ »τεμμ ιτ το νοφε τθε φιδεο στα ποιξτ± »δςιφες μδα £Ύφιδδςφ στα ποιξτ±«± μδψ £³ »νοφε ³ ιμμυστςιουσ παηεσΊμοοπ² μδω £°Ίμοοπ μδα ¨ποιξτ°©¬ω »σουςγε στα ¨ποιξτ±©¬ω »δεστιξατιοξ ιξω βξε Ίμοοπ ιξγ ποιξτ°«± ιξγ ποιξτ±«± δεψ βξε Ίμοοπ² κσς γθιξιτ » γθεγλ ζος ιξιτ κνπ χςτγθη » χςιτε τθε γθαξηεσΊφιδταβμε δχ ° δα φιδ΄° δα φιδ΄°πμ δα φιδεψ δα φιδ΄° δα φιδΈ° δα φιδ΄° δα φιδΈ° δα φιδ΄° δα φιδΈ°
+* Video Driver re-configuration
+*-------------------------------
+
+vid40 ext
+vid80 ext
+vid40pl ext
+videx ext
+
+re_vid jsr TopBox
+ jsr print
+ db 1,3,7
+ asc '- Configure Video Driver -',00
+
+ jsr cls
+ ldx #<start ; setup esc handler
+ lda #>start
+ jsr escape
+
+ jsr print
+ db 1,7,0
+ asc ' 1 - Apple ][+ w/o lower case',0d
+ asc ' 2 - Apple ][+ w/ lower case',0d
+ asc ' 3 - Apple ][+ w/ Videx 80 col',0d
+ asc ' 4 - Apple //e in 40 col mode',0d
+ asc ' 5 - Apple //e in 80 col mode',0d
+ asc ' 6 - Apple //c in 40 col mode',0d
+ asc ' 7 - Apple //c in 80 col mode',0d
+ asc ' 8 - Apple IIgs in 40 col mode',0d
+ asc ' 9 - Apple IIgs in 80 col mode',0d,0d
+ asc 'Which? [1-9] ',00
+
+ ldx #9 ;get printer #
+ jsr inpnum
+
+ asl a ;point0 points to the
+ tax  ;video device driver
+ lda :vidtable,x
+ sta point0
+ inx
+ lda :vidtable,x
+ sta point0+1
+
+ lda #<viddrv ;tell it to move the video
+ sta point1 ;driver
+ lda #>viddrv
+ sta point1+1
+
+ ldx #3 ;move 3 illustrious pages
+:loop2 ldy #0
+:loop lda (point0),y ;source
+ sta (point1),y ;destination
+ iny
+ bne :loop
+ inc point0+1
+ inc point1+1
+ dex
+ bne :loop2
+
+ jsr chinit ; check for init
+ jmp wrtchg ; write the changes
+
+:vidtable dw 0
+ da vid40
+ da vid40pl
+ da videx
+ da vid40
+ da vid80
+ da vid40
+ da vid80
+ da vid40
+ da vid80
+
+

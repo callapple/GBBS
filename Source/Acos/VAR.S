@@ -1,1 +1,761 @@
- ÐÁÇªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª     ÁÃÏÓ®ÏÂÊ ­ Öáòéáâìåó     ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª ÄÁÔÅª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª óåô õð ðïéîôåòó ôï öáòéáâìåóª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÖÁÒÓÅÔ ÊÓÒ ÇÅÔÂÙÔ »çåô óôòéîç ïò îõíâåò éîäéãáôïò ÐÈÁ ÊÓÒ ÇÅÔÂÙÔ »çåô îáíå ÓÔÁ ÖÎÁÍÅ ÊÓÒ ÇÅÔÂÙÔ ÓÔÁ ÖÎÁÍÅ«± ÐÌÁ ÃÍÐ £îõíâåò ÂÅÑ ÖÁÒÓÅÔ³ »èáîäìå îõíâåò ÃÍÐ £óôòéîç ÂÅÑ ºÖÁÒÓÅÔ² »èáîäìå óôòéîç ÌÄØ £óùîôáø ÊÍÐ ÂÁÄÅÒÒ »óùîôáø åòòïò¡ºÖÁÒÓÅÔ² ÌÄÁ ÖÎÁÍÅ »óèï÷ éô§ó á óôòéîç ÏÒÁ £èéâéô ÓÔÁ ÖÎÁÍÅ »ðïéîô ôï óôáòô ïæ ðïéîôåòóÖÁÒÓÅÔ³ ÌÄÁ ÈÉÍÅÍ ÓÔÁ ÔÅÍÐ ÌÄÁ ÈÉÍÅÍ«± ÓÔÁ ÔÅÍÐ«±ºÖÁÒÓÅÔµ ÓÅÃ »ôåíð ½ ôåíð ­ ¶ ÌÄÁ ÔÅÍÐ ÓÂÃ £¶ ÓÔÁ ÔÅÍÐ ÌÄÁ ÔÅÍÐ«± ÓÂÃ £° ÓÔÁ ÔÅÍÐ«± ÌÄÙ £° ÌÄÁ ¨ÔÅÍÐ©¬Ù »ãèåãë ìï÷ âùôå ÂÅÑ ºÖÁÒÓÅÔ¸ »ãòåáôå îå÷ öáò ÃÍÐ ÖÎÁÍÅ ÂÎÅ ºÖÁÒÓÅÔµ »îï íáôãè ÉÎÙ ÌÄÁ ¨ÔÅÍÐ©¬Ù »ãèåãë èéçè âùôå ÃÍÐ ÖÎÁÍÅ«± ÂÎÅ ºÖÁÒÓÅÔµ »îï íáôãèºÖÁÒÓÅÔ· ÃÌÃ »öðôò ½ ôåíð « ² ÌÄÁ £² ÁÄÃ ÔÅÍÐ ÓÔÁ ÖÐÔÒ ÔÁØ »òåôõòî ÷éôè Á ¦ Ø ðïéîôéîç áô öáò ÌÄÁ £° ÁÄÃ ÔÅÍÐ«± ÓÔÁ ÖÐÔÒ«± ÒÔÓºÖÁÒÓÅÔ¸ ÓÅÃ ÌÄÁ ÔÅÍÐ«± ÓÂÃ ÌÏÍÅÍ«± »æéîä ôïôáì óôòéîç óðáãå ÌÓÒ ÃÌÃ ÁÄÃ ÌÏÍÅÍ«± »æéîä âïõîäáòù ÓÔÁ ÍÉÄÍÅÍ«± »óáöå èéçè âùôå ÌÄÁ £° »óáöå ìï÷ âùôå ÓÔÁ ÍÉÄÍÅÍ ÄÅÃ ÔÅÍÐ«± ÌÄÙ £¤Æ¹ »äï îåøô åîôòù áìóï ÌÄØ £±° »æéìì òåóô ÷éôè °§ó ÌÄÁ £°ºÖÁÒÓÅÔ¹ ÉÎÙ ÂÎÅ ºÖÁÒÓÅÔÁ ÉÎÃ ÔÅÍÐ«±ºÖÁÒÓÅÔÁ ÓÔÁ ¨ÔÅÍÐ©¬Ù ÄÅØ ÂÎÅ ºÖÁÒÓÅÔ¹ ÌÄÙ £° ÌÄÁ ÖÎÁÍÅ ÓÔÁ ¨ÔÅÍÐ©¬Ù »óáöå ôèå öáò îáíå ÉÎÙ ÌÄÁ ÖÎÁÍÅ«± ÓÔÁ ¨ÔÅÍÐ©¬Ù ÊÍÐ ºÖÁÒÓÅÔ· »óåô õð ðïéîôåòóª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á îõíâåò ïò åøðòåóóéïîª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÎÕÍ ÌÄÁ ÔÅÍÐ »óáöå ôåíð öáò§ó ÐÈÁ ÌÄÁ ÔÅÍÐ«± ÐÈÁ ÌÄÁ ÔÅÍÐ² ÐÈÁ ÌÄÁ ÔÅÍÐ²«± ÐÈÁ ÊÓÒ ÉÎÐÎÕÍ° »çåô éîéôéáì îõíâåòºÉÎÐÎÕÍ³ ÊÓÒ ÃÈËÂÙÔ ÂÍÉ ºÉÎÐÎÍ³Á ÃÍÐ £ãïíðáòå ÂÇÅ ºÉÎÐÎÕÍµ »äïî§ô äï ãïíðáòå ïðåòáîäóºÉÎÐÎÍ³Á ÐÌÁ ÓÔÁ ÔÅÍÐ²«± »òåóôïòå óôõææ ÐÌÁ ÓÔÁ ÔÅÍÐ² ÐÌÁ ÓÔÁ ÔÅÍÐ«± ÐÌÁ ÓÔÁ ÔÅÍÐ ÊÍÐ ÇÅÔÎÕÍÂºÉÎÐÎÕÍµ ÊÓÒ ÉÎÐÎÕÍ² »åøåã ôïëåî ÊÍÐ ºÉÎÐÎÕÍ³ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á îõíâåò ïæ åøðòåóóéïî æïò íáôè ïðåòáôéïîóª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÍÁÔÈ ÊÓÒ ÉÎÐÎÕÍ° »çåô éîéôéáì îõíâåòÉÎÐÍÔÈ± ÊÓÒ ÃÈËÂÙÔ ÂÍÉ ÇÅÔÎÕÍÂ ÃÍÐ £íáôè ÂÌÔ ÇÅÔÎÕÍÂ »ãèåãë æïò íáôè ïðåòáîä¬ ÷å§òå äïîå ÊÓÒ ÉÎÐÎÕÍ² ÊÍÐ ÉÎÐÍÔÈ±ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á ðáòåîª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÐÁÒ ÊÓÒ ÇÅÔÂÙÔ »çåô ôèå âùôå ÊÓÒ ÉÎÐÎÕÍ ÊÓÒ ÓÁÖÎÕÍÂ »óáöå îõíâåò ÊÓÒ ÇÅÔÂÙÔ ÃÍÐ £¢©¢ ÂÅÑ ÉÎÐÐÁÒ² »÷áó ãìïóå ôèåòå¿¬ ùåð ÌÄØ £óùîôáø »óùîôáø åòòïò ÊÍÐ ÂÁÄÅÒÒª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª æéîéóè õð èåòåª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÇÅÔÎÕÍÂ ÌÄØ ÎÕÍÂ ÌÄÁ ÎÕÍÂ«±ÉÎÐÐÁÒ² ÒÔÓÓÁÖÎÕÍÂ ÓÔØ ÎÕÍÂ ÓÔÁ ÎÕÍÂ«± ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á îõíâåòª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÎÕÍ° ÌÄÁ £° »éîéô îõíâåò ÔÁØ ÊÓÒ ÓÁÖÎÕÍÂ ÊÓÒ ÃÈËÂÙÔ »çåô îåøô ôïëåî ÃÍÐ £ãèáéî ÂÅÑ ºÉÎÐÎÍ°Á »íéóóéîç äáôá ÃÍÐ £ãèáéî² ÂÅÑ ºÉÎÐÎÍ°Á ÃÍÐ £îõíâåò ÂÅÑ ºÉÎÐÎÍ° »ãèåãë éæ öáò ÃÍÐ £óôòéîç ÂÅÑ ºÉÎÐÎÍ± ÃÍÐ £¢¢¢ ÂÅÑ ºÉÎÐÎÍ± ÃÍÐ £¢¨¢ ÂÅÑ ÉÎÐÐÁÒ »éæ áî åøðòåóóéïî ÃÍÐ £óôòôùð ÂÌÔ ÉÎÐÎÕÍ² »ãèåãë éæ ïôèåò ôïëåî ÃÍÐ £ãïíðáòå ÂÌÔ ºÉÎÐÎÍ± »éó éô á óôòéîç¿ ÃÍÐ £° ÂÐÌ ÉÎÐÎÕÍ² »éó éô á ôïëåî¿ ÊÓÒ ÔÓÔßÎÕÍ ÂÃÃ ºÉÎÐÎÕÍ± ÌÄØ £óùîôáø »óùîôáø åòòïò ÊÍÐ ÂÁÄÅÒÒºÉÎÐÎÍ° ÊÓÒ ÖÁÒÓÅÔ ÌÄÙ £° »çåô öáìõå ïæ öáòéáâìå éî Ø¬Á ÌÄÁ ¨ÖÐÔÒ©¬Ù ÔÁØ ÉÎÙ ÌÄÁ ¨ÖÐÔÒ©¬Ù ÊÍÐ ÓÁÖÎÕÍÂ »óáöå éôºÉÎÐÎÍ± ÊÓÒ ÓÔÒÃÍÐ »çåô öáìõå ïæ åøðòåóóéïî ÌÄÁ £° »óáöå ôèå îõíâåò ÊÍÐ ÓÁÖÎÕÍÂºÉÎÐÎÍ°Á ÌÄØ £îïäáôá »íéóóéîç äáôá ÊÍÐ ÂÁÄÅÒÒºÉÎÐÎÕÍ± ÊÓÒ ÎÕÍÉÎ ÊÓÒ ÓÁÖÎÕÍÂ »óáöå îõíâåò ÃÍÐ £° ÂÐÌ ÇÅÔÎÕÍÂ ÌÄØ £îïóùíâïì ÊÍÐ ÂÁÄÅÒÒÉÎÐÎÕÍ² ÌÄÁ £° ÓÔÁ ÄÁÔÁ »òåóåô äáôá ÊÓÒ ÇÅÔÂÙÔ ÃÌÃ »ãáìì æòïí óïíå÷èåòå åìóå ÊÓÒ ÅØßÔÏË »åøåã ôèå ôïëåî ÌÄÁ ÄÁÔÁ ÁÎÄ £± »äéä ÷å çåô öáìéä äáôá¿ ÂÎÅ ÉÎÐÎÍ² »ùåðÉÎÐÎÍ³ ÌÄØ £âáäôùðå »ôùðå íéóíáôãè åòòïò ÊÍÐ ÂÁÄÅÒÒÉÎÐÎÍ² ÌÄØ ÄÁÔÁ«± »ôòáîóæåò äáôá ÌÄÁ ÄÁÔÁ«² ÊÍÐ ÓÁÖÎÕÍÂª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á îõíåòéã áòçõíåîôª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÎÁÒÇ ÊÓÒ ÉÎÐÁÒÇ »äï éîðõô ÁÎÄ £± ÂÎÅ ÉÎÐÎÍ³ »éæ óôòéîç¬ åòòïò ÊÍÐ ÇÅÔÎÕÍÂ »òåôõòî öáìõåóª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á óôòéîç áòçõíåîôª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÓÁÒÇ ÊÓÒ ÉÎÐÁÒÇ »äï éîðõô ÁÎÄ £± ÂÅÑ ÉÎÐÎÍ³ »éæ îõíâåò¬ åòòïò ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á áòçõíåîôª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÁÒÇ ÊÓÒ ÇÅÔÂÙÔ »çåô äáôá ÃÍÐ £¢¨¢ ÂÅÑ ºÉÎÐÁÒÇ² »ãèåãë æïò óôáòô ïò ãïîôéîõáôéïî ÃÍÐ £¢¬¢ ÂÅÑ ºÉÎÐÁÒÇ² »ïæ áî áòçõíåîôºÉÎÐÁÒÇ± ÌÄØ £îïäáôá »íéóóéîç äáôá ÊÍÐ ÂÁÄÅÒÒºÉÎÐÁÒÇ² ÊÓÒ ÁÒÇÔÙÐ »æéîä ïõô ôùðå ¨îõíâåò ïò óôòéîç© ÐÈÐ ÂÃÓ ºÉÎÐÁÒÇ³ ÊÓÒ ÉÎÐÎÕÍ ÊÍÐ ºÉÎÐÁÒÇ´ºÉÎÐÁÒÇ³ ÊÓÒ ÉÎÐÓÔÒºÉÎÐÁÒÇ´ ÊÓÒ ÃÈËÂÙÔ »ãèåãë îåøô âùôå ÌÄØ £± ÃÍÐ £¢¬¢ ÂÅÑ ºÉÎÐÁÒÇµ »éó ôèåòå íïòå¿¬ ùåð ÊÓÒ ÇÅÔÂÙÔ »çåô ôèå òåóô ÌÄØ £° ÃÍÐ £¢©¢ ÂÎÅ ºÉÎÐÁÒÇ± »ïæ áòç¬ îïðå¬ åòòïòºÉÎÐÁÒÇµ ÔØÁ »âéô ° º ãìåáò ½ îõíâåò  óåô ½ óôòéîç ÐÌÐ »âéô ± º ãìåáò ½ äïîå    óåô ½ íïòå áòçó ÒÏÌ ÃÍÐ £° ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª æéîä ïõô ôùðå ïæ äáôá¯ôïëåîª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÁÒÇÔÙÐ ÊÓÒ ÃÈËÂÙÔ ÃÍÐ £¢¢¢ ÂÅÑ ºÁÒÇÔÙÐ± »éæ éô§ó ôåøô ÃÍÐ £¢¨¢ ÂÅÑ ºÁÒÇÔÙÐ² »éæ éô§ó áî åøðòåóóéïî ÃÍÐ £° ÂÍÉ ºÁÒÇÔÙÐ² »éæ éô§ó ïôèåò ôèáî ôåøô ÃÍÐ £óôòéîç ÂÅÑ ºÁÒÇÔÙÐ± »éæ éô§ó á óôòéîç öáò ÃÍÐ £óôòôùð ÂÌÔ ºÁÒÇÔÙÐ² »éæ éô§ó á óôòéîç¬ óåô ôèå ãáòòù ÃÍÐ £ãïíðáòå ÂÇÅ ºÁÒÇÔÙÐ² »íáëå óõòå éô§ó éî òáîçåºÁÒÇÔÙÐ± ÓÅÃ »éô§ó á óôòéîç ÒÔÓºÁÒÇÔÙÐ² ÃÌÃ »éô§ó á îõíâåò ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á óôòéîç ÷éôèïõô áììïãáôéîç íåíïòùª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÓÔÒ² ÌÄÁ ÖÁÒÓÔÒ ÐÈÁ ÌÄÁ ÖÁÒÓÔÒ«± ÐÈÁ ÊÓÒ ÉÎÐÓÔÒ ÐÌÁ ÓÔÁ ÖÁÒÓÔÒ«± ÐÌÁ ÓÔÁ ÖÁÒÓÔÒ ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª éîðõô á óôòéîçª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÓÔÒ ÊÓÒ ÉÎÐÓÔÒ° ÓÔÁ ÓÔÒÌÏÃ«± »óáöå ìåîçôè áîä ìïãáôéïî ÓÔØ ÓÔÒÌÏÃ ÓÔÙ ÓÔÒÌÅÎ ÊÓÒ ÃÈËÂÙÔ ÃÍÐ £íáôè ÂÎÅ ÇÔÓÔÒÉÎÆ »á ñõéãë åøéô ðïéîô ÌÄÁ ÖÁÒÓÔÒ«± »óáöå ôèå îå÷ ðïéîôåò ÐÈÁ ÌÄÁ ÖÁÒÓÔÒ ÐÈÁ ÔÙÁ ÐÈÁ ÊÓÒ ÇÅÔÂÙÔ »óáöå óôáòô ïæ ÷ïòëéîç óôòéîç óðáãå ÊÓÒ ÓÔÒÃÏÐÙºÉÎÐÓÔÒÂ ÌÄÁ ÖÁÒÓÔÒ«± »óáöå ãõòòåîô ðïéîôåò ÐÈÁ ÌÄÁ ÖÁÒÓÔÒ ÐÈÁ ÊÓÒ ÉÎÐÓÔÒ° »çåô îå÷ óôòéîç ÓÔÁ ÓÔÒÌÏÃ«± »óáöå ìåîçôè áîä ìïãáôéïî ÓÔØ ÓÔÒÌÏÃ ÓÔÙ ÓÔÒÌÅÎ ÐÌÁ ÓÔÁ ÖÁÒÓÔÒ »òåóôïòå öáò ðïéîôåòó ÐÌÁ ÓÔÁ ÖÁÒÓÔÒ«± ÐÌÁ ÓÔÁ ÔÔÌÌÅÎ »õðäáôå ìåîçôè ÊÓÒ ÓÔÒÃÏÐÙ »ãïðù ôèå îå÷ óôòéîç ÌÄÁ ÔÔÌÌÅÎ ÐÈÁ ÊÓÒ ÃÈËÂÙÔ ÃÍÐ £íáôè ÂÎÅ ºÉÎÐÓÔÒÃ »éæ ôèåòå íïòå¬ äï éô ÊÓÒ ÇÅÔÂÙÔ »çïââìå áîä ãïîôéîõå ÊÍÐ ºÉÎÐÓÔÒÂºÉÎÐÓÔÒÃ ÐÌÁ ÓÔÁ ÓÔÒÌÅÎ »ðõô âáãë äáôá ÐÌÁ ÓÔÁ ÓÔÒÌÏÃ ÐÌÁ ÓÔÁ ÓÔÒÌÏÃ«±ÇÔÓÔÒÉÎÆ ÌÄÁ ÓÔÒÌÏÃ«± »çåô âáãë óôõææ ÌÄØ ÓÔÒÌÏÃ ÌÄÙ ÓÔÒÌÅÎ ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª áãôõáììù çåô ôèå óôòéîçª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÉÎÐÓÔÒ° ÊÓÒ ÃÈËÂÙÔ ÃÍÐ £¢¢¢ ÂÅÑ ºÉÎÐÓÔÒ± »éæ ôåøô ÃÍÐ £óôòéîç ÂÎÅ ºÉÎÐÓÔÒµ »èáîäìå ôïëåî ÊÓÒ ÖÁÒÓÅÔ »ðïéîô ôï öáò ÌÄÙ £± ÌÄÁ ¨ÖÐÔÒ©¬Ù »çåô ôèå èéçè­âùôå ïæ ðïéîôåò ÐÈÁ ÄÅÙ ÌÄÁ ¨ÖÐÔÒ©¬Ù »çåô ôèå ìï÷­âùôå ïæ ðïéîôåò ÔÁØ ÌÄÙ £² ÌÄÁ ¨ÖÐÔÒ©¬Ù »çåô ôèå ìåîçôè ÔÁÙ ÐÌÁ ÒÔÓºÉÎÐÓÔÒ± ÊÓÒ ÇÅÔÂÙÔ »áîä çïââìå æéòóô ñõïôå ÌÄØ ÐÒÇÐÔÒ »óáöå óôòéîç ìïãáôéïî ÌÄÁ ÐÒÇÐÔÒ«± ÐÈÁ ÌÄÙ £°ºÉÎÐÓÔÒ² ÊÓÒ ÇÅÔÂÙÔ »ãáìã óôòéîç ìåîçôè ÃÍÐ £¢¢¢ ÂÅÑ ºÉÎÐÓÔÒ´ »ãèåãë æïò åîä ÉÎÙ ÂÎÅ ºÉÎÐÓÔÒ² ÐÌÁ ÌÄØ £óôò²âéç »óôòéîç ïöåòæìï÷ºÉÎÐÓÔÒ³ ÊÍÐ ÂÁÄÅÒÒºÉÎÐÓÔÒ´ ÐÌÁ »á¬ø¬ù îï÷ èáöå óôòéîç äáôá ÒÔÓºÉÎÐÓÔÒµ ÌÄÁ £° ÓÔÁ ÄÁÔÁ »òåóåô äáôá ôùðå ÊÓÒ ÇÅÔÂÙÔ ÃÌÃ »ãáììåä æòïí óïíå÷èåòå åìóå ÊÓÒ ÅØßÔÏË »åøåã ôïëåî ÌÄÁ ÄÁÔÁ ÌÄØ £âáäôùðå ÁÎÄ £² ÂÅÑ ºÉÎÐÓÔÒ³ »óôòéîç ïöåòæìï÷ ÌÄØ ÄÁÔÁ«± »çåô äáôá ÌÄÁ ÄÁÔÁ«² ÌÄÙ ÄÁÔÁ«³ ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ãïðù á óôòéîç æòïí ðïéîôåòó ôï ãõòòåîô öáòóôòª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÓÔÒÃÏÐÙ ÌÄÙ £°ºÓÔÒÃÏÐ² ÃÐÙ ÓÔÒÌÅÎ ÂÅÑ ºÓÔÒÃÏÐ³ »çï õîôéì äïîå ÌÄÁ ¨ÓÔÒÌÏÃ©¬Ù ÓÔÁ ¨ÖÁÒÓÔÒ©¬Ù »ãïðù âùôå ÉÎÃ ÔÔÌÌÅÎ »éîãòåáóå ôïôáì ìåîçôè ÂÅÑ ºÓÔÒ²ÂÉÇ »îï÷ éô§ó ôïï âéç ÉÎÙ ÂÎÅ ºÓÔÒÃÏÐ²ºÓÔÒÃÏÐ³ ÔÙÁ »áää éî âùôåó ãïðéåä ÃÌÃ ÁÄÃ ÖÁÒÓÔÒ ÓÔÁ ÖÁÒÓÔÒ ÌÄÁ £° ÁÄÃ ÖÁÒÓÔÒ«± ÓÔÁ ÖÁÒÓÔÒ«± ÒÔÓºÓÔÒ²ÂÉÇ ÌÄØ £óôò²âéç »Óôòéîç ôïï ìïîç ÊÍÐ ÂÁÄÅÒÒª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ãïíðáòå ² óôòéîçóª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÓÔÒÃÍÐ ÌÄÁ ÖÁÒÓÔÒ »äïî§ô çïââìå áîù óðáãå ÐÈÁ ÌÄÁ ÖÁÒÓÔÒ«± ÐÈÁ ÊÓÒ ÉÎÐÓÔÒ »çåô óôòéîç ± ÌÄÁ ÓÔÒÌÏÃ »óáöå ðïéîôåòó ôï äáôá ÓÔÁ ÔÅÍÐ³ ÌÄÁ ÓÔÒÌÏÃ«± ÓÔÁ ÔÅÍÐ³«± ÌÄÁ ÓÔÒÌÅÎ ÓÔÁ ÔÅÍÐ² »óáöå ìåîçôè ïæ äáôá ÊÓÒ ÃÈËÂÙÔ ÃÍÐ £ãïíðáòå ÂÌÔ ºÓÔÒÃÍÐ¸ »óåå éæ ôèåòå éó áãôõáììù á ãïíðáòå ÃÍÐ £ìïçéã ÂÇÅ ºÓÔÒÃÍÐ¸ ÊÓÒ ÇÅÔÂÙÔ »çïââìå ôïëåî ÓÅÃ ÓÂÃ £ãïíðáòå ÁÓÌ ÐÈÁ ÊÓÒ ÉÎÐÓÔÒ »çåô óåãïîä óôòéîç ÐÌÁ ÔÁØ ÌÄÁ ÊÓÔÒÃÐ¬Ø ÓÔÁ ÔÅÍÐ ÌÄÁ ÊÓÔÒÃÐ«±¬Ø ÓÔÁ ÔÅÍÐ«± ÊÍÐ ¨ÔÅÍÐ©ºÓÔÒÃÍÐ¸ ÌÄØ £° »éæ ìåîçôè ½ °¬ îïô öáìéä ÌÄÁ ÔÅÍÐ² »éæ ìåîçôè ¾ °¬ òåôõòî öáìéä ÂÅÑ ÓÔÒÃÍÐ¹ ÌÄØ £±ÓÔÒÃÍÐ¹ ÐÌÁ ÓÔÁ ÖÁÒÓÔÒ«± »òåóôïòå óôõææ ÐÌÁ ÓÔÁ ÖÁÒÓÔÒ ÌÄÁ £° ÒÔÓÓÔßÅÑ ÊÓÒ ÓÔÒÅÑ ÊÍÐ ÓÔÒÃÍÐ¹ÓÔßÎÏÔ ÊÓÒ ÓÔÒÅÑ ÊÓÒ ÉÎÖÅÒÔ ÊÍÐ ÓÔÒÃÍÐ¹ÓÔßÌÔ ÊÓÒ ÓÔÒÌÔ ÊÍÐ ÓÔÒÃÍÐ¹ÓÔßÇÔ ÊÓÒ ÓÔÒÇÔ ÊÍÐ ÓÔÒÃÍÐ¹ÓÔßÌÔÅÑ ÊÓÒ ÓÔÒÇÔ ÊÓÒ ÉÎÖÅÒÔ ÊÍÐ ÓÔÒÃÍÐ¹ÓÔßÇÔÅÑ ÊÓÒ ÓÔÒÌÔ ÊÓÒ ÉÎÖÅÒÔ ÊÍÐ ÓÔÒÃÍÐ¹ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ ãïíðáòå áìçïòéôèíó ­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÓÔÒÅÑ ÌÄØ ÔÅÍÐ² »ãèåãë óôòéîç ìåîçôè§ó ÃÐØ ÓÔÒÌÅÎ ÂÎÅ ºÓÔÒÅÑ° ÌÄÙ £­±ºÓÔÒÅÑ² ÉÎÙ ÃÐÙ ÓÔÒÌÅÎ ÂÅÑ ºÓÔÒÅÑ± »áòå ÷å äïîå¿¬ ùåð ÌÄÁ ¨ÔÅÍÐ³©¬Ù ÃÍÐ ¨ÓÔÒÌÏÃ©¬Ù ÂÅÑ ºÓÔÒÅÑ² »äï ãèåãë¬ ëååð çïéîçºÓÔÒÅÑ° ÌÄØ £° ÒÔÓºÓÔÒÅÑ± ÌÄØ £± ÒÔÓÓÔÒÌÔ ÌÄØ ÔÅÍÐ² »óáöå óíáììåò ìåîçôè ÃÐØ ÓÔÒÌÅÎ ÂÇÅ ºÓÔÒÌÔ² ÌÄØ ÓÔÒÌÅÎ ÓÔØ ÔÅÍÐ²ºÓÔÒÌÔ² ÌÄÙ £­±ºÓÔÒÌÔ³ ÉÎÙ ÃÐÙ ÔÅÍÐ² ÂÅÑ ºÓÔÒÌÔ° ÌÄÁ ¨ÔÅÍÐ³©¬Ù ÃÍÐ ¨ÓÔÒÌÏÃ©¬Ù ÂÅÑ ºÓÔÒÌÔ³ ÂÌÔ ºÓÔÒÌÔ± ÂÇÅ ºÓÔÒÌÔ° ÌÄÁ ÔÅÍÐ² ÃÍÐ ÓÔÒÌÅÎ ÂÃÓ ºÓÔÒÌÔ°ºÓÔÒÌÔ± ÌÄØ £± ÒÔÓºÓÔÒÌÔ° ÌÄØ £° ÒÔÓÓÔÒÇÔ ÌÄØ ÓÔÒÌÅÎ »óáöå óíáììåò ìåîçôè ÃÐØ ÔÅÍÐ² ÂÇÅ ºÓÔÒÇÔ² ÌÄØ ÔÅÍÐ² ÓÔØ ÓÔÒÌÅÎºÓÔÒÇÔ² ÌÄÙ £­±ºÓÔÒÇÔ³ ÉÎÙ ÃÐÙ ÓÔÒÌÅÎ ÂÅÑ ºÓÔÒÇÔ° ÌÄÁ ¨ÓÔÒÌÏÃ©¬Ù ÃÍÐ ¨ÔÅÍÐ³©¬Ù ÂÅÑ ºÓÔÒÇÔ³ ÂÌÔ ºÓÔÒÇÔ± ÂÇÅ ºÓÔÒÇÔ° ÌÄÁ ÓÔÒÌÅÎ ÃÍÐ ÔÅÍÐ² ÂÃÓ ºÓÔÒÇÔ°ºÓÔÒÇÔ± ÌÄØ £± ÒÔÓºÓÔÒÇÔ° ÌÄØ £°ÓÔÒÒÔÓ ÒÔÓª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ãèåãë áîä óåå éæ ÷å îååä ôï ãìåáò õðª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÃÈËÆÒÅ ÌÄØ ÖÁÒÓÔÒ«± »çåô èéçè ïæ ãõòòåîô ðïéîôåò ÉÎØ ÃÐØ ÍÉÄÍÅÍ«± ÂÌÔ ÓÔÒÒÔÓ »áòå ÷å ïë¿¬ áìì éó ÷åììª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ãìåáî õð óôòéîçó éî íåíïòùª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ÄÏßÆÒÅ ÌÄÁ ÈÉÍÅÍ »ðïéîô ôï ðïéîôåòó ÓÔÁ ÔÅÍÐ ÌÄÁ ÈÉÍÅÍ«± ÓÔÁ ÔÅÍÐ«± ÌÄÁ ÍÉÄÍÅÍ »ðïéîô ôï ÷ïòëéîç óðáãå ÓÔÁ ÔÅÍÐ³ ÌÄÁ ÍÉÄÍÅÍ«± ÓÔÁ ÔÅÍÐ³«± ÓÅÃ ÌÄÁ ÍÉÄÍÅÍ ÓÂÃ ÌÏÍÅÍ ÓÔÁ ÔÅÍÐ² »ãïíðõôå ïææóåô ÌÄÁ ÍÉÄÍÅÍ«± ÓÂÃ ÌÏÍÅÍ«± ÓÔÁ ÔÅÍÐ²«± ÌÄÁ £± ÓÔÁ ÆÒÅÍÅÍ »íïöå íéîéíõí ïæ ± ðáçåºÆÒÅ² ÓÅÃ ÌÄÁ ÔÅÍÐ ÓÂÃ £¶ ÓÔÁ ÔÅÍÐ »íïöå ðïéîôåòó ÌÄÁ ÔÅÍÐ«± ÓÂÃ £° ÓÔÁ ÔÅÍÐ«± ÌÄÙ £° ÌÄÁ ¨ÔÅÍÐ©¬Ù ÂÅÑ ºÆÒÅ´ »÷å áòå äïîå ÂÐÌ ºÆÒÅ² »äïî§ô äï îõíâåòó ÌÄÙ £² ÌÄÁ ¨ÔÅÍÐ©¬Ù ÓÔÁ ÖÐÔÒ »ðïéîô ôï óôòéîç ÉÎÙ ÌÄÁ ¨ÔÅÍÐ©¬Ù ÓÔÁ ÖÐÔÒ«± ÂÅÑ ºÆÒÅ² »îå÷ óôòéîç ÃÍÐ £¾ÃÏÄÅÎÄ ÂÌÔ ºÆÒÅ² »éæ ðòïôåãôåä óôòéîç¬ äïî§ô íïöå éô ÉÎÙ ÌÄÁ ¨ÔÅÍÐ©¬Ù ÔÁØ ÂÅÑ ºÆÒÅ² »éæ åíðôù®®® ÌÄÙ £² »ðõô éî îå÷ ðïéîôåò ÓÅÃ ÌÄÁ ÔÅÍÐ³ ÓÂÃ ÔÅÍÐ² ÓÔÁ ¨ÔÅÍÐ©¬Ù ÉÎÙ ÌÄÁ ÔÅÍÐ³«± ÓÂÃ ÔÅÍÐ²«± ÓÔÁ ¨ÔÅÍÐ©¬Ù ÌÄÙ £°ºÆÒÅ³ ÌÄÁ ¨ÖÐÔÒ©¬Ù ÓÔÁ ¨ÔÅÍÐ³©¬Ù ÉÎÙ ÄÅØ ÂÎÅ ºÆÒÅ³ ÃÌÃ ÔÙÁ ÁÄÃ ÔÅÍÐ³ »íïöå õð ðïéîôåò ÓÔÁ ÔÅÍÐ³ ÌÄÁ ÔÅÍÐ³«± ÂÃÃ ºÆÒÅ² »ëååð ìïïðéîç ÉÎÃ ÔÅÍÐ³«± ÉÎÃ ÆÒÅÍÅÍ ÊÍÐ ºÆÒÅ² »ëååð çïéîçºÆÒÅ´ ÓÅÃ ÌÄÁ ÔÅÍÐ³ ÓÂÃ ÔÅÍÐ² ÓÔÁ ÖÁÒÓÔÒ »ãïíðõôå îå÷ öáòóôò ÌÄÁ ÔÅÍÐ³«± ÓÂÃ ÔÅÍÐ²«± ÓÔÁ ÖÁÒÓÔÒ«± ÌÄÁ ÌÏÍÅÍ »ðïéîô áô óôòéîç óðáãå ÓÔÁ ÔÅÍÐ ÌÄÁ ÌÏÍÅÍ«± ÓÔÁ ÔÅÍÐ«± ÌÄÁ ÍÉÄÍÅÍ »ðïéîô áô æéøåä óôòéîçó ÓÔÁ ÔÅÍÐ² ÌÄÁ ÍÉÄÍÅÍ«± ÓÔÁ ÔÅÍÐ²«± ÌÄØ ÆÒÅÍÅÍ »îõíâåò ïæ ðáçåó ôï íïöå ÌÄÙ £°ºÆÒÅµ ÌÄÁ ¨ÔÅÍÐ²©¬Ù ÓÔÁ ¨ÔÅÍÐ©¬Ù ÉÎÙ ÂÎÅ ºÆÒÅµ ÉÎÃ ÔÅÍÐ«± ÉÎÃ ÔÅÍÐ²«± ÄÅØ ÂÎÅ ºÆÒÅµ »äï ôèå íïöå ÒÔÓ
+ PAG
+********************************
+*                              *
+*     ACOS.OBJ - Variables     *
+*                              *
+********************************
+ DATE
+*-------------------------------
+* set up pointers to variables
+*-------------------------------
+
+VARSET JSR GETBYT ;get string or number indicator
+ PHA
+ JSR GETBYT ;get name
+ STA VNAME
+ JSR GETBYT
+ STA VNAME+1
+ PLA
+ CMP #number
+ BEQ VARSET3 ;handle number
+
+ CMP #string
+ BEQ :VARSET2 ;handle string
+
+ LDX #syntax
+ JMP BADERR ;syntax error!
+
+:VARSET2 LDA VNAME ;show it's a string
+ ORA #hibit
+ STA VNAME ;point to start of pointers
+VARSET3 LDA HIMEM
+ STA TEMP
+ LDA HIMEM+1
+ STA TEMP+1
+:VARSET5 SEC ;temp = temp - 6
+ LDA TEMP
+ SBC #6
+ STA TEMP
+ LDA TEMP+1
+ SBC #0
+ STA TEMP+1
+
+ LDY #0
+ LDA (TEMP),Y ;check low byte
+ BEQ :VARSET8 ;create new var
+
+ CMP VNAME
+ BNE :VARSET5 ;no match
+
+ INY
+ LDA (TEMP),Y ;check high byte
+ CMP VNAME+1
+ BNE :VARSET5 ;no match
+
+:VARSET7 CLC ;vptr = temp + 2
+ LDA #2
+ ADC TEMP
+ STA VPTR
+ TAX ;return with A & X pointing at var
+ LDA #0
+ ADC TEMP+1
+ STA VPTR+1
+ RTS
+
+:VARSET8 SEC
+ LDA TEMP+1
+ SBC LOMEM+1 ;find total string space
+ LSR
+ CLC
+ ADC LOMEM+1 ;find boundary
+ STA MIDMEM+1 ;save high byte
+ LDA #0 ;save low byte
+ STA MIDMEM
+
+ DEC TEMP+1
+ LDY #$F9 ;do next entry also
+ LDX #10 ;fill rest with 0's
+ LDA #0
+:VARSET9 INY
+ BNE :VARSETA
+ INC TEMP+1
+:VARSETA STA (TEMP),Y
+ DEX
+ BNE :VARSET9
+
+ LDY #0
+ LDA VNAME
+ STA (TEMP),Y ;save the var name
+ INY
+ LDA VNAME+1
+ STA (TEMP),Y
+ JMP :VARSET7 ;set up pointers
+
+*-------------------------------
+* input a number or expression
+*-------------------------------
+
+INPNUM LDA TEMP ;save temp var's
+ PHA
+ LDA TEMP+1
+ PHA
+ LDA TEMP2
+ PHA
+ LDA TEMP2+1
+ PHA
+
+ JSR INPNUM0 ;get initial number
+:INPNUM3 JSR CHKBYT
+ BMI :INPNM3A
+
+ CMP #compare
+ BGE :INPNUM5 ;don't do compare operands
+
+:INPNM3A PLA
+ STA TEMP2+1 ;restore stuff
+ PLA
+ STA TEMP2
+ PLA
+ STA TEMP+1
+ PLA
+ STA TEMP
+ JMP GETNUMB
+
+:INPNUM5 JSR INPNUM2 ;exec token
+ JMP :INPNUM3
+
+*-------------------------------
+* input a number of expression for math operations
+*-------------------------------
+
+INPMATH JSR INPNUM0 ;get initial number
+INPMTH1 JSR CHKBYT
+ BMI GETNUMB
+
+ CMP #math
+ BLT GETNUMB ;check for math operand, we're done
+
+ JSR INPNUM2
+ JMP INPMTH1
+
+*-------------------------------
+* input a paren
+*-------------------------------
+
+INPPAR JSR GETBYT ;get the byte
+ JSR INPNUM
+ JSR SAVNUMB ;save number
+
+ JSR GETBYT
+ CMP #")"
+ BEQ INPPAR2 ;was close there?, yep
+
+ LDX #syntax ;syntax error
+ JMP BADERR
+
+*-------------------------------
+* finish up here
+*-------------------------------
+
+GETNUMB LDX NUMB
+ LDA NUMB+1
+INPPAR2 RTS
+
+SAVNUMB STX NUMB
+ STA NUMB+1
+ RTS
+
+*-------------------------------
+* input a number
+*-------------------------------
+
+INPNUM0 LDA #0 ;init number
+ TAX
+ JSR SAVNUMB
+ JSR CHKBYT ;get next token
+ CMP #chain
+ BEQ :INPNM0A ;missing data
+ CMP #chain2
+ BEQ :INPNM0A
+
+ CMP #number
+ BEQ :INPNM0 ;check if var
+ CMP #string
+ BEQ :INPNM1
+ CMP #"""
+ BEQ :INPNM1
+
+ CMP #"("
+ BEQ INPPAR ;if an expression
+
+ CMP #strtyp
+ BLT INPNUM2 ;check if other token
+ CMP #compare
+ BLT :INPNM1 ;is it a string?
+ CMP #0
+ BPL INPNUM2 ;is it a token?
+
+ JSR TST_NUM
+ BCC :INPNUM1
+
+ LDX #syntax ;syntax error
+ JMP BADERR
+
+:INPNM0 JSR VARSET
+
+ LDY #0 ;get value of variable in X,A
+ LDA (VPTR),Y
+ TAX
+ INY
+ LDA (VPTR),Y
+ JMP SAVNUMB ;save it
+
+:INPNM1 JSR STRCMP ;get value of expression
+ LDA #0 ;save the number
+ JMP SAVNUMB
+
+:INPNM0A LDX #nodata ;missing data
+ JMP BADERR
+
+:INPNUM1 JSR NUMIN
+ JSR SAVNUMB ;save number
+ CMP #0
+ BPL GETNUMB
+ LDX #nosymbol
+ JMP BADERR
+
+INPNUM2 LDA #0
+ STA DATA ;reset data
+ JSR GETBYT
+ CLC ;call from somewhere else
+ JSR EX_TOK ;exec the token
+ LDA DATA
+ AND #1 ;did we get valid data?
+ BNE INPNM2 ;yep
+
+INPNM3 LDX #badtype ;type mismatch error
+ JMP BADERR
+
+INPNM2 LDX DATA+1 ;transfer data
+ LDA DATA+2
+ JMP SAVNUMB
+
+*-------------------------------
+* input a numeric argument
+*-------------------------------
+
+INPNARG JSR INPARG ;do input
+ AND #1
+ BNE INPNM3 ;if string, error
+ JMP GETNUMB ;return values
+
+*-------------------------------
+* input a string argument
+*-------------------------------
+
+INPSARG JSR INPARG ;do input
+ AND #1
+ BEQ INPNM3 ;if number, error
+ RTS
+
+*-------------------------------
+* input a argument
+*-------------------------------
+
+INPARG JSR GETBYT ;get data
+ CMP #"("
+ BEQ :INPARG2 ;check for start or continuation
+ CMP #","
+ BEQ :INPARG2 ;of an argument
+
+:INPARG1 LDX #nodata ;missing data
+ JMP BADERR
+
+:INPARG2 JSR ARGTYP ;find out type (number or string)
+ PHP
+ BCS :INPARG3
+
+ JSR INPNUM
+ JMP :INPARG4
+
+:INPARG3 JSR INPSTR
+:INPARG4 JSR CHKBYT ;check next byte
+ LDX #1
+ CMP #","
+ BEQ :INPARG5 ;is there more?, yep
+
+ JSR GETBYT ;get the rest
+ LDX #0
+ CMP #")"
+ BNE :INPARG1 ;of arg, nope, error
+
+:INPARG5 TXA ;bit 0 : clear = number  set = string
+ PLP ;bit 1 : clear = done    set = more args
+ ROL
+ CMP #0
+ RTS
+
+*-------------------------------
+* find out type of data/token
+*-------------------------------
+
+ARGTYP JSR CHKBYT
+ CMP #"""
+ BEQ :ARGTYP1 ;if it's text
+
+ CMP #"("
+ BEQ :ARGTYP2 ;if it's an expression
+
+ CMP #0
+ BMI :ARGTYP2 ;if it's other than text
+
+ CMP #string
+ BEQ :ARGTYP1 ;if it's a string var
+
+ CMP #strtyp
+ BLT :ARGTYP2 ;if it's a string, set the carry
+
+ CMP #compare
+ BGE :ARGTYP2 ;make sure it's in range
+
+:ARGTYP1 SEC ;it's a string
+ RTS
+
+:ARGTYP2 CLC ;it's a number
+ RTS
+
+*-------------------------------
+* input a string without allocating memory
+*-------------------------------
+
+INSTR2 LDA VARSTR
+ PHA
+ LDA VARSTR+1
+ PHA
+ JSR INPSTR
+ PLA
+ STA VARSTR+1
+ PLA
+ STA VARSTR
+ RTS
+
+*-------------------------------
+* input a string
+*-------------------------------
+
+INPSTR JSR INPSTR0
+ STA STRLOC+1 ;save length and location
+ STX STRLOC
+ STY STRLEN
+
+ JSR CHKBYT
+ CMP #math
+ BNE GTSTRINF ;a quick exit point
+
+ LDA VARSTR+1 ;save the new pointer
+ PHA
+ LDA VARSTR
+ PHA
+ TYA
+ PHA
+
+ JSR GETBYT ;save start of working string space
+ JSR STRCOPY
+
+:INPSTRB LDA VARSTR+1 ;save current pointer
+ PHA
+ LDA VARSTR
+ PHA
+
+ JSR INPSTR0 ;get new string
+ STA STRLOC+1 ;save length and location
+ STX STRLOC
+ STY STRLEN
+
+ PLA
+ STA VARSTR ;restore var pointers
+ PLA
+ STA VARSTR+1
+ PLA
+ STA TTLLEN ;update length
+ JSR STRCOPY ;copy the new string
+ LDA TTLLEN
+ PHA
+
+ JSR CHKBYT
+ CMP #math
+ BNE :INPSTRC ;if there more, do it
+
+ JSR GETBYT ;gobble and continue
+ JMP :INPSTRB
+
+:INPSTRC PLA
+ STA STRLEN ;put back data
+ PLA
+ STA STRLOC
+ PLA
+ STA STRLOC+1
+
+GTSTRINF LDA STRLOC+1 ;get back stuff
+ LDX STRLOC
+ LDY STRLEN
+ RTS
+
+*-------------------------------
+* actually get the string
+*-------------------------------
+
+INPSTR0 JSR CHKBYT
+ CMP #"""
+ BEQ :INPSTR1 ;if text
+
+ CMP #string
+ BNE :INPSTR5 ;handle token
+
+ JSR VARSET ;point to var
+ LDY #1
+ LDA (VPTR),Y ;get the high-byte of pointer
+ PHA
+ DEY
+ LDA (VPTR),Y ;get the low-byte of pointer
+ TAX
+ LDY #2
+ LDA (VPTR),Y ;get the length
+ TAY
+ PLA
+ RTS
+
+:INPSTR1 JSR GETBYT ;and gobble first quote
+ LDX PRGPTR ;save string location
+ LDA PRGPTR+1
+ PHA
+ LDY #0
+:INPSTR2 JSR GETBYT ;calc string length
+ CMP #"""
+ BEQ :INPSTR4 ;check for end
+
+ INY
+ BNE :INPSTR2
+
+ PLA
+ LDX #str2big ;string overflow
+:INPSTR3 JMP BADERR
+
+:INPSTR4 PLA ;a,x,y now have string data
+ RTS
+
+:INPSTR5 LDA #0
+ STA DATA ;reset data type
+ JSR GETBYT
+ CLC ;called from somewhere else
+ JSR EX_TOK ;exec token
+ LDA DATA
+ LDX #badtype
+ AND #2
+ BEQ :INPSTR3 ;string overflow
+
+ LDX DATA+1 ;get data
+ LDA DATA+2
+ LDY DATA+3
+ RTS
+
+*-------------------------------
+* copy a string from pointers to current varstr
+*-------------------------------
+
+STRCOPY LDY #0
+:STRCOP2 CPY STRLEN
+ BEQ :STRCOP3 ;go until done
+
+ LDA (STRLOC),Y
+ STA (VARSTR),Y ;copy byte
+ INC TTLLEN ;increase total length
+ BEQ :STR2BIG ;now it's too big
+ INY
+ BNE :STRCOP2
+
+:STRCOP3 TYA ;add in bytes copied
+ CLC
+ ADC VARSTR
+ STA VARSTR
+ LDA #0
+ ADC VARSTR+1
+ STA VARSTR+1
+ RTS
+
+:STR2BIG LDX #str2big ;String too long
+ JMP BADERR
+
+*-------------------------------
+* compare 2 strings
+*-------------------------------
+
+STRCMP LDA VARSTR ;don't gobble any space
+ PHA
+ LDA VARSTR+1
+ PHA
+
+ JSR INPSTR ;get string 1
+ LDA STRLOC ;save pointers to data
+ STA TEMP3
+ LDA STRLOC+1
+ STA TEMP3+1
+ LDA STRLEN
+ STA TEMP2 ;save length of data
+
+ JSR CHKBYT
+ CMP #compare
+ BLT :STRCMP8 ;see if there is actually a compare
+
+ CMP #logic
+ BGE :STRCMP8
+
+ JSR GETBYT ;gobble token
+ SEC
+ SBC #compare
+ ASL
+ PHA
+ JSR INPSTR ;get second string
+ PLA
+ TAX
+
+ LDA JSTRCP,X
+ STA TEMP
+ LDA JSTRCP+1,X
+ STA TEMP+1
+ JMP (TEMP)
+
+:STRCMP8 LDX #0 ;if length = 0, not valid
+ LDA TEMP2 ;if length > 0, return valid
+ BEQ STRCMP9
+
+ LDX #1
+STRCMP9 PLA
+ STA VARSTR+1 ;restore stuff
+ PLA
+ STA VARSTR
+ LDA #0
+ RTS
+
+ST_EQ JSR STREQ
+ JMP STRCMP9
+
+ST_NOT JSR STREQ
+ JSR INVERT
+ JMP STRCMP9
+
+ST_LT JSR STRLT
+ JMP STRCMP9
+
+ST_GT JSR STRGT
+ JMP STRCMP9
+
+ST_LTEQ JSR STRGT
+ JSR INVERT
+ JMP STRCMP9
+
+ST_GTEQ JSR STRLT
+ JSR INVERT
+ JMP STRCMP9
+
+*-------------------------------
+* ----- compare algorithms -----
+*-------------------------------
+
+STREQ LDX TEMP2 ;check string length's
+ CPX STRLEN
+ BNE :STREQ0
+
+ LDY #-1
+:STREQ2 INY
+ CPY STRLEN
+ BEQ :STREQ1 ;are we done?, yep
+
+ LDA (TEMP3),Y
+ CMP (STRLOC),Y
+ BEQ :STREQ2 ;do check, keep going
+
+:STREQ0 LDX #0
+ RTS
+
+:STREQ1 LDX #1
+ RTS
+
+STRLT LDX TEMP2 ;save smaller length
+ CPX STRLEN
+ BGE :STRLT2
+
+ LDX STRLEN
+ STX TEMP2
+
+:STRLT2 LDY #-1
+:STRLT3 INY
+ CPY TEMP2
+ BEQ :STRLT0
+
+ LDA (TEMP3),Y
+ CMP (STRLOC),Y
+ BEQ :STRLT3
+ BLT :STRLT1
+ BGE :STRLT0
+
+ LDA TEMP2
+ CMP STRLEN
+ BCS :STRLT0
+
+:STRLT1 LDX #1
+ RTS
+
+:STRLT0 LDX #0
+ RTS
+
+STRGT LDX STRLEN ;save smaller length
+ CPX TEMP2
+ BGE :STRGT2
+
+ LDX TEMP2
+ STX STRLEN
+
+:STRGT2 LDY #-1
+:STRGT3 INY
+ CPY STRLEN
+ BEQ :STRGT0
+
+ LDA (STRLOC),Y
+ CMP (TEMP3),Y
+ BEQ :STRGT3
+ BLT :STRGT1
+ BGE :STRGT0
+
+ LDA STRLEN
+ CMP TEMP2
+ BCS :STRGT0
+
+:STRGT1 LDX #1
+ RTS
+
+:STRGT0 LDX #0
+STRRTS RTS
+
+*-------------------------------
+* check and see if we need to clear up
+*-------------------------------
+
+CHKFRE LDX VARSTR+1 ;get high of current pointer
+ INX
+ CPX MIDMEM+1
+ BLT STRRTS ;are we ok?, all is well
+
+*-------------------------------
+* clean up strings in memory
+*-------------------------------
+
+DO_FRE LDA HIMEM ;point to pointers
+ STA TEMP
+ LDA HIMEM+1
+ STA TEMP+1
+
+ LDA MIDMEM ;point to working space
+ STA TEMP3
+ LDA MIDMEM+1
+ STA TEMP3+1
+
+ SEC
+ LDA MIDMEM
+ SBC LOMEM
+ STA TEMP2 ;compute offset
+ LDA MIDMEM+1
+ SBC LOMEM+1
+ STA TEMP2+1
+
+ LDA #1
+ STA FREMEM ;move minimum of 1 page
+
+:FRE2 SEC
+ LDA TEMP
+ SBC #6
+ STA TEMP ;move pointers
+ LDA TEMP+1
+ SBC #0
+ STA TEMP+1
+
+ LDY #0
+ LDA (TEMP),Y
+ BEQ :FRE4 ;we are done
+ BPL :FRE2 ;don't do numbers
+
+ LDY #2
+ LDA (TEMP),Y
+ STA VPTR ;point to string
+ INY
+ LDA (TEMP),Y
+ STA VPTR+1
+ BEQ :FRE2 ;new string
+
+ CMP #>CODEND
+ BLT :FRE2 ;if protected string, don't move it
+
+ INY
+ LDA (TEMP),Y
+ TAX
+ BEQ :FRE2 ;if empty...
+
+ LDY #2 ;put in new pointer
+
+ SEC
+ LDA TEMP3
+ SBC TEMP2
+ STA (TEMP),Y
+ INY
+ LDA TEMP3+1
+ SBC TEMP2+1
+ STA (TEMP),Y
+
+ LDY #0
+:FRE3 LDA (VPTR),Y
+ STA (TEMP3),Y
+ INY
+ DEX
+ BNE :FRE3
+
+ CLC
+ TYA
+ ADC TEMP3 ;move up pointer
+ STA TEMP3
+ LDA TEMP3+1
+ BCC :FRE2 ;keep looping
+
+ INC TEMP3+1
+ INC FREMEM
+ JMP :FRE2 ;keep going
+
+:FRE4 SEC
+ LDA TEMP3
+ SBC TEMP2
+ STA VARSTR ;compute new varstr
+ LDA TEMP3+1
+ SBC TEMP2+1
+ STA VARSTR+1
+
+ LDA LOMEM ;point at string space
+ STA TEMP
+ LDA LOMEM+1
+ STA TEMP+1
+
+ LDA MIDMEM ;point at fixed strings
+ STA TEMP2
+ LDA MIDMEM+1
+ STA TEMP2+1
+
+ LDX FREMEM ;number of pages to move
+ LDY #0
+:FRE5 LDA (TEMP2),Y
+ STA (TEMP),Y
+ INY
+ BNE :FRE5
+
+ INC TEMP+1
+ INC TEMP2+1
+ DEX
+ BNE :FRE5 ;do the move
+ RTS

@@ -1,1 +1,638 @@
- ΠΑΗªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª     ΑΓΟΣ®ΟΒΚ ­ Ιξιτ Γοδε     ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª ΔΑΤΕª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΣΤΑÒΤ± ΚΣÒ ΝΟΦΕΓΟΔΕ »δο νενοςω νοφε ΚΣÒ ΖΑΤΑΜ »ιξιτ στυζζ ΚΣÒ ΖΑΤΑΜµ »νοφε ζιμε ξανε ¨ξο ςετυςξ© ΚΝΠ ΖΑΤΑΜ¶ΣΤΑÒΤ² ΚΣÒ ΝΟΦΕΓΟΔΕ »νοφε νενοςω ΚΝΠ ΖΑΤΑΜ± »ιξιτ χ―ο δοιξη νοδενª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª δο νενοςω νοφε αξδ σετυπª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΝΟΦΕΓΟΔΕ ΜΔΑ ΣΕΤÒΑΝ »σεμεγτ ναιξ μγ βαξλ ΜΔΑ ΣΕΤÒΑΝ ΜΔΑ £ΌΪΔΑΤΑ »ποιξτ το δατα ΣΤΑ ΤΕΝΠ ΜΔΑ £ΎΪΔΑΤΑ ΣΤΑ ΤΕΝΠ«± ΜΔΑ £ΌΣΩΝΤΨΤ »ποιξτ το δεστ ΣΤΑ ΤΕΝΠ² ΜΔΑ £ΎΣΩΝΤΨΤ ΣΤΑ ΤΕΝΠ²«± ΜΔΩ £° »σταςτ οζζσετ ΜΔΨ £ΎΕΞΔίΝΦ«¤²µ¶ΊΔΟίΙΞ² ΜΔΑ ¨ΤΕΝΠ©¬Ω ΣΤΑ ¨ΤΕΝΠ²©¬Ω »γοπω βωτε ΙΞΩ ΒΞΕ ΊΔΟίΙΞ² ΙΞΓ ΤΕΝΠ«± ΙΞΓ ΤΕΝΠ²«± ΔΕΨ ΒΞΕ ΊΔΟίΙΞ² »γουξτ δοχξ ΜΔΩ £Έ°ΊΙΞΙΤ³ ΜΔΑ ΠΗ³ΚΝΠ¬Ω ΣΤΑ ΕΞΤΠΟΙΞΤ¬Ω »γοπω κυνπ ταβμε ιξτο πμαγε ΔΕΩ ΒΠΜ ΊΙΞΙΤ³ª            ΜΔΑ   £ΌΙÒΡίΖΙΨª            ΣΤΑ   ΙÒΡΦΕΓΤª            ΜΔΑ   £ΎΙÒΡίΖΙΨª            ΣΤΑ   ΙÒΡΦΕΓΤ«± ÒΤΣΪΔΑΤΑ ΟÒΗ ÒΑΝΓΑÒΔª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ­­­­­ αγτυαμ τολεξσ ­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΣΩΝΤΨΤ ΔΒ ­± »ςεσεςφεδ ΔΒ ­± »ςεσεςφεδ ΔΒ ­± »ςεσεςφεδ ΔΓΙ §ΕΞΔ§ »εξδ οζ νοδυμε ΔΓΙ §ΗΟΤΟ§ »ηοτο στατενεξτ ΔΓΙ §ΗΟΣΥΒ§ »ηοσυβ στατενεξτ ΔΓΙ §ΠΥΣΘ§ »πυσθ στατενεξτ ΔΓΙ §ΠΥΒΜΙΓ§ »πυβμιγ διςεγτιφε ΔΓΙ §Ί§ »γομοξ ΔΒ ­± »ςεσεςφεδ ΔΓΙ §ΓΜΕΑÒ§ »υσε ασγιι χιτθ θι­βιτ γμεας ΔΓΙ §ΜΙΞΛ§ »οξ τεψτ¬ σετ οξ μαστ γθας ΔΓΙ §ΘΟΝΕ§ »θονε γνδ¬ υσεδ χιεςδ χαωσ ΔΓΙ §ΠÒΙΞΤ§ »πςιξτ στατενεξτ ΔΓΙ §ΓΟΠΩ§ »γοπω α ζιμε ΔΓΙ §ΗΕΤ§ »ηετ α γθαςαγτες ΔΓΙ §ΙΞΠΥΤ§ »ιξπυτ α μιξε ΔΓΙ §ΣΕΤΙΞΤ§ »σετ ιξτεςυπτ λεωσ ΔΓΙ §ΑΔΔΙΞΤ§ »αδδ ιξτεςυπτ λεωσ ΔΓΙ §ΖΜΑΗ§ »υσες ζμαησ ΔΓΙ §ΞΙΒΒΜΕ§ »ξιββμε ζυξγτιοξ ΔΓΙ §ΒΩΤΕ§ »βωτε ζυξγτιοξ ΔΓΙ §ΙΖ§ »ιζ στατενεξτ ΔΓΙ §ΤΘΕΞ§ »τθεξ στατενεξτ ΔΓΙ §ΕΜΣΕ§ »εμσε στατενεξτ ΔΓΙ §ÒΕΤΥÒΞ§ »ςετυςξ στατενεξτ ΔΓΙ §ΠΟΠ§ »ποπ στατενεξτ ΔΓΙ §ΝΟΔΕΝ§ »νοδεν στατενεξτ ΔΓΙ §ΜΕΞ§ »στςιξη μεξητθ ΔΓΙ §ΕΓΘΟ§ »σετ φιδεο εγθο ΔΓΙ §ΜΟΗ§ »μοη το α δςιφε ΔΓΙ §ΟΠΕΞ§ »οπεξ α ζιμε ΔΓΙ §ΓΜΟΣΕ§ »γμοσε α ζιμε ΔΓΙ §ΝΑÒΛ§ »ηετ―σετ ζυξγτιοξ ΔΓΙ §ΦΑΜ§ »φαμ ζυξγτιοξ ΔΓΙ §ΖÒΕΕ§ »ζςεε στατενεξτ ΔΓΙ §ΠΟΣΙΤΙΟΞ§ »ποσιτιοξ στατενεξτ ΔΓΙ §ΣΕΤ§ »σετ στατενεξτ ΔΓΙ §ÒΕΑΔΩ§ »ςεαδω στατενεξτ ΔΓΙ §ÒΕΑΔ§ »ςεαδ στατενεξτ ΔΓΙ §ΧÒΙΤΕ§ »χςιτε στατενεξτ ΔΓΙ §ΞΟΤ§ »ξοτ στατενεξτ ΔΓΙ §ΛΕΩ§ »λεω ζυξγτιοξ ΔΓΙ §ΕΔΙΤ§ »εδιτ στατενεξτ ΔΓΙ §ΝΣΗ§ »νση ζυξγτιοξ ΔΓΙ §ÒΕΧΙΞΔ§ »ςεχιξδ στατενεξτ ΔΓΙ §ΤΟΞΕ§ »τοξε ζυξγτιοξ ΔΓΙ §ΧΙΔΤΘ§ »χιδτθ ζυξγτιοξ ΔΓΙ §ΖΟÒ§ »ζος στατενεξτ ΔΓΙ §ΤΟ§ »το στατενεξτ ΔΓΙ §ΣΤΕΠ§ »στεπ στατενεξτ ΔΓΙ §ΞΕΨΤ§ »ξεψτ στατενεξτ ΔΓΙ §ΙΞΣΤÒ§ »ιξστς ζυξγτιοξ ΔΓΙ §ΛΙΜΜ§ »λιμμ στατενεξτ ΔΓΙ §ΝΟΦΕ§ »νοφε στατενεξτ ΔΓΙ §ÒΑΝ²§ »ςαν² φαμυε ΔΓΙ §ÒΑΝ§ »ςαν φαμυε ΔΓΙ §ΓÒΕΑΤΕ§ »γςεατε στατενεξτ ΔΓΙ §ΓÒΥΞΓΘ§ »γςυξγθ στατενεξτ ΔΓΙ §ΥΠΔΑΤΕ§ »υπδατε στατενεξτ ΔΓΙ §ΤΕΨΤ§ »τεψτ γονναξδ ΔΓΙ §ΑΠΠΕΞΔ§ »αππεξδ στατενεξτ ΔΓΙ §ΖΙΜΜ§ »ζιμμ στατενεξτ ΔΓΙ §ΟΞ ΞΟΓΑÒ§ »οξ ξο γαςςιες ΔΓΙ §ΟΞ ΕÒÒΟÒ§ »οξ εςςος ΔΓΙ §ΕÒÒ§ »εςςος ξυνβες ΔΓΙ §ÒΕΣΥΝΕ§ »ςεσυνε ζςον εςςος ΔΓΙ §ΙΞΖΟ§ »ιξζο ζυξγτιοξ ΔΓΙ §ΓΜΟΓΛ§ »τινε ζυξγτιοξ ΔΓΙ §ΥΣΕ§ »υσε στατενεξτ ΔΓΙ §ΠΟΛΕ§ »πολε στατενεξτ ΔΓΙ §ΠΕΕΛ§ »πεελ ζυξγτιοξ ΔΓΙ §ΕΟΖ§ »εοζ ζυξγτιοξ ΔΓΙ §ΣΙΪΕ§ »σιϊε ζυξγτιοξ ΔΓΙ §ΠΔΜ§ »πδμ ζυξγτιοξ ΔΓΙ §ÒΑΞΔΟΝ§ »ςαξδον ζυξγτιοξ ΔΓΙ §ΑΣΓ§ »ασγιι ζυξγτιοξ ΔΓΙ §ΓΑΜΜ§ »γαμμ στατενεξτ ΔΓΙ §ΣΤΟÒΕ§ »στοςε στατενεξτ ΔΓΙ §ÒΕΓΑΜΜ§ »ςεγαμμ στατενεξτ ΙΖ ΞΕΤ ΔΓΙ §ΜΟΓΛ§ »μογλ στατενεξτ ΔΓΙ §ΥΞΜΟΓΛ§ »υξμογλ στατενεξτ ΖΙΞ ΔΓΙ §ΓΘÒ¤§ »γθς¤ στατενεξτ ΔΓΙ §ΔΑΤΕ¤§ »δατε στατενεξτ ΔΓΙ §ΤΙΝΕ¤§ »τινε¤ στατενεξτ ΔΓΙ §ΖΝΤΔΑΤΕ¤§ »ζοςναττεδ δατε στατενεξτ ΔΓΙ §ΧΘΕΞ¤§ »χθεξ¤ στατενεξτ ΔΓΙ §ΜΕΖΤ¤§ »μεζτ¤ στατενεξτ ΔΓΙ §ÒΙΗΘΤ¤§ »ςιηθτ¤ στατενεξτ ΔΓΙ §ΝΙΔ¤§ »νιδ¤ στατενεξτ ΔΓΙ §ΣΤÒ¤§ »στς¤ στατενεξτ ΔΓΙ §ÒΞΔ¤§ »ςξδ¤ ζυξγτιοξ ΔΓΙ §ΌΎ§ »ΌΎ ΔΓΙ §ΎΌ§ »ΎΌ ΔΓΙ §Ό½§ »Ό½ ΔΓΙ §Ύ½§ »Ύ½ ΔΓΙ §½Ό§ »½Ό ΔΓΙ §½Ύ§ »½Ύ ΔΓΙ §½§ »½ ΔΓΙ §Ό§ »Ό ΔΓΙ §Ύ§ »Ύ ΔΓΙ §ΑΞΔ§ »αξδ οπεςαξδ ΔΓΙ §ΟÒ§ »ος οπεςαξδ ΔΓΙ §ΕΟÒ§ »εος οπεςαξδ ΔΓΙ §«§ »πμυσ ΔΓΙ §­§ »νιξυσ ΔΓΙ §ª§ »νυμτιπμιγατιοξ ΔΓΙ §―§ »διφισιοξ ΔΓΙ §ΝΟΔ§ »νοδ ΔΓΙ §ΑΒΣ§ »αβσομυτε φαμυε ΔΒ °ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª τολεξ κυνπ ταβμεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΣΩΝΑΔÒ ΔΧ ° »°°ξυνβες ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΜΕΤ »°±στςιξη ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΜΕΤ »°²εξδ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΕΞΔ »°³ηοτο ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΗΟΤΟ »°΄ηοσυβ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΗΣΒ »°µπυσθ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΠΥΣΘ »°¶πυβμιγ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΕÒÒ »°·γθαιξ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΞΙΜ »°Έγθαιξ² ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΞΙΜ »°Ήγμεας ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΓΜÒ »°Α ΔΧ ΔΟίΜΙΞΛ »°Β ΔΧ ΔΟίΘΟΝΕ »°Γ ΔΧ ΔΟίΠÒΞΤ »°Δ ΔΧ ΔΟίΣΘΟΧ »°Ε ΔΧ ΔΟίΗΕΤ »°Ζ ΔΧ ΔΟίΙΞ »±° ΔΧ ΔΟίΣΙΞΤ »±± ΔΧ ΔΟίΑΙΞΤ »±² ΔΧ ΔΟίΖΜΑΗ »±³ ΔΧ ΔΟίΞΙΒ »±΄ ΔΧ ΔΟίΒΩΤ »±µ ΔΧ ΔΟίΙΖ »±¶ ΔΧ ΞΙΜ »±·εμσε ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΕΜΣΕ »±Έ ΔΧ ΔΟίÒΕΤ »±Ή ΔΧ ΔΟίΠΟΠ »±Α ΔΧ ΔΟίΝΔΝ »±Β ΔΧ ΔΟίΜΕΞ »±Γ ΔΧ ΔΟίΕΓΘΟ »±Δ ΔΧ ΝΟΦΞΑΝΕ »±Ε ΔΧ ΔΟίΟΠΕΞ »±Ζ ΔΧ ΔΟίΓΜΟΣ »²° ΔΧ ΔΟίΝΑÒΛ »²± ΔΧ ΔΟίΦΑΜ »²² ΔΧ ΔΟίΖÒΕ »²³ ΔΧ ΔΟίΠΟΣ »²΄ ΔΧ ΔΟίΣΕΤ »²µ ΔΧ ΔΟίÒΔΩ »²¶ ΔΧ ΔΟίÒΕΑΔ »²· ΔΧ ΔΟίΧÒΙΤ »²Έ ΔΧ ΔΟίΞΟΤ »²Ήλεω ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΛΕΩ »²Α ΔΧ ΔΟίΕΔΙΤ »²Βνση ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΝΣΗ »²Γ ΔΧ ΔΟίÒΧΔ »²Δ ΔΧ ΔΟίΤΟΞΕ »²Ε ΔΧ ΔΟίΧΙΔ »²Ζ ΔΧ ΔΟίΖΟÒ »³°το ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΕÒÒ »³±στεπ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΕÒÒ »³² ΔΧ ΔΟίΞΨΤ »³³ ΔΧ ΔΟίΙΞΣΤ »³΄ ΔΧ ΔΟίΛΙΜΜ »³µ ΔΧ ΔΟίΝΟΦΕ »³¶ ΔΧ ΔΟίÒΑΝ² »³· ΔΧ ΔΟίÒΑΝ »³Έ ΔΧ ΔΟίΝΑΛΕ »³Ή ΔΧ ΔΟίΓΞΓΘ »³Α ΔΧ ΔΟίΥΠ »³Β ΔΧ ΔΟίΤΕΨΤ »³Γ ΔΧ ΔΟίΑΠΠ »³Δ ΔΧ ΔΟίΖΙΜΜ »³Ε ΔΧ ΔΟίΞΟΓΔ »³Ζ ΔΧ ΔΟίΟΞΕÒÒ »΄° ΔΧ ΔΟίΕÒÒΞΟ »΄± ΔΧ ΔΟίÒΕΣΥΝ »΄² ΔΧ ΔΟίΙΞΖΟ »΄³ ΔΧ ΔΟίΓΜΟΛ »΄΄ ΔΧ ΔΟίΥΣΕ »΄µ ΔΧ ΔΟίΠΟΛΕ »΄¶ ΔΧ ΔΟίΠΕΕΛ »΄· ΔΧ ΔΟίΕΟΖ »΄Έ ΔΧ ΔΟίΣΙΪΕ »΄Ή ΔΧ ΔΟίΠΔΜ »΄Α ΔΧ ΔΟίÒΞΔ »΄Β ΔΧ ΔΟίΑΣΓ »΄Γ ΔΧ ΔΟίΓΑΜΜ »΄Δ ΔΧ ΔΟίΣΤΟÒ »΄Ε ΔΧ ΔΟίÒΓΑΜ »΄Ζ ΙΖ ΞΕΤ ΔΧ ΔΟίΜΟΓΛ ΔΧ ΔΟίΥΞΜΛ ΖΙΞστςτωπ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΓΘÒ »µ° ΔΧ ΔΟίΔΑΤΕ »µ± ΔΧ ΔΟίΤΙΝΕ »µ² ΔΧ ΔΟίΖΔΑΤΕ »µ³ ΔΧ ΔΟίΧΘΕΞ »µ΄ ΔΧ ΔΟίΜΖΤ »µµ ΔΧ ΔΟίÒΗΤ »µ¶ ΔΧ ΔΟίΝΙΔ »µ· ΔΧ ΔΟίΣΤÒ »µΈ ΔΧ ΔΟίÒΞΔΣ »µΉγονπαςε ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΓΠίΞΟΤ »µΑ ΔΧ ΓΠίΞΟΤ »µΒ ΔΧ ΓΠίΜΤΕΡ »µΓ ΔΧ ΓΠίΗΤΕΡ »µΔ ΔΧ ΓΠίΜΤΕΡ »µΕ ΔΧ ΓΠίΗΤΕΡ »µΖερυαμ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΓΠίΕΡ »¶° ΔΧ ΓΠίΜΤ »¶± ΔΧ ΓΠίΗΤ »¶²μοηιγ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΓΠίΑΞΔ »¶³ ΔΧ ΓΠίΟÒ »¶΄ ΔΧ ΓΠίΕΟÒ »¶µνατθ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΠΜΥΣ »¶¶νιξυσ ½ ª­ΣΩΝΑΔÒ―² ΔΧ ΔΟίΣΥΒ »¶· ΔΧ ΔΟίΝΥΜΤ »¶Έ ΔΧ ΔΟίΔΙΦΔ »¶Ή ΔΧ ΔΟίΝΟΔ »¶Α ΔΧ ΔΟίΑΒΣ »¶Β ΔΧ ° »¶Γª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σωστεν εςςος νεσσαηεσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΕÒÒΝΣΗΣ ΔΒ ­± ΔΓΙ §Σταςτιξη Νοδυμε Ξοτ Ζουξδ§ ΔΓΙ §Νοδυμε Τοο Μαςηε§ ΔΓΙ §Μαβεμ Ξοτ Ζουξδ§ ΔΓΙ §Σωνβομ Ταβμε Ζυμμ§ ΔΓΙ §Σωξταψ Εςςος§ ΔΓΙ §Νισσιξη Σωνβομ§ ΔΓΙ §Υξδεζιξεδ Μαβεμ§ ΔΓΙ §Νισσιξη Δατα§ ΔΓΙ §Τωπε Νισνατγθ§ ΔΓΙ §Οφεςζμοχ Ύ ³²·¶·§ ΔΓΙ §Διφισιοξ Βω °§ ΔΓΙ §Στςιξη Τοο Μοξη§ ΔΓΙ §Ηοσυβ Σταγλ Ζυμμ§ ΔΓΙ §Òετυςξ Χιτθουτ Ηοσυβ§ ΔΓΙ §Βαδ Δεφιγε Ξυνβες§ ΔΓΙ §Ιμμεηαμ Ζιμεξανε§ ΔΓΙ §Ζος Σταγλ Ζυμμ§ ΔΓΙ §Ξεψτ Χιτθουτ Ζος§ ΔΓΙ §Μιξλ Μαβεμ Ξοτ Ζουξδ§ ΔΓΙ §Νεσσαηε Ζιμε Ξοτ Ζουξδ§ ΔΓΙ §ΕΞΔ οζ Πςοηςαν§ ΔΓΙ §Βαδ Δςιφε Σπεγιζιες§ ΔΓΙ §Υξαβμε το Μοαδ Εψτεςξαμ§ ΔΓΙ §Υξγμοσεδ ρυοτε ατ ΕΟΖ®®®®®®§ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª νισγ® νεσσαηεσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΝΙΣΓΝΣΗΣ ΔΒ ­± ΔΒ γς¬γς ΑΣΓ §Σωσοπ ισ οξ­μιξε®®®§°ΔΈΔ ΔΒ γς ΑΣΓ §Σωσοπ ισ οζζ­μιξε®®®§°ΔΈΔ ΔΒ γς¬γς ΑΣΓ §Σοςςω¬ τινε μινιτ εψγεεδεδ§ΈΔ ΑΣΓ §®®®πμεασε χαιτ®®®§°ΔΈΔ ΑΣΓ §®®®εψιτιξη εψεγ νοδε®®®§°ΔΈΔ ΔΒ γς ΑΣΓ §ΕςςοςΊ Θεμπ ζιμε γουμδ ξοτ βε οπεξεδ§ΈΔ ΔΒ γς ΑΣΓ §Ζιμε Χςιτε Εςςος§ΈΔ ΔΒ γς ΑΣΓ §Οξε νονεξτ πμεασε®®®§ΈΔª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª εδιτος νεσσαηεσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΕΔΝΣΗΣ ΔΒ ­± ΔΒ γς ΔΓΙ §Εδιτιξη ¨Ώ½Θεμπ©Ί§ ΔΒ γς ΑΣΓ §Τθατ ισ ΄λ χοςτθ§ΈΔ ΔΒ γς ΑΣΓ §Ιμμεηαμ Γονναξδ§ΈΔ ΔΒ γς ΔΓΙ §ΑβοςτΊ Αςε ωου συςεΏ§ ΔΒ γς ΑΣΓ §Αβοςτεδ§ΈΔ ΔΒ γς ΑΣΓ §Γοξτιξυε νεσσαηε ξοχ®®®§°ΔΈΔ ΔΒ γς ΔΓΙ §Δεμετε Μιξε ¨Μ¬ψ­ω©Ί§ ΔΒ γς ΔΓΙ §Εδιτ Μιξε ¨Μ¬ψ©Ί§ ΔΒ γς ΑΣΓ §Ιμμεηαμ μιξε ξυνβες§ΈΔ ΔΒ γς ΔΓΙ §Ιξσεςτ Μιξε ¨Μ¬ψ©Ί§ ΔΒ γς ΔΓΙ §Μιστ Μιξε ¨ψ­ω©Ί§ ΔΒ γς ΑΣΓ §Ιξσεςτ τεψτΊ§ ΔΒ γς ΔΓΙ §ΞεχΊ Εςασε αξδ σταςτ οφεςΏ§ ΔΒ γς ΑΣΓ §Εξτες νεσσαηε ξοχ®®®§°ΔΈΔ ΔΒ γς ΔΓΙ §Òεαδ Ζιμε ¨ξανε©Ί§ ΔΒ γς ΔΓΙ §Χςιτε Ζιμε ¨ξανε©Ί§ ΔΒ γς ΑΣΓ §Α©βοςτ¬ Γ©οξτιξυε¬ Δ©εμετε¬ Ε©διτ§°Δ ΑΣΓ §Θ©εμπ¬ Ι©ξσεςτ¬ Μ©ιστ¬ Ξ©εχ¬ Σ©αφε§°Δ ΑΣΓ §Ϊ© Σπαγε Υσεδ§ΈΔ ΑΣΓ §Φαμιδ εδιτος γονναξδσΊ ¨Ά―γοννναξδΆ αξδ§ ΑΣΓ §Ά®γονναξδΆ αγγεπταβμε©§°Δ°Δ ΑΣΓ § Α ½ Αβοςτ § ΑΣΓ § Δψ­ω ½ Δεμετε μιξε¨σ© ψ­ω § ΑΣΓ § Ξ ½ Ξεχ§°Δ ΑΣΓ § Θ ½ Θεμπ    § ΑΣΓ § Ιψ ½ Ιξσεςτ ατ μιξε ψ   § ΑΣΓ § Σ ½ Σαφε§°Δ ΑΣΓ § Ϊ ½ Σπαγε   § ΑΣΓ § Εψ ½ Εδιτ μιξε ψ     § ΑΣΓ § Μψ­ω ½ Μιστ μιξε¨σ© ψ­ω§°ΔΈΔ ΑΣΓ § Βωτεσ Υσεδ®§°ΔΈΔª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γονπιμες νεσσαηεσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΓΟΝΠΝΣΗΣ ΔΒ ­± ΔΓΙ §Οξε νονεξτ¬ γονπιμιξη σεηνεξτ®§ ΔΓΙ §®®§ ΔΣ ³²¬βσ ΔΣ ³²¬§ § ΔΣ ³±¬βσ ΔΒ βσ«θιβιτΝΟΔΕΒΩΤ ΔΒ ¥±°°°°°±± »δεζαυμτ¬ ηετ ± βωτε οξμω ΔΒ ¥±±°°°°°± »υππες ― ξο βμαξλσ ― ξο γοννα ΔΒ ¥±°±°°°°° »υππες αξδ ςετυςξ ΔΒ ¥°°±°°°°° »αγγεπτ αμμ αξδ ςετυςξ ΔΒ ¥°±±°°°°° »ξο βμαξλσ ― ξο γοννα ― ςετυςξΙΞΠΦΕΓ ΔΧ ΛΕΩΙΞ »γοξσομε λεωβοαςδ ΔΧ ΔΙΣΛΙΞ± »δισλ γθαξξεμ ± ΔΧ ΔΙΣΛΙΞ² »δισλ γθαξξεμ ² ΔΧ ΞΟίΙΞΠ »γοξσομε ιξπυτ ΔΧ ΝΔΝΙΞ »νοδεν ιξπυτ ΔΧ ΞΟίΙΞΠ »μιξε πςιξτες ΔΧ ÒΔΝΣΗ »νση ιξπυτ ΔΧ ÒΔΝΑΙΜ »ςεαδ ναιμ ΔΧ ΕΔΙΞΠ »εδιτος ιξπυτ ΔΧ ΞΟίΙΞΠ »ξο ιξπυτ ζςον σγςεεξ ΔΧ ÒΑΝΙΞ »ςαν δςιφε ιξπυτΟΥΤΦΕΓ ΔΧ ΓΟΥΤ »γοξσομε ουτπυτ ΔΧ ΔΣΛΟΥΤ± »δισλ γθαξξεμ ± ΔΧ ΔΣΛΟΥΤ² »δισλ γθαξξεμ ² ΔΧ ΦΙΔΓΟΥΤ »μογαμ γοξσομε ΔΧ ΪΝΔΝΟΥΤ »νοδεν ουτπυτ ΔΧ ΠÒΓΟΥΤ »μιξε πςιξτες ΔΧ ΧÒΝΣΗ »νση ουτπυτ ΔΧ ΞΟίΟΥΤ »ςεαδ ναιμ Ϋξοξεέ ΔΧ ΕΔΟΥΤ »εδιτος ουτπυτ ΔΧ ΤΟΠΠÒΙΞΤ »πςιξτ υσες στατσ ΔΧ ÒΑΝΟΥΤ »ςαν δςιφε ουτπυτΚΣΤÒΓΠ ΔΑ ΣΤίΞΟΤ ΔΑ ΣΤίΞΟΤ ΔΑ ΣΤίΜΤΕΡ ΔΑ ΣΤίΗΤΕΡ ΔΑ ΣΤίΜΤΕΡ ΔΑ ΣΤίΗΤΕΡ ΔΑ ΣΤίΕΡ ΔΑ ΣΤίΜΤ ΔΑ ΣΤίΗΤΔΕΦΤΒΜ ΘΕΨ ΖΖ°°°°ΖΖΖΖΖΖ°°°°ΖΖΖΖΖΖ ΑΣΓ §ΗΠ²±΄±Έ²§ »ζαλε σεςιαμ ξυνβες ζος πεεπεςσª σγςεεξ τοπ νασλΤΟΠΝΑΣΛ ΑΣΓ §£®®®®® ®®®®®®®®®®®®®®®®®®®®®®®®®®®®®®®  § ΑΣΓ §ΣτατσΊ ΓΤ½®® ΓΝ½®®® ΥΠ½®® ΔΜ½®®® ΒΠ½®®® § ΑΣΓ §ΠθΊ ®®®®®®®®®®®® ®®®®®®®® ®®®®­ªªªªªªªª § ΑΣΓ §ΖμηΊ ®®®®®®®®®®®®®®®®®®®®®®®®®®®®®®®®®® §ΔΑΩΙΞΔΕΨ ΔΒ °¬³¬¶¬Ή¬±²¬±µ¬±ΈΔΑΩΣ ΑΣΓ §Συξ§ ΑΣΓ §Νοξ§ ΑΣΓ §Τυε§ ΑΣΓ §Χεδ§ ΑΣΓ §Τθυ§ ΑΣΓ §Ζςι§ ΑΣΓ §Σατ§ΝΤΘΙΞΔΕΨ ΔΒ °¬³¬¶¬Ή¬±²¬±µ¬±Έ¬²±¬²΄¬²·¬³°¬³³ΝΟΞΤΘΣ ΑΣΓ §Καξ§ ΑΣΓ §Ζεβ§ ΑΣΓ §Νας§ ΑΣΓ §Απς§ ΑΣΓ §Ναω§ ΑΣΓ §Κυξ§ ΑΣΓ §Κυμ§ ΑΣΓ §Αυη§ ΑΣΓ §Σεπ§ ΑΣΓ §Ογτ§ ΑΣΓ §Ξοφ§ ΑΣΓ §Δεγ§ΤΟΠΒΥΖ ΔΒ °ΔΥΝΝΩ ½ ª »σταξδαςδ νενοςω αμμογατιοξ ΔΥΝ ΔΥΝΝΩ ΔΣ ±µΉ »ζιξισθ υπ ΤΟΠΒΥΖΗΣΒΣΤΛ ΔΣ ¤²° »ηοσυβ σταγλ αςεαΖΟÒΦΑÒ ΔΣ ¤±° »ζος σταγλ αςεαΖΟÒΕΞΔ ΔΣ ¤±°ΖΟÒΣΤΠ ΔΣ ¤±°ΖΟÒΜΟΓ ΔΣ ¤±°ΔΕΦΥΣΕ ΔΣ ±±ΞΥΝ ΔΣ ·ΤΨΤΞΥΝ ΔΣ ¶ΖΜΠΟΣ ΔΣ ¶ΔΑΤΑ ΔΣ ΄ΞΥΝΒ ΔΑ °ΞΕΗΖΜΗ ΔΒ °ΖÒΕΝΕΝ ΔΒ °ΞΟΓΔΖΜΗ ΔΒ °ΞΟΓΔΦΕΓ ΔΑ °ΟΞΕÒÒΖΜΗ ΔΒ °ΟΞΕÒÒΦΕΓ ΔΑ °ΖÒΟΝΕÒÒ ΔΑ ° »χθεςε εςςος ογγυςςεδΞΥΜΜΣ ΔΒ °ÒΕΝΟΤΕ ΔΒ °ΣΩΝΞΥΝ ΔΒ °ΜΒΜΞΥΝ ΔΒ °ΜΞΓΞΤ ΔΒ °ΜΞΓΞΤ² ΔΒ °ΤΟΛΤΩΠ ΔΒ °ΓΠΑΣΣ ΔΒ °ÒΕΝΑΙΞ ΔΑ °ΣΙΗΞ ΔΒ °ÒΕΣΥΜΤ ΔΣ ³ΝΣΗÒΕΖ ΔΒ ° »ισ νεσσαηε ζιμε ςεαδω το ηοΏΝΣΗΙΞΖΟ ΔΒ ° »£ οζ βιτ βμογλσ ¨µ±²λ εαγθ© ΔΒ ° »£ οζ δις βμογλσ ¨³² εξτςιεσ εαγθ© ΔΧ ° »£ οζ ζςεε βμογλσ ΔΧ ° »£ οζ ζιμεσ ΔΧ ° »£ οζ ξεχεστ νεσσαηεΝΣΗΠΤÒ ΔΒ ° »ποιξτ το νεσσαηε δαταΒΩΤΕΈ ΔΒ ° »· ­Ύ Έ γοξφεςσιοξ γουξτεςΓΘΑÒΈ ΔΒ ° »· ­Ύ Έ γοξφεςσιοξ δαταÒΝΨΒΜΛ ΔΧ ° »ςεαδ ναιμ βμογλÒΔΕΞΔ ΔΒ ° »ατ εξδ οζ δαταΏΝΣΗΠΤÒ² ΔΒ ° »ζος χςιτε δαταΒΩΤΕΈ² ΔΒ ° »σεγοξδ σετ οζ ποιξτεςσ ΔΒ ° »σεγοξδ γθαςΈ βυζζες ­ ξοτ ξεεδεδ ζος χςιτεΧÒΛΒΜΛ ΔΧ ° »γυςςεξτ χοςλιξη χςιτε βμογλ ξυνΧÒΤΕΞΔ ΔΒ ° »ατ εξδ οζ δαταΏÒΧΔΠΤÒ ΔΒ ° »ποιξτ το ςεχιξδ δαταÒΧΔΒΩΤΈ ΔΒ °ÒΧΔΓΘÒΈ ΔΒ °ÒΧΔΒΜΛ ΔΧ °ΔΙÒΣΕΗ ΔΑ ° »γυςςεξτ διςεγτοςω σεηνεξτΒΙΤΣΕΗ ΔΒ ° »γυςςεξτ βιτ­ναπ σεηνεξτΝΣΗΞΥΝ ΔΧ ° »γυςςεξτ νεσσαηε ξυνβεςΠΟΣΒΜΛ ΔΧ ° »ποστιοξ βμογλ γουξτεςΝΣΗΙΞΙΤ ΔΒ ° »ισ νεσσαηε γυςςεξτμω βειξη ςεαδΏΓΘΑΤΒΥΖ ΔΣ Ή° »στοςαηε αςεα ζος γθατ ςουτιξεΜΑΣΤΒΩΤ ΔΕΞΔ ΟÒΗΕΞΔίΝΦ ½ ª­ΪΔΑΤΑΠΗ³ΚΝΠ ΟÒΗ ¤³Έ°ΕΞΤΠΟΙΞΤ ΚΝΠ ΗΕΤΒΩΤ ΚΝΠ ΓΘΛΒΩΤ ΚΝΠ ΗΟΒΓΟΝ ΚΝΠ ΙΞΠΞΥΝ ΚΝΠ ΙΞΠΣΤÒ ΚΝΠ ΝΟΦΞΑΝΕ ΚΝΠ ΒΑΔΕÒÒ ΚΝΠ ΣΕΤΙΦΕΓ ΚΝΠ ΗΕΤ ΚΝΠ ΗΕΤΓΘÒ ΚΝΠ ΙΞΠΜΞ ΚΝΠ ΣΕΤΟΦΕΓ ΚΝΠ ΓΟΥΤ ΚΝΠ ΔΕΓΟΥΤ° ΚΝΠ ΓÒΕΑΤΕ ΚΝΠ ΟΠΕΞ ΚΝΠ ΓΜΟΣΕ ΚΝΠ ÒΔΒΩΤΕ ΚΝΠ ΧÒΒΩΤΕ ΚΝΠ ÒΔΒΜΛ ΚΝΠ ΧÒΒΜΛ ΚΝΠ ÒΔΜΙΞΕ ΚΝΠ ΗΕΤΝΑÒΛ ΚΝΠ ΣΕΤΝΑÒΛ ΚΝΠ ΜΟΗΣΠΕΓ ΔΑ ΖΜΞΑΝΕÒΕΖΞΥΝ ΔΒ ° ΔΑ ΖΒΥΖ²
+ PAG
+********************************
+*                              *
+*     ACOS.OBJ - Init Code     *
+*                              *
+********************************
+ DATE
+*-------------------------------
+
+START1 JSR MOVECODE ;do memory move
+ JSR FATAL ;init stuff
+ JSR FATAL5 ;move file name (no return)
+ JMP FATAL6
+
+START2 JSR MOVECODE ;move memory
+ JMP FATAL1 ;init w/o doing modem
+
+*-------------------------------
+* do memory move and setup
+*-------------------------------
+
+MOVECODE LDA SETRAM ;select main lc bank
+ LDA SETRAM
+
+ LDA #<ZDATA ;point to data
+ STA TEMP
+ LDA #>ZDATA
+ STA TEMP+1
+
+ LDA #<SYMTXT ;point to dest
+ STA TEMP2
+ LDA #>SYMTXT
+ STA TEMP2+1
+
+ LDY #0 ;start offset
+ LDX #>END_MV+$256
+:DO_IN2 LDA (TEMP),Y
+ STA (TEMP2),Y ;copy byte
+ INY
+ BNE :DO_IN2
+
+ INC TEMP+1
+ INC TEMP2+1
+ DEX
+ BNE :DO_IN2 ;count down
+
+ LDY #80
+:INIT3 LDA PG3JMP,Y
+ STA ENTPOINT,Y ;copy jump table into place
+ DEY
+ BPL :INIT3
+
+*            LDA   #<IRQ_FIX
+*            STA   IRQVECT
+*            LDA   #>IRQ_FIX
+*            STA   IRQVECT+1
+ RTS
+
+ZDATA ORG RAMCARD
+
+*-------------------------------
+* ----- actual tokens -----
+*-------------------------------
+
+SYMTXT DB -1 ;reserved
+ DB -1 ;reserved
+ DB -1 ;reserved
+ DCI 'END' ;end of module
+ DCI 'GOTO' ;goto statement
+ DCI 'GOSUB' ;gosub statement
+ DCI 'PUSH' ;push statement
+ DCI 'PUBLIC' ;public directive
+
+ DCI ':' ;colon
+ DB -1 ;reserved
+
+ DCI 'CLEAR' ;use ascii with hi-bit clear
+ DCI 'LINK' ;on text, set on last char
+ DCI 'HOME' ;home cmd, used wierd ways
+ DCI 'PRINT' ;print statement
+ DCI 'COPY' ;copy a file
+ DCI 'GET' ;get a character
+ DCI 'INPUT' ;input a line
+ DCI 'SETINT' ;set interupt keys
+ DCI 'ADDINT' ;add interupt keys
+ DCI 'FLAG' ;user flags
+ DCI 'NIBBLE' ;nibble function
+ DCI 'BYTE' ;byte function
+ DCI 'IF' ;if statement
+ DCI 'THEN' ;then statement
+ DCI 'ELSE' ;else statement
+ DCI 'RETURN' ;return statement
+ DCI 'POP' ;pop statement
+ DCI 'MODEM' ;modem statement
+ DCI 'LEN' ;string length
+ DCI 'ECHO' ;set video echo
+ DCI 'LOG' ;log to a drive
+ DCI 'OPEN' ;open a file
+ DCI 'CLOSE' ;close a file
+ DCI 'MARK' ;get/set function
+ DCI 'VAL' ;val function
+ DCI 'FREE' ;free statement
+ DCI 'POSITION' ;position statement
+ DCI 'SET' ;set statement
+ DCI 'READY' ;ready statement
+ DCI 'READ' ;read statement
+ DCI 'WRITE' ;write statement
+ DCI 'NOT' ;not statement
+ DCI 'KEY' ;key function
+ DCI 'EDIT' ;edit statement
+ DCI 'MSG' ;msg function
+ DCI 'REWIND' ;rewind statement
+ DCI 'TONE' ;tone function
+ DCI 'WIDTH' ;width function
+ DCI 'FOR' ;for statement
+ DCI 'TO' ;to statement
+ DCI 'STEP' ;step statement
+ DCI 'NEXT' ;next statement
+ DCI 'INSTR' ;instr function
+ DCI 'KILL' ;kill statement
+ DCI 'MOVE' ;move statement
+ DCI 'RAM2' ;ram2 value
+ DCI 'RAM' ;ram value
+ DCI 'CREATE' ;create statement
+ DCI 'CRUNCH' ;crunch statement
+ DCI 'UPDATE' ;update statement
+ DCI 'TEXT' ;text command
+ DCI 'APPEND' ;append statement
+ DCI 'FILL' ;fill statement
+ DCI 'ON NOCAR' ;on no carrier
+ DCI 'ON ERROR' ;on error
+ DCI 'ERR' ;error number
+ DCI 'RESUME' ;resume from error
+ DCI 'INFO' ;info function
+ DCI 'CLOCK' ;time function
+ DCI 'USE' ;use statement
+ DCI 'POKE' ;poke statement
+ DCI 'PEEK' ;peek function
+ DCI 'EOF' ;eof function
+ DCI 'SIZE' ;size function
+ DCI 'PDL' ;pdl function
+ DCI 'RANDOM' ;random function
+ DCI 'ASC' ;ascii function
+ DCI 'CALL' ;call statement
+ DCI 'STORE' ;store statement
+ DCI 'RECALL' ;recall statement
+ IF NET
+ DCI 'LOCK' ;lock statement
+ DCI 'UNLOCK' ;unlock statement
+ FIN
+
+ DCI 'CHR$' ;chr$ statement
+ DCI 'DATE$' ;date statement
+ DCI 'TIME$' ;time$ statement
+ DCI 'FMTDATE$' ;formatted date statement
+ DCI 'WHEN$' ;when$ statement
+ DCI 'LEFT$' ;left$ statement
+ DCI 'RIGHT$' ;right$ statement
+ DCI 'MID$' ;mid$ statement
+ DCI 'STR$' ;str$ statement
+ DCI 'RND$' ;rnd$ function
+
+ DCI '<>' ;<>
+ DCI '><' ;><
+ DCI '<=' ;<=
+ DCI '>=' ;>=
+ DCI '=<' ;=<
+ DCI '=>' ;=>
+ DCI '=' ;=
+ DCI '<' ;<
+ DCI '>' ;>
+
+ DCI 'AND' ;and operand
+ DCI 'OR' ;or operand
+ DCI 'EOR' ;eor operand
+
+ DCI '+' ;plus
+ DCI '-' ;minus
+ DCI '*' ;multiplication
+ DCI '/' ;division
+ DCI 'MOD' ;mod
+ DCI 'ABS' ;absolute value
+ DB 0
+
+*-------------------------------
+* token jump table
+*-------------------------------
+
+SYMADR DW 0 ;00
+number = *-SYMADR/2
+ DW DO_LET ;01
+string = *-SYMADR/2
+ DW DO_LET ;02
+end = *-SYMADR/2
+ DW DO_END ;03
+goto = *-SYMADR/2
+ DW DO_GOTO ;04
+gosub = *-SYMADR/2
+ DW DO_GSB ;05
+push = *-SYMADR/2
+ DW DO_PUSH ;06
+public = *-SYMADR/2
+ DW ERR ;07
+
+chain = *-SYMADR/2
+ DW NIL ;08
+chain2 = *-SYMADR/2
+ DW NIL ;09
+
+clear = *-SYMADR/2
+ DW DO_CLR ;0A
+ DW DO_LINK ;0B
+ DW DO_HOME ;0C
+ DW DO_PRNT ;0D
+ DW DO_SHOW ;0E
+ DW DO_GET ;0F
+ DW DO_IN ;10
+ DW DO_SINT ;11
+ DW DO_AINT ;12
+ DW DO_FLAG ;13
+ DW DO_NIB ;14
+ DW DO_BYT ;15
+ DW DO_IF ;16
+ DW NIL ;17
+else = *-SYMADR/2
+ DW DO_ELSE ;18
+ DW DO_RET ;19
+ DW DO_POP ;1A
+ DW DO_MDM ;1B
+ DW DO_LEN ;1C
+ DW DO_ECHO ;1D
+ DW MOVNAME ;1E
+ DW DO_OPEN ;1F
+ DW DO_CLOS ;20
+ DW DO_MARK ;21
+ DW DO_VAL ;22
+ DW DO_FRE ;23
+ DW DO_POS ;24
+ DW DO_SET ;25
+ DW DO_RDY ;26
+ DW DO_READ ;27
+ DW DO_WRIT ;28
+ DW DO_NOT ;29
+key = *-SYMADR/2
+ DW DO_KEY ;2A
+ DW DO_EDIT ;2B
+msg = *-SYMADR/2
+ DW DO_MSG ;2C
+ DW DO_RWD ;2D
+ DW DO_TONE ;2E
+ DW DO_WID ;2F
+ DW DO_FOR ;30
+to = *-SYMADR/2
+ DW ERR ;31
+step = *-SYMADR/2
+ DW ERR ;32
+ DW DO_NXT ;33
+ DW DO_INST ;34
+ DW DO_KILL ;35
+ DW DO_MOVE ;36
+ DW DO_RAM2 ;37
+ DW DO_RAM ;38
+ DW DO_MAKE ;39
+ DW DO_CNCH ;3A
+ DW DO_UP ;3B
+ DW DO_TEXT ;3C
+ DW DO_APP ;3D
+ DW DO_FILL ;3E
+ DW DO_NOCD ;3F
+ DW DO_ONERR ;40
+ DW DO_ERRNO ;41
+ DW DO_RESUM ;42
+ DW DO_INFO ;43
+ DW DO_CLOK ;44
+ DW DO_USE ;45
+ DW DO_POKE ;46
+ DW DO_PEEK ;47
+ DW DO_EOF ;48
+ DW DO_SIZE ;49
+ DW DO_PDL ;4A
+ DW DO_RND ;4B
+ DW DO_ASC ;4C
+ DW DO_CALL ;4D
+ DW DO_STOR ;4E
+ DW DO_RCAL ;4F
+ IF NET
+ DW DO_LOCK
+ DW DO_UNLK
+ FIN
+
+strtyp = *-SYMADR/2
+ DW DO_CHR ;50
+ DW DO_DATE ;51
+ DW DO_TIME ;52
+ DW DO_FDATE ;53
+ DW DO_WHEN ;54
+ DW DO_LFT ;55
+ DW DO_RGT ;56
+ DW DO_MID ;57
+ DW DO_STR ;58
+ DW DO_RNDS ;59
+compare = *-SYMADR/2
+ DW CP_NOT ;5A
+ DW CP_NOT ;5B
+ DW CP_LTEQ ;5C
+ DW CP_GTEQ ;5D
+ DW CP_LTEQ ;5E
+ DW CP_GTEQ ;5F
+equal = *-SYMADR/2
+ DW CP_EQ ;60
+ DW CP_LT ;61
+ DW CP_GT ;62
+
+logic = *-SYMADR/2
+ DW CP_AND ;63
+ DW CP_OR ;64
+ DW CP_EOR ;65
+
+math = *-SYMADR/2
+ DW DO_PLUS ;66
+minus = *-SYMADR/2
+ DW DO_SUB ;67
+ DW DO_MULT ;68
+ DW DO_DIVD ;69
+ DW DO_MOD ;6A
+ DW DO_ABS ;6B
+ DW 0 ;6C
+
+*-------------------------------
+* system error messages
+*-------------------------------
+
+ERRMSGS DB -1
+ DCI 'Starting Module Not Found'
+ DCI 'Module Too Large'
+ DCI 'Label Not Found'
+ DCI 'Symbol Table Full'
+ DCI 'Syntax Error'
+ DCI 'Missing Symbol'
+ DCI 'Undefined Label'
+ DCI 'Missing Data'
+ DCI 'Type Mismatch'
+ DCI 'Overflow > 32767'
+ DCI 'Division By 0'
+ DCI 'String Too Long'
+ DCI 'Gosub Stack Full'
+ DCI 'Return Without Gosub'
+ DCI 'Bad Device Number'
+ DCI 'Illegal Filename'
+ DCI 'For Stack Full'
+ DCI 'Next Without For'
+ DCI 'Link Label Not Found'
+ DCI 'Message File Not Found'
+ DCI 'END of Program'
+ DCI 'Bad Drive Specifier'
+ DCI 'Unable to Load External'
+ DCI 'Unclosed quote at EOF......'
+
+*-------------------------------
+* misc. messages
+*-------------------------------
+
+MISCMSGS DB -1
+ DB cr,cr
+ ASC 'Sysop is on-line...'0D8D
+ DB cr
+ ASC 'Sysop is off-line...'0D8D
+ DB cr,cr
+ ASC 'Sorry, time limit exceeded'8D
+ ASC '...please wait...'0D8D
+ ASC '...exiting exec mode...'0D8D
+ DB cr
+ ASC 'Error: Help file could not be opened'8D
+ DB cr
+ ASC 'File Write Error'8D
+ DB cr
+ ASC 'One moment please...'8D
+
+*-------------------------------
+* editor messages
+*-------------------------------
+
+EDMSGS DB -1
+ DB cr
+ DCI 'Editing (?=Help):'
+ DB cr
+ ASC 'That is 4k worth'8D
+ DB cr
+ ASC 'Illegal Command'8D
+ DB cr
+ DCI 'Abort: Are you sure?'
+ DB cr
+ ASC 'Aborted'8D
+ DB cr
+ ASC 'Continue message now...'0D8D
+ DB cr
+ DCI 'Delete Line (L,x-y):'
+ DB cr
+ DCI 'Edit Line (L,x):'
+ DB cr
+ ASC 'Illegal line number'8D
+ DB cr
+ DCI 'Insert Line (L,x):'
+ DB cr
+ DCI 'List Line (x-y):'
+ DB cr
+ ASC 'Insert text:'
+ DB cr
+ DCI 'New: Erase and start over?'
+ DB cr
+ ASC 'Enter message now...'0D8D
+ DB cr
+ DCI 'Read File (name):'
+ DB cr
+ DCI 'Write File (name):'
+ DB cr
+ ASC 'A)bort, C)ontinue, D)elete, E)dit'0D
+ ASC 'H)elp, I)nsert, L)ist, N)ew, S)ave'0D
+ ASC 'Z) Space Used'8D
+ ASC 'Valid editor commands: ("/commmand" and'
+ ASC '".command" acceptable)'0D0D
+ ASC ' A = Abort '
+ ASC ' Dx-y = Delete line(s) x-y '
+ ASC ' N = New'0D
+ ASC ' H = Help    '
+ ASC ' Ix = Insert at line x   '
+ ASC ' S = Save'0D
+ ASC ' Z = Space   '
+ ASC ' Ex = Edit line x     '
+ ASC ' Lx-y = List line(s) x-y'0D8D
+ ASC ' Bytes Used.'0D8D
+
+*-------------------------------
+* compiler messages
+*-------------------------------
+
+COMPMSGS DB -1
+ DCI 'One moment, compiling segment.'
+ DCI '..'
+ DS 32,bs
+ DS 32,' '
+ DS 31,bs
+ DB bs+hibit
+
+MODEBYT DB %10000011 ;default, get 1 byte only
+ DB %11000001 ;upper / no blanks / no comma
+ DB %10100000 ;upper and return
+ DB %00100000 ;accept all and return
+ DB %01100000 ;no blanks / no comma / return
+
+INPVEC DW KEYIN ;console keyboard
+ DW DISKIN1 ;disk channel 1
+ DW DISKIN2 ;disk channel 2
+ DW NO_INP ;console input
+ DW MDMIN ;modem input
+ DW NO_INP ;line printer
+ DW RDMSG ;msg input
+ DW RDMAIL ;read mail
+ DW EDINP ;editor input
+ DW NO_INP ;no input from screen
+ DW RAMIN ;ram drive input
+
+OUTVEC DW COUT ;console output
+ DW DSKOUT1 ;disk channel 1
+ DW DSKOUT2 ;disk channel 2
+ DW VIDCOUT ;local console
+ DW ZMDMOUT ;modem output
+ DW PRCOUT ;line printer
+ DW WRMSG ;msg output
+ DW NO_OUT ;read mail [none]
+ DW EDOUT ;editor output
+ DW TOPPRINT ;print user stats
+ DW RAMOUT ;ram drive output
+
+JSTRCP DA ST_NOT
+ DA ST_NOT
+ DA ST_LTEQ
+ DA ST_GTEQ
+ DA ST_LTEQ
+ DA ST_GTEQ
+ DA ST_EQ
+ DA ST_LT
+ DA ST_GT
+
+DEVTBL HEX FF0000FFFFFF0000FFFFFF
+ ASC 'GP214182' ;fake serial number for peepers
+
+* screen top mask
+
+TOPMASK ASC '#..... ...............................  '
+ ASC 'Stats: CT=.. CM=... UP=.. DL=... BP=... '
+ ASC 'Ph: ............ ........ ....-******** '
+ ASC 'Flg: .................................. '
+
+DAYINDEX DB 0,3,6,9,12,15,18
+
+DAYS ASC 'Sun'
+ ASC 'Mon'
+ ASC 'Tue'
+ ASC 'Wed'
+ ASC 'Thu'
+ ASC 'Fri'
+ ASC 'Sat'
+
+MTHINDEX DB 0,3,6,9,12,15,18,21,24,27,30,33
+
+MONTHS ASC 'Jan'
+ ASC 'Feb'
+ ASC 'Mar'
+ ASC 'Apr'
+ ASC 'May'
+ ASC 'Jun'
+ ASC 'Jul'
+ ASC 'Aug'
+ ASC 'Sep'
+ ASC 'Oct'
+ ASC 'Nov'
+ ASC 'Dec'
+
+TOPBUF DB 0
+
+DUMMY = * ;standard memory allocation
+
+ DUM DUMMY
+
+ DS 159 ;finish up TOPBUF
+
+GSBSTK DS $20 ;gosub stack area
+
+FORVAR DS $10 ;for stack area
+FOREND DS $10
+FORSTP DS $10
+FORLOC DS $10
+
+DEVUSE DS 11
+
+NUM DS 7
+TXTNUM DS 6
+FLPOS DS 6
+
+DATA DS 4
+NUMB DA 0
+NEGFLG DB 0
+FREMEM DB 0
+
+NOCDFLG DB 0
+NOCDVEC DA 0
+
+ONERRFLG DB 0
+ONERRVEC DA 0
+FROMERR DA 0 ;where error occurred
+
+NULLS DB 0
+REMOTE DB 0
+
+SYMNUM DB 0
+LBLNUM DB 0
+LNCNT DB 0
+LNCNT2 DB 0
+TOKTYP DB 0
+
+CPASS DB 0
+
+REMAIN DA 0
+SIGN DB 0
+RESULT DS 3
+
+MSGREF DB 0 ;is message file ready to go?
+
+MSGINFO DB 0 ;# of bit blocks (512k each)
+ DB 0 ;# of dir blocks (32 entries each)
+ DW 0 ;# of free blocks
+ DW 0 ;# of files
+ DW 0 ;# of newest message
+
+MSGPTR DB 0 ;point to message data
+BYTE8 DB 0 ;7 -> 8 conversion counter
+CHAR8 DB 0 ;7 -> 8 conversion data
+RMXBLK DW 0 ;read mail block
+RDEND DB 0 ;at end of data?
+
+MSGPTR2 DB 0 ;for write data
+BYTE82 DB 0 ;second set of pointers
+ DB 0 ;second char8 buffer - not needed for write
+WRKBLK DW 0 ;current working write block num
+WRTEND DB 0 ;at end of data?
+
+RWDPTR DB 0 ;point to rewind data
+RWDBYT8 DB 0
+RWDCHR8 DB 0
+RWDBLK DW 0
+
+DIRSEG DA 0 ;current directory segment
+BITSEG DB 0 ;current bit-map segment
+
+MSGNUM DW 0 ;current message number
+POSBLK DW 0 ;postion block counter
+
+MSGINIT DB 0 ;is message currently being read?
+
+CHATBUF DS 90 ;storage area for chat routine
+
+LASTBYT
+ DEND
+ ORG
+END_MV = *-ZDATA
+
+PG3JMP ORG $380
+
+ENTPOINT JMP GETBYT
+ JMP CHKBYT
+ JMP GOBCOM
+ JMP INPNUM
+ JMP INPSTR
+ JMP MOVNAME
+ JMP BADERR
+ JMP SETIVEC
+ JMP GET
+ JMP GETCHR
+ JMP INPLN
+ JMP SETOVEC
+ JMP COUT
+ JMP DECOUT0
+ JMP CREATE
+ JMP OPEN
+ JMP CLOSE
+ JMP RDBYTE
+ JMP WRBYTE
+ JMP RDBLK
+ JMP WRBLK
+ JMP RDLINE
+ JMP GETMARK
+ JMP SETMARK
+ JMP LOGSPEC
+
+ DA FLNAME
+REFNUM DB 0
+ DA FBUF2

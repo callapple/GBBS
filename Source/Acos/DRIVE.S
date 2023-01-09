@@ -1,1 +1,189 @@
- ΠΑΗªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª   ΑΓΟΣ®ΟΒΚ ­ ΠςοΔΟΣ Δςιφε    ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª ΔΑΤΕª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª νοφε τθε ξανε ιξτο τθε ζιμεξανε ζιεμδª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΝΟΦΞΑΝΕ ΚΣÒ ΙΞΣΤÒ² »ηετ ξανε ¨δοξτ υσε νενοςω©ΝΟΦΞΝ° ΜΔΑ ΣΤÒΜΕΞ ΒΕΡ ΊΝΟΦΞΑΝ΄ ΜΔΩ £° ΣΤΩ ΔÒΦΓΘΔ »ιξιτ γθαξηε δςιφε στςιξη ΣΤΩ ΔÒΦΟΖΖ° ΣΤΩ ΔÒΦΟΖΖ± ΜΔΑ ¨ΣΤÒΜΟΓ©¬Ω »ηετ ζιςστ βωτε ΚΣÒ ΓΟΞΦ ΣΤΑ ΔÒΦΞΥΝ »σαφε ιτ ασ α δςιφε σπεγ ΓΝΠ £§Μ§«± ΒΗΕ ΊΝΟΦΞΑΝ² ξοτ ΚΣÒ ΤΣΤίΑΜΖ ΒΓΣ ΊΝΟΦΞΑΝ² »οππσ¬ ξοτ μεηαμ ΙΞΩ ΜΔΑ ¨ΣΤÒΜΟΓ©¬Ω »αςε χε δοξεΏ ΓΝΠ £§Ί§ ΒΕΡ ΊΝΟΦΞΑΝ³ »ωεπ¬ ηετ ζιμεξανε ΚΣÒ ΤΣΤίΞΥΝ »ισ ιτ α μεηαμ συβ­δςιφεΏ ΒΓΣ ΊΝΟΦΞΑΝ² »ξοπε ΣΤΑ ΔÒΦΟΖΖ° »σαφε συβ­δςιφε βωτε ± ΙΞΩ ΜΔΑ ¨ΣΤÒΜΟΓ©¬Ω »αςε χε δοξεΏ ΓΝΠ £§Ί§ ΒΕΡ ΊΝΟΦΞΑΝ³ »ωεπ¬ ηετ ζιμεξανε ΚΣÒ ΤΣΤίΞΥΝ »ισ ιτ α μεηαμ συβ­δςιφεΏ ΒΓΣ ΊΝΟΦΞΑΝ² »ξοπε ΣΤΑ ΔÒΦΟΖΖ± »σαφε συβ­δςιφε βωτε ² ΙΞΩ ΜΔΑ ¨ΣΤÒΜΟΓ©¬Ω »ισ τθεςε α τεςνιξατοςΏ ΓΝΠ £§Ί§ ΒΕΡ ΊΝΟΦΞΑΝ³ »ωεπ¬ ηετ ζιμεξανεΊΝΟΦΞΑΝ² ΜΔΩ £¤ΖΖ »ξο δςιφε παςν¬ κυστ ηετ ξανε ΣΤΩ ΔÒΦΓΘΔ »ιξιτ γθαξηε δςιφε ζμαηΊΝΟΦΞΑΝ³ ΙΞΩ ΜΔΨ £° ΓΠΩ ΣΤÒΜΕΞ ΒΕΡ ΊΝΟΦΞΑΝµ »ισ τθεςε αξω δαταΏ¬ θνννΊΝΟΦΞΑΝ΄ ΜΔΑ ¨ΣΤÒΜΟΓ©¬Ω »γοπω ζιμεξανε ΚΣÒ ΓΟΞΦ »γοξφεςτ το υππες ΓΝΠ £§®§ ΒΜΤ ΊΝΟΦΞΑΝµ »χε αςε δοξε Ϋαξωτθιξη μεσσ¬ ιμμεηαμέ ΣΤΑ ΖΜΞΑΝΕ«±¬Ψ »σαφε ξανε ΙΞΨ ΙΞΩ ΓΠΩ ΣΤÒΜΕΞ ΒΕΡ ΊΝΟΦΞΑΝµ »δοξε ωετΏ ΓΠΨ £±µ ΒΞΕ ΊΝΟΦΞΑΝ΄ »θαφε χε δοξε ±µ γθαςσ ¨τθε ναψ©¬ ξοπεΊΝΟΦΞΑΝµ ΣΤΨ ΖΜΞΑΝΕ »σαφε μεξητθ ΜΔΑ ΔÒΦΓΘΔ »γθαξηε δςιφε ζιςστΏ ΒΠΜ ΣΕΤΔÒΦ »ωεπ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª μοη το δςιφε Α¬ οζζσετ Ψª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΜΟΗΣΠΕΓ ΜΔΩ £° »ςεσετ οζζσετσ ΣΤΩ ΔÒΦΟΖΖ° ΣΤΩ ΔÒΦΟΖΖ± ΣΤΑ ΔÒΦΞΥΝ »σαφε δςιφε ξυνβες ΫΑ­Μέ ΤΨΑ ΒΕΡ ΣΕΤΔÒΦ »ξο οζζσετ ΚΣÒ ΒΙΞΔΕΓΈ »τςαξσματε το τχο­βωτε ξυνβες ΣΤΨ ΔÒΦΟΖΖ° »σαφε οζζσετ ΓΝΠ £§°§ ΒΕΡ ΣΕΤΔÒΦ »± βωτε οζζσετΏ¬ ωεπ ΣΤΑ ΔÒΦΟΖΖ° ΣΤΨ ΔÒΦΟΖΖ± »σαφε οζζσετΣΕΤΔÒΦ ΜΔΑ £ΌΔΕΦΞΑΝ »ποιξτ το πατθξανεσ ΣΤΑ ΤΕΝΠ ΜΔΑ £ΎΔΕΦΞΑΝ ΣΤΑ ΤΕΝΠ«± ΜΔΑ ΔÒΦΞΥΝ »τυςξ δςιφε ξυν ιξτο οζζσετ ΑΞΔ £¤Ζ ΣΤΑ ΜΞΒΥΖΊΣΕΤΔÒΦ° ΔΕΓ ΜΞΒΥΖ ΒΕΡ ΊΣΕΤΔÒΦ± »γουξτ δοχξ δςιφεσ ΜΔΩ £° ΜΔΑ ¨ΤΕΝΠ©¬Ω »ηετ μεξητθ οζ πατθξανε ΣΕΓ ΑΔΓ ΤΕΝΠ ΣΤΑ ΤΕΝΠ »ποιξτ το ξεψτ εξτςω ΜΔΑ £° ΑΔΓ ΤΕΝΠ«± ΣΤΑ ΤΕΝΠ«± ΚΝΠ ΊΣΕΤΔÒΦ° »σετ δςιφε ξυνβεςΊΣΕΤΔÒΦ± ΜΔΩ £° ΜΔΑ ¨ΤΕΝΠ©¬Ω »ηετ μεξητθ οζ στςιξη ΒΕΡ ΊΝΟΦΞΑΝ· »πατθξανε ξοτ ιξ υσε ΤΑΩ ΤΑΨ  »σαφε μεξητθΊΣΕΤΔÒΦ² ΜΔΑ ¨ΤΕΝΠ©¬Ω ΣΤΑ ΜΞΒΥΖ¬Ω »νοφε πατθξανε το μξβυζ ΔΕΩ ΒΠΜ ΊΣΕΤΔÒΦ² ΜΔΑ ΔÒΦΟΖΖ° »χασ τθεςε αξ οζζσετΏ ΒΕΡ ΊΣΕΤΔÒΦ΄ ξοπε ΙΞΨ ιξγςεασε μεξητθ ΣΤΑ ΜΞΒΥΖ¬Ψ σαφε ΜΔΑ ΔÒΦΟΖΖ± χασ ΒΕΡ ΊΣΕΤΔÒΦ΄ »ξοπε ΙΞΨ  »ιξγςεασε μεξητθ ΣΤΑ ΜΞΒΥΖ¬Ψ »σαφε οζζσετΊΣΕΤΔÒΦ΄ ΙΞΨ ΜΔΑ £§―§ ΣΤΑ ΜΞΒΥΖ¬Ψ »αδδ §―§ το εξδ οζ στςιξη ΣΤΨ ΜΞΒΥΖ »υπδατε μεξητθ ΚΣÒ ΝΜΙ »ηετ γυςςεξτ πςεζιψ ΔΒ ¤Γ· ΔΑ ΗΕΤΠΖΨ ΜΔΨ ΜΞΒΥΖ »αςε τθε μεξητθ§σ τθε σανεΏ ΓΝΠ ΜΞΒΥΖ«¶΄ ΒΞΕ ΊΣΕΤΔÒΦ¶ »ξοπε¬ γθαξηε το ξεχ πςεζιψΊΣΕΤΔÒΦµ ΜΔΑ ΜΞΒΥΖ¬Ψ »ισ δατα τθε σανεΏ ΓΝΠ ΜΞΒΥΖ«¶΄¬Ψ ΒΞΕ ΊΣΕΤΔÒΦ¶ »ξοπε¬ γθαξηε το ξεχ πςεζιψ ΔΕΨ ΒΠΜ ΊΣΕΤΔÒΦµ ÒΤΣ  »τθεω αςε τθε σανε¬ κυστ ςετυςξΊΣΕΤΔÒΦ¶ ΚΣÒ ΝΜΙ »σετ το τθε ξεχ πςεζιψ ΔΒ ¤Γ¶ ΔΑ ΣΕΤΠΖΨ ΒΞΕ ΊΝΟΦΞΑΝ· »οππσ¬ εςςος ÒΤΣΊΝΟΦΞΑΝ· ΜΔΨ £βαδδςιφε »βαδ δςιφε σπεγιζιες ΚΝΠ ΒΑΔΕÒÒΔÒΦΓΘΔ ΔΒ °ΔÒΦΞΥΝ ΔΒ °ΔÒΦΟΖΖ° ΔΒ °ΔÒΦΟΖΖ± ΔΒ °ΖΜΞΑΝΕ ΔΣ ±¶ΗΕΤΠΖΨ ΔΒ ± ΔΑ ΜΞΒΥΖ«¶΄ΣΕΤΠΖΨ ΔΒ ± ΔΑ ΜΞΒΥΖ
+ PAG
+********************************
+*                              *
+*   ACOS.OBJ - ProDOS Drive    *
+*                              *
+********************************
+ DATE
+*-------------------------------
+* move the name into the filename field
+*-------------------------------
+
+MOVNAME JSR INSTR2 ;get name (dont use memory)
+MOVNM0 LDA STRLEN
+ BEQ :MOVNAM4
+
+ LDY #0
+ STY DRVCHD ;init change drive string
+ STY DRVOFF0
+ STY DRVOFF1
+
+ LDA (STRLOC),Y ;get first byte
+ JSR CONV
+ STA DRVNUM ;save it as a drive spec
+ CMP #'L'+1
+ BGE :MOVNAM2 not
+
+ JSR TST_ALF
+ BCS :MOVNAM2 ;opps, not legal
+
+ INY
+ LDA (STRLOC),Y ;are we done?
+ CMP #':'
+ BEQ :MOVNAM3 ;yep, get filename
+
+ JSR TST_NUM ;is it a legal sub-drive?
+ BCS :MOVNAM2 ;nope
+
+ STA DRVOFF0 ;save sub-drive byte 1
+ INY
+ LDA (STRLOC),Y ;are we done?
+ CMP #':'
+ BEQ :MOVNAM3 ;yep, get filename
+
+ JSR TST_NUM ;is it a legal sub-drive?
+ BCS :MOVNAM2 ;nope
+
+ STA DRVOFF1 ;save sub-drive byte 2
+ INY
+ LDA (STRLOC),Y ;is there a terminator?
+ CMP #':'
+ BEQ :MOVNAM3 ;yep, get filename
+
+:MOVNAM2 LDY #$FF ;no drive parm, just get name
+ STY DRVCHD ;init change drive flag
+
+:MOVNAM3 INY
+ LDX #0
+ CPY STRLEN
+ BEQ :MOVNAM5 ;is there any data?, hmmm
+
+:MOVNAM4 LDA (STRLOC),Y ;copy filename
+ JSR CONV ;convert to upper
+ CMP #'.'
+ BLT :MOVNAM5 ;we are done [anything less, illegal]
+
+ STA FLNAME+1,X ;save name
+ INX
+ INY
+ CPY STRLEN
+ BEQ :MOVNAM5 ;done yet?
+
+ CPX #15
+ BNE :MOVNAM4 ;have we done 15 chars (the max), nope
+
+:MOVNAM5 STX FLNAME ;save length
+ LDA DRVCHD ;change drive first?
+ BPL SETDRV ;yep
+ RTS
+
+*-------------------------------
+* log to drive A, offset X
+*-------------------------------
+
+LOGSPEC LDY #0 ;reset offsets
+ STY DRVOFF0
+ STY DRVOFF1
+
+ STA DRVNUM ;save drive number [A-L]
+ TXA
+ BEQ SETDRV ;no offset
+
+ JSR BINDEC8 ;translate to two-byte number
+ STX DRVOFF0 ;save offset
+ CMP #'0'
+ BEQ SETDRV ;1 byte offset?, yep
+ STA DRVOFF0
+ STX DRVOFF1 ;save offset
+
+SETDRV LDA #<DEVNAM ;point to pathnames
+ STA TEMP
+ LDA #>DEVNAM
+ STA TEMP+1
+
+ LDA DRVNUM ;turn drive num into offset
+ AND #$F
+ STA LNBUF
+
+:SETDRV0 DEC LNBUF
+ BEQ :SETDRV1 ;count down drives
+
+ LDY #0
+ LDA (TEMP),Y ;get length of pathname
+
+ SEC
+ ADC TEMP
+ STA TEMP ;point to next entry
+ LDA #0
+ ADC TEMP+1
+ STA TEMP+1
+ JMP :SETDRV0 ;set drive number
+
+:SETDRV1 LDY #0
+ LDA (TEMP),Y ;get length of string
+ BEQ :MOVNAM7 ;pathname not in use
+
+ TAY
+ TAX  ;save length
+
+:SETDRV2 LDA (TEMP),Y
+ STA LNBUF,Y ;move pathname to lnbuf
+ DEY
+ BPL :SETDRV2
+
+ LDA DRVOFF0 ;was there an offset?
+ BEQ :SETDRV4 nope
+
+ INX increase length
+ STA LNBUF,X save
+
+ LDA DRVOFF1 was
+ BEQ :SETDRV4 ;nope
+
+ INX  ;increase length
+ STA LNBUF,X ;save offset
+
+:SETDRV4 INX
+ LDA #'/'
+ STA LNBUF,X ;add '/' to end of string
+ STX LNBUF ;update length
+
+ JSR MLI ;get current prefix
+ DB $C7
+ DA GETPFX
+
+ LDX LNBUF ;are the length's the same?
+ CMP LNBUF+64
+ BNE :SETDRV6 ;nope, change to new prefix
+
+:SETDRV5 LDA LNBUF,X ;is data the same?
+ CMP LNBUF+64,X
+ BNE :SETDRV6 ;nope, change to new prefix
+
+ DEX
+ BPL :SETDRV5
+ RTS  ;they are the same, just return
+
+:SETDRV6 JSR MLI ;set to the new prefix
+ DB $C6
+ DA SETPFX
+ BNE :MOVNAM7 ;opps, error
+ RTS
+
+:MOVNAM7 LDX #baddrive ;bad drive specifier
+ JMP BADERR
+
+DRVCHD DB 0
+DRVNUM DB 0
+DRVOFF0 DB 0
+DRVOFF1 DB 0
+
+FLNAME DS 16
+
+GETPFX DB 1
+ DA LNBUF+64
+
+SETPFX DB 1
+ DA LNBUF
+
+

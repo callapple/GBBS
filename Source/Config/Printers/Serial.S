@@ -1,1 +1,124 @@
-ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª    Σεςιαμ Πςιξτες Δςιφες     ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ ±²―°·―Έ¶ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ςεμ δσλ ςεμ―σεςιαμγς ερυ ¤°δμζ ερυ ¤°ασεςιαμ εξτ οςη ¤γ°°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­» κυνπ ταβμεσμοτ δβ ¤±° κνπ ιξιτ κνπ πςιξτ κνπ γμεαςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ζμαη ιξιτ στατυσ ζος ουτπυτιξιτ πθα μδα £° » σιηξαμ τθατ πςιξτες ξοτ ιξιτ§εδ στα ιξιτζμη πμα ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª πςιξτ γθαςαγτεςΊ Α ½ γθαςαγτεςπςιξτ πθπ  » δισαβμε ιξτ§σ σει πθα  » σαφε αμμ ςεη§σ στψ σαφείψ στω σαφείω μδα ¤γ°Έ² » εξαβμε ςονσ μδψ £¤±³πςιξτ± μδα ¤²΄¬ψ » σαφε ϊεςο παηε στυζζ στα ϊεςο¬ψ δεψ βπμ πςιξτ± βιτ ιξιτζμη » θασ πςιξτες βεεξ υσεδΏ βνι πςιξτ³ » ωεπ μδα σμοτ στα ¤²¶ » σαφε σμοτ ζος γαςδ μυπ ΄ μσς α » νοφε δοχξ σμοτ ­­ή γμγ αδγ £¤γ° στα πςιξτ²«² στα ¤³· » ποιξτ ¨¤°°³¶© ατ ¤γ±°° μδα £° » ιξιτ πςιξτες γαςδ ταψ ταω στα ¤²΄ » ϊεςο θοςιϊ οζζσετ στα ¤²· » ϊεςο γθαςαγτες βυζζες στα ¤³¶πςιξτ² κσς ¤γ±°° μδα ¤³¶ » ποιξτ το ουτπυτ ςουτιξε στα κπςιξτ«± μδα ¤³· στα κπςιξτ«² δεγ ιξιτζμη » σθοχ χε θαφε δοξε ιξιτ μδα £§Ι§­¤΄° » σεξδ γτςμ­Ι Έ° ξ κσς δοπςιξτ μδα £§Έ§ κσς δοπςιξτ μδα £§°§ κσς δοπςιξτ μδα £§Ξ§ κσς δοπςιξτ μδα £γς κσς δοπςιξτπςιξτ³ μδα £° » σετ γθ οφες το βοςδες στα ¤²΄ πμα  » ηετ βωτε το πςιξτ πθα κσς δοπςιξτ μδψ £¤±³πςιξτ΄ μδα ϊεςο¬ψ » ςεστοςε ϊεςο παηε στα ¤²΄¬ψ δεψ βπμ πςιξτ΄ μδα ¤γ°Έ³ » εξαβμε ςαν γαςδ μδα ¤γ°Έ³ μδψ σαφείψ » ςεστοςε ςεη§σ μδω σαφείω πμα πμπ  » ςεστοςε ιξτ στατυσ ςτσδοπςιξτ οςα £¤Έ° » πςιξτ χιτθ θιηθ­βιτ σετκπςιξτ κνπ ¤γ°°° » δο ουτπυτ ςουτιξε» γμεας πςιξτ βυζζες ¨ξοτ αφαιμαβμε©γμεας ςτσσαφείψ δβ °σαφείω δβ °ιξιτζμη δβ °ϊεςο δσ ¤±΄
+********************************
+*                              *
+*    Serial Printer Driver     *
+*                              *
+********************************
+
+*-------------------------------
+* Date: 12/07/86
+*-------------------------------
+ lst off
+
+ rel
+ dsk rel/serial
+
+cr equ $0d
+lf equ $0a
+
+serial ent
+
+ org $c00
+
+*-------------------------------
+; jump table
+slot db $10
+
+ jmp init
+ jmp print
+ jmp clear
+
+*-------------------------------
+* flag init status for output
+
+init pha
+ lda #0 ; signal that printer not init'ed
+ sta initflg
+ pla
+ rts
+
+*-------------------------------
+* print character: A = character
+
+print php  ; disable int's
+ sei
+ pha  ; save all reg's
+ stx save_x
+ sty save_y
+ lda $c082 ; enable roms
+
+ ldx #$13
+print1 lda $24,x ; save zero page stuff
+ sta zero,x
+ dex
+ bpl print1
+
+ bit initflg ; has printer been used?
+ bmi print3 ; yep
+
+ lda slot
+ sta $26 ; save slot for card
+ lup 4
+ lsr a ; move down slot
+ --^
+ clc
+ adc #$c0
+ sta print2+2
+ sta $37 ; point ($0036) at $c100
+
+ lda #0 ; init printer card
+ tax
+ tay
+ sta $24 ; zero horiz offset
+ sta $27 ; zero character buffer
+ sta $36
+print2 jsr $c100
+ lda $36 ; point to output routine
+ sta jprint+1
+ lda $37
+ sta jprint+2
+ dec initflg ; show we have done init
+
+ lda #'I'-$40 ; send ctrl-I 80 n
+ jsr doprint
+ lda #'8'
+ jsr doprint
+ lda #'0'
+ jsr doprint
+ lda #'N'
+ jsr doprint
+ lda #cr
+ jsr doprint
+
+print3 lda #0 ; set ch over to border
+ sta $24
+ pla  ; get byte to print
+ pha
+ jsr doprint
+
+ ldx #$13
+print4 lda zero,x ; restore zero page
+ sta $24,x
+ dex
+ bpl print4
+
+ lda $c083 ; enable ram card
+ lda $c083
+ ldx save_x ; restore reg's
+ ldy save_y
+ pla
+ plp  ; restore int status
+ rts
+
+doprint ora #$80 ; print with high-bit set
+jprint jmp $c000 ; do output routine
+
+
+; clear print buffer (not available)
+clear rts
+
+
+save_x db 0
+save_y db 0
+initflg db 0
+
+zero ds $14

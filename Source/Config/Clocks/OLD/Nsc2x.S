@@ -1,1 +1,179 @@
- ΤΤΜ ΆΑΓΟΣ ²®ψ­ΞΣΓ δςιφεςΆ ςεμ δσλ ςεμ―ξοσμοτª ΑΓΟΣ ²®ψ­ΞΣΓ Γμογλ δςιφες ¨νοδιζιεδ Ή°―°²―±°­ΚΑΒ© ΔΥΝΝΩ ¤΄²ΞΣΓίχοςλΞΣΓίΠτς ΔΣ ² »Ποιξτες το ΞΣΓ Ιξιτ στςιξηΞΣΓουτπτΩεας ΔΣ ±Νοξτθ ΔΣ ±Δατε ΔΣ ± ΔΣ ± »ΌΔαω οζ χεελΎΘους ΔΣ ± ΔΣ ± »ΌΝιξυτεσΎ ΔΣ ² »ΌΣεγοξδσ― ®°± ΣεγοξδσΎ ΔΕΞΔ ΔΥΝΝΩ ¤²Ζ°ΞΣΓίσαφε ΔΣ ±° »Ϊεςο­Παηε σαφε αςεα δυςξιξη ΞΣΓ αγγεσσ ΔΕΞΔΓΜÒΓΨÒΟΝ ½ ¤Γ°°¶ΣΕΤΓΨÒΟΝ ½ ¤Γ°°·ÒΔΓΨÒΟΝ ½ ¤Γ°±µΞΣΓίδατα ½ ¤ΓΈ°°ΞΣΓίιξιτ ½ ¤ΓΈ°΄ ΤÒ ΑΔÒξοσμοτ εξτ ΟÒΗ ¤°Δ°° ΘΕΨ ±° »Γμογλ σμοτ £ ΌΞοτ υσεδ βω ΞΣΓ δςιφεςΎΘςΖοςνατ ΘΕΨ Έ° »Ιζ ­» ±² Θς ζοςνατ ― Ιζ «» ²΄ Θους ζοςνατ ΚΝΠ ΊΗετΔατε »ΗΕΤΔΑΤΕ ΚΝΠ ΊΗετΤινε »ΗΕΤΤΙΝΕ ÒΤΣ  »ΣΕΤΔΑΤΕΊΗετΔατε ΚΣÒ ΊÒεαδΓμλ »Òεαδ τθε γμογλ ΜΔΑ Νοξτθ »Γοξφεςτ Δατε―Νοξτθ―Ωεας ιξτο ΠςοΔΟΣ ΑΣΜ  »Στςιξησ ΑΣΜ ΑΣΜ ΑΣΜ ΑΣΜ ÒΟΜ Ωεας ΟÒΑ Δατε ΤΑΨ ΜΔΑ Ωεας ΠΘΑ ΚΣÒ ΊÒεστΪΠη »Òεστοςε Ϊεςο­Παηε ΠΜΑ ÒΤΣΊΗετΤινε ΚΣÒ ΊÒεαδΓμλ »Òεαδ τθε γμογλ ΜΔΩ Θους ΒΙΤ ΘςΖοςνατ »²΄ θους τινε ζοςνατ Ώ ΒΠΜ ΊΓξφΤινε »Ωεσ ΜΔΑ £§Ν§ »Ξο Ί Σετυπ τινε στιξη ζος ±² θους ζοςνατ ΣΤΑ ΊΤινεΣτς«±° ΜΔΨ £§Α§ »ΌΑσσυνε ΑΝΎ ΣΕΔ ΣΕΓ ΤΩΑ  »Ισ ιτ Αζτεςξοοξ―Εφεξιξη Ώ ΣΒΓ £¤±² ΓΜΔ ΒΓΓ ΊΣετΑΝΠΝ »Ξο ΤΑΩ  »ΩεσΊ Σαφε ΆςεσυμτΆ θους ΒΞΕ ΊΝαλεΠΝ ΜΔΩ £¤±² »®®®®Ιτ§σ τθε Ξοοξ θους®®®®ΊΝαλεΠΝ ΜΔΨ £§Π§ΊΣετΑΝΠΝ ΣΤΨ ΊΤινεΣτς«Ή ΤΩΑ  »Ισ ιτ τθε ±² ΑΝ θους Ώ ΒΞΕ ΊΓξφΤινε ΜΔΩ £¤±² »ΩεσΊΓξφΤινε ΤΩΑ  »Σετυπ τινε στςιξη ΜΔΩ £° ΜΔΨ £°ΊΞψτΒωτε ΠΘΑ  »Σπμιτ βωτε ιξτο ξιββμεσ ΑΞΔ £¤Ζ° ΜΣÒ ΜΣÒ ΜΣÒ ΜΣÒ ΓΜΓ ΑΔΓ £§°§ »Σετυπ §Τεξσ§ διηιτ ΣΤΑ ΊΤινεΣτς¬Ω ΙΞΩ  »Σετυπ §Οξεσ§ διηιτ ΠΜΑ ΑΞΔ £¤°Ζ ΑΔΓ £§°§ ΣΤΑ ΊΤινεΣτς¬Ω ΙΞΩ ΙΞΩ ΙΞΨ  »Αςε χε ζιξισθεδ ¨τθςυ Σεγοξδσ© Ώ ΜΔΑ Θους¬Ψ ΓΠΨ £΄­± ΒΞΕ ΊΞψτΒωτε »Ξο ΚΣÒ ΊÒεστΪΠη »ΩεσΊ Òεστοςε Ϊεςο­Παηε ΜΔΨ £ΌΊΤινεΣτς »αξδ ςετυςξ χιτθ ποιξτες το τινε στςιξη ΜΔΑ £ΎΊΤινεΣτς ÒΤΣΊÒεστΪΠη ΜΔΩ £±° »Òεστοςε Ϊεςο παηεΊÒεστΪΠ± ΜΔΑ ΞΣΓίσαφε¬Ω ΣΤΑ ΞΣΓίχοςλ­±¬Ω ΔΕΩ ΒΞΕ ΊÒεστΪΠ± ÒΤΣª ÒεαδΓμλ ­ Òεαδ τθε φαμυεσ ζςον τθε ΞΣΓ§σ νενοςωΊÒεαδΓμλ ΜΔΩ £±° »Σαφε οζζ Ϊεςο παηε τθατ χε αςε υσιξηΊΣαφεΪΠη ΜΔΑ ΞΣΓίχοςλ­±¬Ω ΣΤΑ ΞΣΓίσαφε¬Ω ΔΕΩ ΒΞΕ ΊΣαφεΪΠη ΣΕΙ  »Δοξ§τ αμμοχ Ιξτεςςυπτσ δυςξιξη ΞΣΓ αγγεσσ ΜΔΑ ÒΔΓΨÒΟΝ »Σαφε ΓΨ­ÒΟΝ στατε ΠΘΑ ΣΤΑ ΣΕΤΓΨÒΟΝ ΜΔΑ ΞΣΓίιξιτ »Εξαβμε ΞΣΓ  ζος  ιξιτ στςιξη ΜΔΑ £ΌΊΙξιτΣτς »Σετυπ ποιξτες το ιξιτ στςιξη ΣΤΑ ΞΣΓίΠτς ΜΔΑ £ΎΊΙξιτΣτς ΣΤΑ ΞΣΓίΠτς«± ΜΔΩ £· »Σεξδ ιξιτ στςιξηΊΙξτΞΒωτ ΜΔΑ ¨ΞΣΓίΠτς©¬Ω »Ηετ ξεψτ ΞΣΓ ιξτι βωτε ΣΕΓ ÒΟÒΊΙξτΞΒιτ ΠΘΑ  »Σεξδ τθε βιτσ®®® ΜΔΑ £° ÒΟΜ ΤΑΨ ΜΔΑ ΞΣΓίδατα¬Ψ ΠΜΑ ΜΣÒ ΒΞΕ ΊΙξτΞΒιτ ΔΕΩ ΒΠΜ ΊΙξτΞΒωτ ΜΔΨ £· »Òεαδ ιξ τθε τινε ζςον τθε ΞΣΓ γθιπΊΞψτΟΒωτ ΜΔΩ £·ΊΞψτΟΒιτ ΜΔΑ ΞΣΓίιξιτ ÒΟÒ ÒΟÒ ΞΣΓουτπτ¬Ψ ΔΕΩ  »Νοςε βιτσ το ςεγειφε Ώ ΒΠΜ ΊΞψτΟΒιτ »Ωεσ ΓΠΨ £³ »Αςε χε δοχξ το ΆΔαω οζ ΧεελΆ Ώ ΒΠΜ ΊΝοςεΟΏ »ΩεσΊ Ιηξοςε ΔΟΧ¬ Δατε¬ Νοξτθ¬ αξδ Ωεας ΜΔΑ ΞΣΓουτπτ¬Ψ »Ξο Ί Γοξφεςτ ΒΓΔ το Θεψ ΠΘΑ ΑΞΔ £¤°Ζ ΣΤΑ ΞΣΓουτπτ¬Ψ ΠΜΑ ΑΞΔ £¤Ζ° ΜΣÒ ΜΣÒ ΜΣÒ ΜΣÒ ΤΑΩ ΒΕΡ ΊΝοςεΟΏ ΜΔΑ £°ΊΓξφ²Θεψ ΑΔΓ £±° ΔΕΩ ΒΞΕ ΊΓξφ²Θεψ ΑΔΓ ΞΣΓουτπτ¬Ψ ΣΤΑ ΞΣΓουτπτ¬ΨΊΝοςεΟΏ ΔΕΨ  »Νοςε βωτεσ το ςεαδ ζςον ΞΣΓ Ώ ΒΠΜ ΊΞψτΟΒωτ »Ωεσ ΠΜΑ  »Ξο Ί Òεστοςε ΓΨ­ÒΟΝ σεττιξη Όιζ ξεγεσσαςωΎ ÒΟΜ ΒΓΣ ΊÒεαδΔοξ ΣΤΑ ΓΜÒΓΨÒΟΝΊÒεαδΔοξ ÒΤΣΊΙξιτΣτς ΘΕΨ µΓ¬Α³¬³Α¬Γµ¬µΓ¬Α³¬³Α¬ΓµΊΤινεΣτς ΑΣΓ §°°Ί°°Ί°°   § ΘΕΨ °°¬°°
+ TTL "ACOS 2.x-NSC driver"
+
+ rel
+ dsk rel/noslot
+
+* ACOS 2.x-NSC Clock driver (modified 90/02/10-JAB)
+ DUMMY $42
+NSC_work
+NSC_Ptr DS 2 ;Pointer to NSC Init string
+NSCoutpt
+Year DS 1
+Month DS 1
+Date DS 1
+ DS 1 ;<Day of week>
+Hour DS 1
+ DS 1 ;<Minutes>
+ DS 2 ;<Seconds/ .01 Seconds>
+ DEND
+ DUMMY $2F0
+NSC_save DS 10 ;Zero-Page save area durning NSC access
+ DEND
+
+CLRCXROM = $C006
+SETCXROM = $C007
+RDCXROM = $C015
+
+NSC_data = $C800
+NSC_init = $C804
+
+ TR ADR
+noslot ent
+ ORG $0D00
+ HEX 10 ;Clock slot # <Not used by NSC driver>
+HrFormat HEX 80 ;If -; 12 Hr format / If +; 24 Hour format
+ JMP :GetDate ;GETDATE
+ JMP :GetTime ;GETTIME
+ RTS  ;SETDATE
+
+:GetDate JSR :ReadClk ;Read the clock
+ LDA Month ;Convert Date/Month/Year into ProDOS
+ ASL  ;Strings
+ ASL
+ ASL
+ ASL
+ ASL
+ ROL Year
+ ORA Date
+ TAX
+ LDA Year
+ PHA
+ JSR :RestZPg ;Restore Zero-Page
+ PLA
+ RTS
+
+:GetTime JSR :ReadClk ;Read the clock
+ LDY Hour
+ BIT HrFormat ;24 hour time format ?
+ BPL :CnvTime ;Yes
+ LDA #'M' ;No : Setup time sting for 12 hour format
+ STA :TimeStr+10
+ LDX #'A' ;<Assume AM>
+ SED
+ SEC
+ TYA  ;Is it Afternoon/Evening ?
+ SBC #$12
+ CLD
+ BCC :SetAMPM ;No
+ TAY  ;Yes: Save "result" hour
+ BNE :MakePM
+ LDY #$12 ;....It's the Noon hour....
+:MakePM LDX #'P'
+:SetAMPM STX :TimeStr+9
+ TYA  ;Is it the 12 AM hour ?
+ BNE :CnvTime
+ LDY #$12 ;Yes
+:CnvTime TYA  ;Setup time string
+ LDY #0
+ LDX #0
+:NxtByte PHA  ;Split byte into nibbles
+ AND #$F0
+ LSR
+ LSR
+ LSR
+ LSR
+ CLC
+ ADC #'0' ;Setup 'Tens' digit
+ STA :TimeStr,Y
+ INY  ;Setup 'Ones' digit
+ PLA
+ AND #$0F
+ ADC #'0'
+ STA :TimeStr,Y
+ INY
+ INY
+ INX  ;Are we finished (thru Seconds) ?
+ LDA Hour,X
+ CPX #4-1
+ BNE :NxtByte ;No
+ JSR :RestZPg ;Yes: Restore Zero-Page
+ LDX #<:TimeStr ;and return with pointer to time string
+ LDA #>:TimeStr
+ RTS
+
+:RestZPg LDY #10 ;Restore Zero page
+:RestZP1 LDA NSC_save,Y
+ STA NSC_work-1,Y
+ DEY
+ BNE :RestZP1
+ RTS
+
+* ReadClk - Read the values from the NSC's memory
+:ReadClk LDY #10 ;Save off Zero page that we are using
+:SaveZPg LDA NSC_work-1,Y
+ STA NSC_save,Y
+ DEY
+ BNE :SaveZPg
+ SEI  ;Don't allow Interrupts durning NSC access
+ LDA RDCXROM ;Save CX-ROM state
+ PHA
+ STA SETCXROM
+ LDA NSC_init ;Enable NSC  for  init string
+ LDA #<:InitStr ;Setup pointer to init string
+ STA NSC_Ptr
+ LDA #>:InitStr
+ STA NSC_Ptr+1
+ LDY #7 ;Send init string
+:IntNByt LDA (NSC_Ptr),Y ;Get next NSC inti byte
+ SEC
+ ROR
+:IntNBit PHA  ;Send the bits...
+ LDA #0
+ ROL
+ TAX
+ LDA NSC_data,X
+ PLA
+ LSR
+ BNE :IntNBit
+ DEY
+ BPL :IntNByt
+ LDX #7 ;Read in the time from the NSC chip
+:NxtOByt LDY #7
+:NxtOBit LDA NSC_init
+ ROR
+ ROR NSCoutpt,X
+ DEY  ;More bits to receive ?
+ BPL :NxtOBit ;Yes
+ CPX #3 ;Are we down to "Day of Week" ?
+ BPL :MoreO? ;Yes: Ignore DOW, Date, Month, and Year
+ LDA NSCoutpt,X ;No : Convert BCD to Hex
+ PHA
+ AND #$0F
+ STA NSCoutpt,X
+ PLA
+ AND #$F0
+ LSR
+ LSR
+ LSR
+ LSR
+ TAY
+ BEQ :MoreO?
+ LDA #0
+:Cnv2Hex ADC #10
+ DEY
+ BNE :Cnv2Hex
+ ADC NSCoutpt,X
+ STA NSCoutpt,X
+:MoreO? DEX  ;More bytes to read from NSC ?
+ BPL :NxtOByt ;Yes
+ PLA  ;No : Restore CX-ROM setting <if necessary>
+ ROL
+ BCS :ReadDon
+ STA CLRCXROM
+:ReadDon RTS
+
+:InitStr HEX 5C,A3,3A,C5,5C,A3,3A,C5
+:TimeStr ASC '00:00:00   '
+ HEX 00,00
+
+

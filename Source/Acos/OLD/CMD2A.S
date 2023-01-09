@@ -1,1 +1,1058 @@
- ΠΑΗªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª     ΑΓΟΣ®ΟΒΚ ­ Γονναξδσ²     ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª ΔΑΤΕª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γθεγλ ζος λεωπςεσσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΛΕΩ ΚΣÒ ΓΘΛΔΓΔ »ναλε λεω γθεγλ ζος γαςςιες ΜΔΑ £° ΚΣÒ ΓΟΥΤ »πομμ νοδεν―λεωβοαςδ ΚΣÒ ΙΞΠΞΑÒΗ »ηοββμε αςηυνεξτ ΓΠΨ £± ΒΕΡ ΊΔΟίΛΕΩ³ »γθεγλ ζος §στοπ§ γθαςΏ ΓΠΨ £² ΒΕΡ ΊΔΟίΛΕΩ΄ »γθεγλ ζος §ξεψτ§ γθαςΏ ΓΠΨ £³ ΒΕΡ ΊΔΟίΛΕΩ± »γθεγλ ζος αξω ιξτ ταλιξη πμαγε ΚΣÒ ΗΕΤΓΘÒ »γθεγλ βυζζεςΊΔΟίΛΕΩ² ΑΞΔ £γμςθι ΚΝΠ ΣΦΔΑΤΑΊΔΟίΛΕΩ³ ΜΔΨ ΣΤΠΓΘÒ »γθεγλ στοπ γθας ΒΞΕ ΊΔΟίΛΕΩµ »­­ αμχαωσ βςαξγθΊΔΟίΛΕΩ΄ ΜΔΨ ΞΨΤΓΘÒ »γθεγλ ξεψτ γθαςΊΔΟίΛΕΩµ ΜΔΑ £° ΓΠΨ ΙΞΤΓΘÒ ΒΞΕ ΊΔΟίΛΕΩ² »διδ τθεω θιτ ιτΏ¬ ξοπε ΜΔΑ £± »ωεπ ΒΞΕ ΊΔΟίΛΕΩ² »­­ αμχαωσ βςαξγθΊΔΟίΛΕΩ± ΜΔΑ ΙΞΤΟΥΤ »θασ ουτπυτ βεεξ ιξτεςυπτεδΏ ΚΝΠ ΣΦΔΑΤΑª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ χιδτθ ζςον ιξδεψª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΧΙΔ ΚΣÒ ΙΞΠΞΑÒΗ »ηετ αςη ΓΠΨ £µ ΒΗΕ ΧΟΛ »ιξ ςαξηεΏ¬ ξοπε ΜΔΑ ΧΙΔΤΘ¬Ψ »ηετ χιδτθ ΚΝΠ ΣΦΔΑΤΑΧΟΛ ΜΔΨ £σωξταψ »σωξταψ εςςοςΗΟίΕÒÒ ΚΝΠ ΒΑΔΕÒÒª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª θαξδμε ζος­ξεψτ στατενεξτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΖΟÒ ΜΔΑ ΖΟÒΜΦΜ ΜΔΨ £ζοςζυμμ ΓΝΠ £±¶ ΒΕΡ ΗΟίΕÒÒ »ζος σταγλ ζυμμ εςςος ΜΔΩ £² »σαφε φαςιαβμε ξανε οξ στλ ΜΔΑ ¨ΠÒΗΠΤÒ©¬Ω »σιξγε ΔΟίΜΕΤ γουμδ ςετυςξ ΠΘΑ  »α ποσσιβμε σεγοξδ φαςιαβμε ΔΕΩ  »ξανε ΜΔΑ ¨ΠÒΗΠΤÒ©¬Ω ΠΘΑ ΚΣÒ ΔΟίΜΕΤ »δο ασσιηξ ΜΔΨ ΖΟÒΜΦΜ »ηετ μεφεμ ΠΜΑ  »σαφε φας ποιξτες ΣΤΑ ΖΟÒΦΑÒ¬Ψ ΠΜΑ ΣΤΑ ΖΟÒΦΑÒ«±¬Ψ ΜΔΨ £το »ηοββμε ΆΤΟΆ στατενεξτ ΚΣÒ ΗΟΒΒΜΕ ΚΣÒ ΙΞΠΞΥΝ ΜΔΩ ΖΟÒΜΦΜ »ηετ μεφεμ ΣΤΑ ΖΟÒΕΞΔ«±¬Ω ΤΨΑ ΣΤΑ ΖΟÒΕΞΔ¬Ω »σαφε εξδ φαμυε ΜΔΑ £Ό± ΣΤΑ ΖΟÒΣΤΠ¬Ω »σαφε δεζαυμτ στεπ γουξτ ¨±© ΜΔΑ £Ύ± ΣΤΑ ΖΟÒΣΤΠ«±¬Ω ΚΣÒ ΓΘΛΒΩΤ »διδ τθεω σπεγιζω α στεπΏ ΓΝΠ £στεπ ΒΞΕ ΊΔΟίΖΟÒ± »ξοπε ΚΣÒ ΗΕΤΒΩΤ »ηοββμε ΆστεπΆ ΚΣÒ ΙΞΠΞΥΝ »ηετ στεπ ΜΔΩ ΖΟÒΜΦΜ ΣΤΑ ΖΟÒΣΤΠ«±¬Ω »σαφε δεσιςεδ στεπ ΤΨΑ ΣΤΑ ΖΟÒΣΤΠ¬Ω ΟÒΑ ΖΟÒΣΤΠ«±¬Ω »διδ τθεω τςω στεπ °Ώ ΒΕΡ ΧΟΛ »τθε δομτ΅ εςςος ουτΊΔΟίΖΟÒ± ΜΔΨ ΖΟÒΜΦΜ »σαφε αδδςεσσ οζ §ΖΟÒ§ σεγτιοξ ΜΔΑ ΠÒΗΠΤÒ ΣΤΑ ΖΟÒΜΟΓ¬Ψ ΜΔΑ ΠÒΗΠΤÒ«± ΣΤΑ ΖΟÒΜΟΓ«±¬Ψ ΙΞΓ ΖΟÒΜΦΜ »ιξγ μεφεμ ΙΞΓ ΖΟÒΜΦΜ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª θαξδμε ΆξεψτΆ παςτ οζ ζος­ξεψτ μοοπª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΞΨΤ ΜΔΨ ΖΟÒΜΦΜ »γθεγλ ζος ξεψτ χιτθουτ ζος ΒΕΡ ΊΔΟίΞΨΤ¶ ΚΣÒ ΓΘΛΒΩΤ »γθεγλ ζος σπεγιζιεδ φαςιαβμε ΓΝΠ £ξυνβες ΒΞΕ ΊΔΟίΞΨΤ² »ξοξε¬ υσε ξεψτ οξ σταγλ ΚΣÒ ΦΑÒΣΕΤ »ηετ φαςιαβμε ΜΔΨ ΖΟÒΜΦΜ »ζιξδ φαςιαβμε ιξ σταγλΊΔΟίΞΨΤ± ΔΕΨ  »βαγλ δοχξ ± μεφεμ ΔΕΨ ΒΝΙ ΊΔΟίΞΨΤ¶ ΜΔΑ ΖΟÒΦΑÒ¬Ψ ΓΝΠ ΦΞΑΝΕ ΒΞΕ ΊΔΟίΞΨΤ± ΜΔΑ ΖΟÒΦΑÒ«±¬Ψ ΓΝΠ ΦΞΑΝΕ«± ΒΞΕ ΊΔΟίΞΨΤ± ΙΞΨ  »σετ τθε ποιξτες ιξτο σταγλ ΙΞΨ ΣΤΨ ΖΟÒΜΦΜ ΒΞΕ ΊΔΟίΞΨΤ³ΊΔΟίΞΨΤ² ΔΕΨ  »ηετ ξεψτ φαςιαβμε ιξ σταγλ ΔΕΨ ΜΔΑ ΖΟÒΦΑÒ¬Ψ ΣΤΑ ΦΞΑΝΕ ΜΔΑ ΖΟÒΦΑÒ«±¬Ψ ΣΤΑ ΦΞΑΝΕ«± ΚΣÒ ΦΑÒΣΕΤ³ »ζιξδ φαςιαβμε ιξ νενοςωΊΔΟίΞΨΤ³ ΜΔΨ ΖΟÒΜΦΜ »βαγλ δοχξ το ιτ ΔΕΨ ΔΕΨ ΜΔΑ ΦΠΤÒ ΣΤΑ ΤΕΝΠ »ςεστοςε φας ποιξτες ΜΔΑ ΦΠΤÒ«± ΣΤΑ ΤΕΝΠ«± ΜΔΩ £± ΜΔΑ ΖΟÒΣΤΠ«±¬Ψ »δοιξη ξεηατιφε στεπΏ ΒΝΙ ΊΔΟίΞΨΤ· »ωεσ¬ δο ιτ ΜΔΑ ¨ΤΕΝΠ©¬Ω »γθεγλ θιηθ ­ αςε χε δοξεΏ ΓΝΠ ΖΟÒΕΞΔ«±¬Ψ ΒΜΤ ΊΔΟίΞΨΤΉ »ξο¬ μοοπ ΒΕΡ ΊΔΟίΞΨΤ΄ »θννν¬ γθεγλ μοχ βωτε ΒΗΕ ΊΔΟίΞΨΤµ »ωεσ¬ χε αςε δοξεΊΔΟίΞΨΤ΄ ΔΕΩ  »γθεγλ μοχ ­ αςε χε δοξεΏ ΜΔΑ ¨ΤΕΝΠ©¬Ω ΓΝΠ ΖΟÒΕΞΔ¬Ψ ΒΜΤ ΊΔΟίΞΨΤΉ »ξο¬ μοοπΊΔΟίΞΨΤµ ΔΕΓ ΖΟÒΜΦΜ »γοξγμυδε μοοπ ΔΕΓ ΖΟÒΜΦΜΊΔΟίΞΨΤ¶ ÒΤΣΊΔΟίΞΨΤ· ΜΔΑ ¨ΤΕΝΠ©¬Ω ΓΝΠ ΖΟÒΕΞΔ«±¬Ψ »γθεγλ θιηθ ­ αςε χε δοξεΏ ΒΕΡ ΊΔΟίΞΨΤΈ »ναωβε¬ γθεγλ νιδ βωτε ΒΜΤ ΊΔΟίΞΨΤµ »ωεσ¬ ζιξισθ υπ ΒΗΕ ΊΔΟίΞΨΤΉ »ξοπε¬ μοοπΊΔΟίΞΨΤΈ ΔΕΩ  »Αςε χε δοξε χιτθ μοχ βωτεΏ ΜΔΑ ¨ΤΕΝΠ©¬Ω ΓΝΠ ΖΟÒΕΞΔ¬Ψ ΒΕΡ ΊΔΟίΞΨΤµ »ωεσ¬ ζιξισθ υπ ΒΜΤ ΊΔΟίΞΨΤµ »ιζ μεσσ¬ χε αςε δοξεΊΔΟίΞΨΤΉ ΜΔΑ ΖΟÒΜΟΓ¬Ψ ΣΤΑ ΠÒΗΠΤÒ »ποιξτ το ΆζοςΆ μογατιοξ ΜΔΑ ΖΟÒΜΟΓ«±¬Ψ ΣΤΑ ΠÒΗΠΤÒ«± ΓΜΓ  »αδδ ιξ στεπ φαμυε ΜΔΩ £° ΜΔΑ ΖΟÒΣΤΠ¬Ψ ΑΔΓ ¨ΤΕΝΠ©¬Ω ΣΤΑ ¨ΤΕΝΠ©¬Ω »δο μοχ ΙΞΩ ΜΔΑ ΖΟÒΣΤΠ«±¬Ψ ΑΔΓ ¨ΤΕΝΠ©¬Ω ΣΤΑ ¨ΤΕΝΠ©¬Ω »δο θιηθ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª νοφε νενοςωª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΝΟΦΕ ΚΣÒ ΙΞΠΞΥΝ »ηετ σουςγε αδδςεσσ ΣΤΨ ΤΕΝΠ² ΣΤΑ ΤΕΝΠ²«± ΚΣÒ ΗΟΒΓΟΝ »ηοββμε γοννα ΚΣÒ ΙΞΠΞΥΝ »ηετ £ οζ βωτεσ το νοφε ΤΨΑ ΠΘΑ ΜΔΨ £το ΚΣÒ ΗΟΒΒΜΕ »ηοββμε §ΤΟ§ στατενεξτ ΚΣÒ ΙΞΠΞΥΝ »ηετ δεστιξατιοξ αδδςεσσ ΣΤΨ ΤΕΝΠ ΣΤΑ ΤΕΝΠ«± ΠΜΑ ΤΑΨ  »ηετ βαγλ £ οζ βωτεσ το νοφε ΜΔΩ £°ΊΝΟΦΕ² ΜΔΑ ¨ΤΕΝΠ²©¬Ω ΣΤΑ ¨ΤΕΝΠ©¬Ω »γοπω βωτε ΙΞΩ ΔΕΨ ΒΞΕ ΊΝΟΦΕ² »γουξτ δοχξ¬ χεςε δοξε΅ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ μογατιοξ οζ σγςατγθ ςανª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίÒΑΝ ΜΔΨ £ΌΣΓÒΑΤΓΘ ΜΔΑ £ΎΣΓÒΑΤΓΘ ΚΝΠ ΔΟίΝΑΤΘª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ μογατιοξ οζ αυψ σγςατγθ ςανª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίÒΑΝ² ΜΔΨ £ΌΣΓÒΑΤΓΘ«¶΄ ΜΔΑ £ΎΣΓÒΑΤΓΘ«¶΄ ΚΝΠ ΔΟίΝΑΤΘª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηεξεςατε α ςαξδον γθαςαγτεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίÒΞΔΣ ΜΔΑ ÒΞΔ ΑΞΔ £¤±Ζ »ναλε ιξ ςαξηε Ϋ°­³±έ ΓΝΠ £§Ϊ§­γτςμ ΒΜΤ ΊΔΟίÒΞΔ² »ιξ ςαξηε ΣΒΓ £±° »πυτ ιξτο ςαξηεΊΔΟίÒΞΔ² ΜΔΩ £° ΑΔΓ £§Α§ ΣΤΑ ¨ΦΑÒΣΤÒ©¬Ω »σαφε γθαςαγτες ΜΔΑ ÒΞΔ«± ΕΟÒ £¤Β΄ ΑΔΓ ÒΞΔ ΣΤΑ ÒΞΔ »ςε­σεεδ ζος ξεψτ πασσ ÒΟΜ ÒΟΜ ÒΟΜ ΣΤΑ ÒΞΔ«± ΜΔΨ ΦΑÒΣΤÒ »ποιξτ το ςαξδον γθας ΜΔΑ ΦΑÒΣΤÒ«± ΙΞΩ ΙΞΓ ΦΑÒΣΤÒ ΒΞΕ ΊΔΟίÒΞΔ³ ΙΞΓ ΦΑÒΣΤÒ«±ΊΔΟίÒΞΔ³ ΚΝΠ ΣΦΣΤÒ »σαφε μογατιοξ οζ γθαςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ α ςαξδον ξυνβεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίÒΞΔ ΚΣÒ ΙΞΠΞΑÒΗ »ηετ ςαξηε ΣΤΨ ΤΕΝΠ »σαφε ςαξηε ΣΤΑ ΤΕΝΠ«± ΤΑΩ  »ισ ιτ βεμοχ ²µ¶Ώ ΒΕΡ ΊΔΟίÒΞ° »ωεπ¬ κυστ ηετ Έ βιτ σεεδ ΜΔΑ ÒΞΔ«±ΊΔΟίÒΞ° ΜΔΨ ÒΞΔ »ηετ σεεδΊΔΟίÒΞ² ΓΝΠ ΤΕΝΠ«± ΒΕΡ ΊΔΟίÒΞ΄ »γθεγλ μοχ ΒΗΕ ΊΔΟίÒΞµ »λιμμ ξυνβεςΊΔΟίÒΞ³ ΚΝΠ ΔΟίΝΑΤΘ »ςετυςξ ξυνβεςΊΔΟίÒΞ΄ ΓΠΨ ΤΕΝΠ ΒΕΡ ΊΔΟίÒΞ³ »γθεγλ μοχ βωτε ΒΜΤ ΊΔΟίÒΞ³ »αμμ ισ χεμμ¬ ςετυςξΊΔΟίÒΞµ ΠΘΑ ΣΕΓ ΤΨΑ ΣΒΓ ΤΕΝΠ »¨ΑΨ© ½ ¨ΑΨ© ­ ςαξηε ΤΑΨ ΠΜΑ ΣΒΓ ΤΕΝΠ«± ΒΓΣ ΊΔΟίÒΞ² »μοοπ αξδ γθεγλª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ζιμμ α ςαξηε οζ νενοςωª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΖΙΜΜ ΚΣÒ ΙΞΠΞΥΝ ΣΤΨ ΤΕΝΠ »ποιξτ το ζιμμ μογατιοξ ΣΤΑ ΤΕΝΠ«± ΚΣÒ ΗΟΒΓΟΝ »ηοββμε ΚΣÒ ΙΞΠΞΥΝ »ηετ ξυνβες οζ βωτεσ το ζιμμ ΣΤΨ ΤΕΝΠ² ΚΣÒ ΗΟΒΓΟΝ »ηοββμε ΚΣÒ ΙΞΠΞΥΝ »ηετ βωτε το ζιμμ χιτθ ΤΨΑ ΜΔΩ £°ΊΖΙΜΜ² ΣΤΑ ¨ΤΕΝΠ©¬Ω »ζιμμ ΙΞΩ ΔΕΓ ΤΕΝΠ² ΒΞΕ ΊΖΙΜΜ² »ςεπεατ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ξο γαςςιες φεγτοςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΞΟΓΔ ΜΔΑ £° ΣΤΑ ΞΟΓΔΖΜΗ »ςεσετ γαςςιες φεγτος ΚΣÒ ΗΕΤΒΩΤ »σεε ιζ ιτ θασ α φεγτος ΓΝΠ £ηοτο ΒΞΕ ΊΔΟίΞΟΓ² »χασ ιτ ηοτοΏ ΚΣÒ ΗΕΤΒΩΤ »ηετ μοχ βωτε οζ ςουτιξε ΣΤΑ ΞΟΓΔΦΕΓ ΚΣÒ ΗΕΤΒΩΤ »ηετ θιηθ βωτε οζ ςουτιξε ΣΤΑ ΞΟΓΔΦΕΓ«± ΔΕΓ ΞΟΓΔΖΜΗΊΔΟίΞΟΓ² ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςετυςξ εςςος ξυνεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΕÒÒΞΟ ΜΔΑ ΕÒÒΞΟ ΚΝΠ ΣΦΔΑΤΑª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ εςςος φεγτοςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΟΞΕÒÒ ΜΔΑ £° ΣΤΑ ΟΞΕÒÒΖΜΗ »ςεσετ οξεςς φεγτος ΚΣÒ ΗΕΤΒΩΤ »σεε ιζ ιτ θασ α φεγτος ΓΝΠ £ηοτο ΒΞΕ ΊΔΟίΕÒÒ² »χασ ιτ ηοτοΏ ΚΣÒ ΗΕΤΒΩΤ »ηετ μοχ βωτε οζ ςουτιξε ΣΤΑ ΟΞΕÒÒΦΕΓ ΚΣÒ ΗΕΤΒΩΤ »ηετ θιηθ βωτε οζ ςουτιξε ΣΤΑ ΟΞΕÒÒΦΕΓ«± ΔΕΓ ΟΞΕÒÒΖΜΗΊΔΟίΕÒÒ² ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεσυνε γονναξδª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίÒΕΣΥΝ ΜΔΑ ΖÒΟΝΕÒÒ »χασ τθεςε αξ εςςοςΏ ΟÒΑ ΖÒΟΝΕÒÒ«± ΒΕΡ ΊΞΟΕÒÒ »ξο εςςος ογγυςςεδ ΜΔΑ ΖÒΟΝΕÒÒ »ςεπμαγε εςςος μογατιοξ ΣΤΑ ΠÒΗΠΤÒ ΜΔΑ ΖÒΟΝΕÒÒ«± ΣΤΑ ΠÒΗΠΤÒ«± ΚΣÒ ΓΘΛΒΩΤ »ηετ τθε βωτε τθεςε ΚΝΠ ΊΤΣΤΙΤέΜΟΟΠ ΚΣÒ ΗΕΤΒΩΤ »ηετ ξεψτ βωτεΊΤΣΤΙΤ ΓΝΠ £γθαιξ² »εξδ οζ μιξεΏ ΒΕΡ ΊΔΟΞΕ »ωεσ¬ γοξτιξυε χιτθ πην ΓΝΠ £ηοτο »α ηοτοΏ ΒΕΡ ΊΔΟίΜΒΜ ΓΝΠ £ηοσυβ »α ηοσυβΏ ΒΕΡ ΊΔΟίΜΒΜ ΓΝΠ £πυσθ »α πυσθΏ ΒΞΕ έΜΟΟΠ »ξοπε¬ ξεψτ βωτεΊΔΟίΜΒΜ ΚΣÒ ΗΕΤÒΑΧ »σλιπ μαβεμ αδδςεσσ ΚΣÒ ΗΕΤÒΑΧ ΚΝΠ έΜΟΟΠΊΔΟΞΕ ÒΤΣΊΞΟΕÒÒ ΜΔΑ £° »δοξ§τ τςαπ τθισ οξε ΣΤΑ ΟΞΕÒÒΖΜΗ ΜΔΨ £¤±Ή »ξο εςςος νεσσαηε ΚΝΠ ΒΑΔΕÒÒª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ ηεξεςαμ σωστεν το πςοηςανª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΙΞΖΟ ΚΣÒ ΙΞΠΞΑÒΗ »ηετ αςη ξυνβες ΓΠΨ £· ΒΗΕ ΊΔΟίΙΞΖ² ΤΨΑ ΑΣΜ  »α ½ α ª ² ΤΑΨ ΜΔΑ ΙΞΖΟΚΝΠ¬Ψ ΣΤΑ ΤΕΝΠ »εψεγυτε ςουτιξε ΜΔΑ ΙΞΖΟΚΝΠ«±¬Ψ ΣΤΑ ΤΕΝΠ«± ΒΙΤ ΙΝΝΔΕΖ ΚΝΠ ¨ΤΕΝΠ©ΊΔΟίΙΞΖ² ΜΔΨ £σωξταψ »σωξταψ εςςος ΚΝΠ ΒΑΔΕÒÒΙΞΖΟΚΝΠ ΔΧ ΙΞΖ° »ηετ ςενοτε ζμαη ΔΧ ΙΞΖ± »νση βοαςδ γαπαγιτω ΔΧ ΙΞΖ² »ηετ υσεςσ βαυδ ςατε ΔΧ ΙΞΖ³ »ηετ―σετ ξυμμσ ΔΧ ΙΞΖ΄ »δισπμαω γθατ νοδε ΔΧ ΙΞΖµ »ηετ―σετ εψεγ ζμαησ ΔΧ ΙΞΖ¶ »ξυνβες οζ βμογλσ ζςεεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςετυςξ οξμιξε στατυσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΙΞΖ° ΜΔΑ ÒΕΝΟΤΕ »πασσ ςενοτε ζμαη ΚΝΠ ΣΦΔΑΤΑΙΞΖ± ΜΔΑ £° ΣΤΑ ΤΕΝΠ »ϊεςο τενπ ΜΔΑ ΝΣΗΙΞΖΟ«± »νυμτιπμε βω ³² ΜΥΠ µ ΑΣΜ Α ÒΟΜ ΤΕΝΠ ­­ή ΤΑΨ ΜΔΑ ΤΕΝΠ ΚΝΠ ΔΟίΝΑΤΘ »ςετυςξ £ οζ εξτςιεσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςετυςξ υσεςσ βαυδ ςατεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΙΞΖ² ΜΔΑ ΣΠΓΙΞΙΤ »ηετ γαμμες σπεεδ ΚΝΠ ΣΦΔΑΤΑª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεαδ¬ ος σετ ξυμμσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΙΞΖ³ ΒΝΙ ΊΙΞΖ³ί° »δο σετ¬ ξοτ ςεαδ ΜΔΑ ΞΥΜΜΣ »ςετυςξ γυςςεξτ ξυμμ σεττιξη ΚΝΠ ΣΦΔΑΤΑΊΙΞΖ³ί° ΚΣÒ ΗΟΒΕΡΥ »σετ ξεχ ξυμμ φαμυε ΚΣÒ ΙΞΠΞΥΝ ΣΤΨ ΞΥΜΜΣ ÒΤΣΙΞΖ΄ ΚΣÒ ΗΟΒΕΡΥ »σετ γθατ νοδε ΚΣÒ ΙΞΠΞΥΝ ΤΨΑ ΚΝΠ ΦΙΔΓΘΑΤ »γαςςω τθςουηθª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεαδ ος σετ ΕΨΕΓ νοδεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΙΞΖµ ΒΝΙ ΊΕΨΕΓ± »οππσ¬ δο σετ¬ ξοτ ςεαδ ΜΔΑ ΕΨΕΓ ΚΝΠ ΣΦΔΑΤΑ »ςετυςξ γυςςεξτ εψεγ νοδεΊΕΨΕΓ± ΚΣÒ ΗΟΒΕΡΥ ΜΔΑ £¥±°±±±±±± ΣΤΑ ΕΨΕΓ »σετ εψεγ ζμαη ΚΣÒ ΙΞΠΞΥΝ »σετ ξεχ εψεγ νοδε ΓΠΨ £° ΒΞΕ ΊΕΨΕΓ² »ιτ ισ αμςεαδω σετ ΣΤΨ ΕΨΕΓ »σετ εψεγ το °ΊΕΨΕΓ² ÒΤΣΙΞΖ¶ ΜΔΑ ΝΣΗΙΞΖΟ ΑΣΜ ΑΣΜ ΣΤΑ ΤΕΝΠ »σαφε τοταμ £ οζ βιτ βμογλσ ΣΕΓ  »ξεχ γοδε ζος ζιψιξη τθε βυη ζουξδ ΜΔΑ ΤΕΝΠ »βω σονεοξε ιξ α δογυνεξτ ξανεδ ΣΒΓ ΝΣΗΙΞΖΟ«² »σοδαπατγθεσ ΤΑΨ ΜΔΑ ΤΕΝΠ ΣΒΓ ΝΣΗΙΞΖΟ«³ ΑΞΔ £γμςθι »λιμμ θιηθ βιτ ΚΝΠ ΔΟίΝΑΤΘ »ςετυςξ ςεσυμτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ δατε ζςον ² βωτε βιξαςωª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΧΘΕΞ ΒΓΓ ΊΔΟίΧΘ² »ηετ δατα ΚΣÒ ΗΟΒΕΡΥ »ηοββμε ερυαμ§σ ΚΣÒ ΑÒΗΤΩΠ »ζιξδ ουτ δατα τωπε ΒΓΣ ΊΔΟίΧΘ± ΚΣÒ ΙΞΠΞΥΝ »ηετ μογατιοξ ΣΤΨ ΧΘΞΠΤÒ »αξδ σαφε ΣΤΑ ΧΘΞΠΤÒ«± ÒΤΣΊΔΟίΧΘ± ΚΣÒ ΙΞΠΣΤÒ »ηοββμε ΚΣÒ ΗΕΤΔΑΤΕ »ηετ δατε ΜΔΩ £° ΠΘΑ ΤΨΑ ΣΤΑ ¨ΧΘΞΠΤÒ©¬Ω »σαφε γονπαγτεδ δατε ΙΞΩ ΠΜΑ ΣΤΑ ¨ΧΘΞΠΤÒ©¬Ω ÒΤΣΊΔΟίΧΘ² ΜΔΩ £° ΜΔΑ ¨ΧΘΞΠΤÒ©¬Ω »ηετ γονπςεσσεδ δατε ΤΑΨ ΙΞΩ ΜΔΑ ¨ΧΘΞΠΤÒ©¬Ω ΚΝΠ ΔΟίΔΤ² »τςαξσματεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ δατεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΔΑΤΕ ΒΓΓ ΊΔΟίΔΤ± »ηετ τθε δατε ΚΣÒ ΗΟΒΕΡΥ »ηοββμε ερυ ΚΣÒ ΙΞΣΤÒ² »ηετ στςιξη χ―ο υσιξη νενοςω ΜΔΨ ΣΤÒΜΟΓ ΜΔΑ ΣΤÒΜΟΓ«± ΜΔΩ ΣΤÒΜΕΞ ΚΝΠ ΣΕΤΔΑΤΕ »σετ τθε δατεΊΔΟίΔΤ± ΚΣÒ ΗΕΤΔΑΤΕΔΟίΔΤ² ΣΤΑ ΤΕΝΠ »σαφε δατε δατα ΣΤΨ ΤΕΝΠ«± »δατε ζοςνατΊ ΩΩΩΩΩΩΩΝΝΝΝΔΔΔΔΔ ΜΔΑ ΤΕΝΠ«± ΑΞΔ £¤±Ζ ΚΣÒ ΒΙΞΔΕΓΈ »σαφε δαω ΣΤΑ ΔΑΤΕΣΤÒ«³ ΣΤΨ ΔΑΤΕΣΤÒ«΄ ΜΔΑ ΤΕΝΠ«± »ηετ νοστ οζ νοξτθ ΜΣÒ ΤΕΝΠ »σθιζτ μαστ βιτ ιξτο γαςςω ÒΟÒ  »νοφε βιτ ιξ ΜΥΠ ΄ ΜΣÒ ­­ή ΚΣÒ ΒΙΞΔΕΓΈ ΣΤΑ ΔΑΤΕΣΤÒ »σαφε νοξτθ ΣΤΨ ΔΑΤΕΣΤÒ«± ΜΔΑ ΤΕΝΠ »ηετ ωεας ΚΣÒ ΒΙΞΔΕΓΈ »ναλε ασγιι ΣΤΑ ΔΑΤΕΣΤÒ«¶ ΣΤΨ ΔΑΤΕΣΤÒ«· ΜΔΨ £ΌΔΑΤΕΣΤÒ »ποιξτ το στςιξη ΜΔΑ £ΎΔΑΤΕΣΤÒ ΜΔΩ £ΈΣΦΣΤÒ ΣΤΨ ΔΑΤΑ«± ΣΤΑ ΔΑΤΑ«² ΣΤΩ ΔΑΤΑ«³ ΜΔΑ £² ΣΤΑ ΔΑΤΑ ÒΤΣΔΑΤΕΣΤÒ ΑΣΓ §°¶―²°―Έµ§ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ τινεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΤΙΝΕ ΚΣÒ ΗΕΤΤΙΝΕ »ςεαδ γμογλ ΜΔΩ £±± ΒΞΕ ΣΦΣΤÒ »ςετυςξ στςιξηΔΟίΖΔΑΤΕ ΜΔΨ £° ΣΤΨ ΔΑΤΕΠΤÒ »ϊεςο δατε τεψτ ποιξτες ΚΣÒ ΗΕΤΔΑΤΕ »ηετ δατε ιξ ΠςοΔΟΣ ζοςνατ ΣΤΑ ΤΕΝΠ »σαφε ωεας ª ² ΤΨΑ ΠΘΑ ΑΞΔ £¤±Ζ ΣΤΑ ΤΕΝΠ² »σαφε δαω οζ νοξτθ ΠΜΑ ΜΣÒ ΤΕΝΠ »διφιδε ωεας βω ² ÒΟÒ  »νοφε θιηθ βιτ οζ νοξτθ ιξτο Α ΑΞΔ £¤Ζ° ΜΥΠ ΄ ΜΣÒ ­­ή ΣΤΑ ΤΕΝΠ²«± »σαφε εψτςαγτεδ νοξτθ ΤΑΨ ΜΔΑ ΝΤΘίΓΞΣΤ­±¬Ψ ΣΤΑ ΤΕΝΠ³ »ηετ νοξτθ γοξσταξτ ΜΔΨ ΤΕΝΠ »ηετ ωεας ΤΨΑ ΣΕΓ ΣΒΓ £Έµ »συβτςαγτ Έµ ζςον ωεας ΜΣÒ  »νυμτιπμω βω ² ΜΣÒ ΓΜΓ ΑΔΓ ΤΕΝΠ »αδδ ιξ ωεας αηαιξ ΣΒΓ £Έ³ »συβτςαγςτ Έ³ ΚΣÒ ΧΕΕΛίΝΟΔ »α ½ α νοδ · ΤΑΩ  »σαφε ιξ Ω ΤΨΑ  »πυτ ωεας ιξ Α ΜΔΨ £° ΑΞΔ £³ »μεαπ ωεαςΏ ΒΕΡ ΊΖΔΑΤΕ± ΔΕΨΊΖΔΑΤΕ± ΣΤΨ ΤΕΝΠ«± »σαφε μεαπ ωεας ζμαη ΤΩΑ  »ηετ ιξτεςν δαω οζ χεελ βαγλ ΓΜΓ ΑΔΓ ΤΕΝΠ³ »αδδ ιξ νοξτθ γοξσταξτ ΑΔΓ ΤΕΝΠ² »αδδ ιξ δαω οζ νοξτθ ΜΔΩ ΤΕΝΠ²«± »ηετ νοξτθ ξυνβες ΓΠΩ £³ ΒΜΤ ΊΖΔΑΤΕ² ΑΔΓ ΤΕΝΠ«± »αδδ ιξ μεαπ ωεας ζμαηΊΖΔΑΤΕ² ΚΣÒ ΧΕΕΛίΝΟΔ »α ½ α νοδ · ΤΑΨ  »νοφε δαω το Ψ ΜΔΩ ΔΑΩΙΞΔΕΨ¬Ψ »ηετ ιξδεψ το δαω τεψτ ΜΔΨ £΄ »΄ γθαςαγτεςσΊΖΔΑΤΕ³ ΜΔΑ ΔΑΩΣ¬Ω »νοφε τθε τεψτ ΔΕΨ ΒΕΡ ΊΖΔΑΤΕ΄ ΚΣÒ ΠΥΤΑ ΙΞΩ ΒΞΕ ΊΖΔΑΤΕ³ΊΖΔΑΤΕ΄ ΜΔΑ £§®§ »ιξσεςτ Ά® Ά ΜΔΨ £§ § ΚΣÒ ΠΥΤΑΨ ΜΔΑ ΤΕΝΠ²«± »ηετ τθε νοξτθ ξυνβες ΤΑΨ ΜΔΩ ΝΤΘΙΞΔΕΨ­±¬Ψ »ηετ ιξδεψ ιξτο νοξτθ τεψτ ΜΔΨ £΄ΊΖΔΑΤΕµ ΜΔΑ ΝΟΞΤΘΣ¬Ω »νοφε νοξτθ τεψτ το στςιξη ΔΕΨ ΒΕΡ ΊΖΔΑΤΕ¶ ΚΣÒ ΠΥΤΑ ΙΞΩ ΒΞΕ ΊΖΔΑΤΕµΊΖΔΑΤΕ¶ ΜΔΑ £§ § »πυτ ιξ α σπαγε ΚΣÒ ΠΥΤΑ ΜΔΑ ΤΕΝΠ² »ηετ δαω οζ νοξτθ ξυνβες ΚΣÒ ΒΙΞΔΕΓΈ »ναλε ιτ τεψτ ΓΝΠ £§°§ ΒΞΕ ΊΖΔΑΤΕ· »γθαξηε μεαδιξη ° το σπαγε ΜΔΑ £§ §ΊΖΔΑΤΕ· ΚΣÒ ΠΥΤΑΨ »σαφε δαω οζ νοξτθ ΜΔΑ £§¬§ »αδδ ιξ α Ά¬ Ά ΜΔΨ £§ § ΚΣÒ ΠΥΤΑΨ ΜΔΑ £§±§ »πυτ ιξ τθε μεαδιξη ±Ή ΜΔΨ £§Ή§ ΚΣÒ ΠΥΤΑΨ ΜΔΑ ΤΕΝΠ »ηετ ωεας ­ ±Ή°° ΚΣÒ ΒΙΞΔΕΓΈ »γοξφεςτ το τεψτ ΚΣÒ ΠΥΤΑΨ »σαφε ιτ ΜΔΨ £ΌΖΝΤΔΑΤΕ »ποιξτ το στςιξη ΜΔΑ £ΎΖΝΤΔΑΤΕ ΜΔΩ ΔΑΤΕΠΤÒ »ηετ τθε μεξητθ ΚΝΠ ΣΦΣΤÒ »πυτ ιτ το πςοηςανΠΥΤΑΨ ΚΣÒ ΠΥΤΑ »πυτ τθε τεψτ ιξ Α ΤΨΑ  »νοφε Ψ το ΑΠΥΤΑ ΣΤΨ ΨίΔΑΤΕ »σαφε Ψ ΜΔΨ ΔΑΤΕΠΤÒ »ηετ τεψτ ποιξτες ΣΤΑ ΖΝΤΔΑΤΕ¬Ψ »στοςε τθε γθαςαγτες ΙΞΓ ΔΑΤΕΠΤÒ »βυνπ τθε μεξητθ ποιξτες ΜΔΨ ΨίΔΑΤΕ »ηετ βαγλ Ψ ÒΤΣΨίΔΑΤΕ ΔΒ °ΧΕΕΛίΝΟΔ ΣΕΓ  »συβτςαγτ · τιμμ Ό °ΊΝΟΔ ΣΒΓ £· ΒΓΣ ΊΝΟΔ ΑΔΓ £· »αδδ βαγλ ιξ · ζος ΝΟΔ ÒΤΣΝΤΘίΓΞΣΤ ΔΒ °¬³¬³¬¶¬±¬΄¬¶¬²¬µ¬°¬³¬µΔΑΤΕΠΤÒ ΔΒ °ΖΝΤΔΑΤΕ ΑΣΓ §Ζςι® Καξ ±³¬ ±ΉΈΉ§ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª δο τινε γονπυτατιοξσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΓΜΟΛ ΚΣÒ ΙΞΠΞΑÒΗ »ηετ ζυξγτιοξ ξυνβες ΓΠΨ £³ ΒΗΕ ΓΜΛÒΤΞ ΤΨΑ ΑΣΜ  »ψ ½ ψ ª ² ΤΑΨ ΜΔΑ ΓΜΛΚΝΠ¬Ψ ΣΤΑ ΤΕΝΠ »σετυπ αδδςεσσ ζος κυνπ ΜΔΑ ΓΜΛΚΝΠ«±¬Ψ ΣΤΑ ΤΕΝΠ«± ΚΝΠ ¨ΤΕΝΠ©ΓΜΛΚΝΠ ΔΑ ΓΜΛ° ΔΑ ΓΜΛ± ΔΑ ΓΜΛ²ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεσετ τινεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΓΜΛ° ΚΣÒ ΓΟΞΦΣΕΓ »ηετ βασε ιξ σεγοξδσ ΣΤΨ ΓΜΛΒΑΣΕ ΣΤΑ ΓΜΛΒΑΣΕ«±ΓΜΛÒΤΞ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ γοξξεγτ τινε ιξ σεγοξδσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΓΜΛ± ΚΣÒ ΣΕΓΟΞΓΜΛ±Α ΚΝΠ ΔΟίΝΑΤΘ »σαφε τινεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ τινε μινιτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΓΜΛ² ΜΔΨ ΤΙΝΕΟΞ ΜΔΑ ΤΙΝΕΟΞ«± ΒΙΤ ΙΝΝΔΕΖ »γθεγλ εψεγ στατυσ ΒΠΜ ΓΜΛ±Α ΚΣÒ ΗΟΒΕΡΥ »ηοββμε ΚΣÒ ΙΞΠΞΥΝ »ηετ τινε μινιτ ΣΤΨ ΤΙΝΕΟΞ »σαφε τινε μινιτ ΣΤΑ ΤΙΝΕΟΞ«± ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ζιξδ τινε οξ ιξ σεγοξδσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΣΕΓΟΞ ΚΣÒ ΓΟΞΦΣΕΓ »ηετ γυςςεξτ τινε ιξ σεγοξδσ ΣΕΓ ΠΘΑ ΤΨΑ ΣΒΓ ΓΜΛΒΑΣΕ »τινε οξ ½ γυςςεξτ ­ βασε ΤΑΨ ΠΜΑ ΣΒΓ ΓΜΛΒΑΣΕ«± ΒΓΣ ΊΣΕΓΟΞ± ΠΘΑ ΤΨΑ ΑΔΓ £ΌÒΟΜΤΙΝΕ »τινε παστ νιδξιηθτ ΤΑΨ  »αδδ ιξ ςομοφες ΠΜΑ ΑΔΓ £ΎÒΟΜΤΙΝΕΊΣΕΓΟΞ± ÒΤΣÒΟΜΤΙΝΕ ½ ΄³²°° »£ σεγοξδσ ιξ ±² θουςσΓΟΞΦΣΕΓ ΚΣÒ ΗΕΤΤΙΝΕ ΣΤΨ ΤΕΝΠ³ »ποιξτ το τινε στςιξη ΣΤΑ ΤΕΝΠ³«± ΜΔΑ £¶° ΣΤΑ ΔΑΤΑ«± »σετ υπ νυμτιπμιες ΜΔΑ £° ΣΤΑ ΔΑΤΑ«² ΣΤΑ ΔΑΤΑ«³ ΚΣÒ ΪΞΥΝΙΞ »ηετ θους ΤΨΑ ΒΞΕ ΊΓΟΞΦΣΓ² »ξοτ ° θουςσ ΜΔΑ £²΄ »ναλε ° θυξδςεδ ιξτο ²΄ θυξδςεδΊΓΟΞΦΣΓ² ΓΝΠ £±³ ΒΜΤ ΊΓΟΞΦΣΓ³ »ισ ιτ ουτ οζ ςαξηεΏ¬ ξοπε ΣΒΓ £±² »ναλε ιξτο ±­±² ςαξηεΊΓΟΞΦΣΓ³ ΤΑΨ  »σαφε ςεσυμτ ΜΔΑ £° ΚΣÒ ΣΑΦΞΥΝΒ ΚΣÒ ΔΟίΝΥΜ° »νυμτιπμω ιξτο νιξυτεσ ΙΞΓ ΤΕΝΠ³ ΚΣÒ ΪΞΥΝΙΞ »ηετ νιξυτε ΓΜΓ ΤΨΑ ΑΔΓ ÒΕΣΥΜΤ »αδδ ιξ νιξυτεσ ΤΑΨ ΜΔΑ £° ΑΔΓ ÒΕΣΥΜΤ«± ΚΣÒ ΣΑΦΞΥΝΒ ΜΔΑ £¶° ΣΤΑ ΔΑΤΑ«± »νυμτιπμω βω ¶° ΚΣÒ ΔΟίΝΥΜ° ΙΞΓ ΤΕΝΠ³ »ποσιτιοξ το σεγοξδσ ΚΣÒ ΪΞΥΝΙΞ ΓΜΓ ΤΨΑ ΑΔΓ ÒΕΣΥΜΤ »αδδ ιξ σεγοξδσ ΤΑΨ ΜΔΑ £° ΑΔΓ ÒΕΣΥΜΤ«± ÒΤΣΓΘΛ΄ΣΞ ΚΣÒ ΛΕΩΙΞ² »γθεγλ ζος σεςιαμ £ αγγεσσ ΓΝΠ £§Ώ§ ΒΕΡ ΊΣΘΟΧΣΞ ΚΝΠ ΊΞΟΣΘΟΧΊΣΘΟΧΣΞ ΜΔΑ £ΌΣΕÒΞΥΝ »πςιξτ σεςιαμ £ ΣΤΑ ΤΕΝΠ ΜΔΑ £ΎΣΕÒΞΥΝ ΣΤΑ ΤΕΝΠ«± ΜΔΩ £ΣΕÒΕΞΔ­ΣΕÒΞΥΝ »ποιξτ το δατα το πςιξτ ΔΕΩέΜΟΟΠ ΜΔΑ ¨ΤΕΝΠ©¬Ω ΕΟÒ £ΣΕÒΕΞΔ­ΣΕÒΞΥΝ ÒΟÒ Α ΚΣÒ ΓΟΥΤ ΔΕΩ ΒΠΜ έΜΟΟΠΊΞΟΣΘΟΧ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª πολε α φαμυεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΠΟΛΕ ΚΣÒ ΙΞΠΞΥΝ »ηετ πμαγε το πολε ΣΤΨ ΤΕΝΠ ΣΤΑ ΤΕΝΠ«± ΚΣÒ ΗΟΒΓΟΝ »ηοββμε ΚΣÒ ΙΞΠΞΥΝ »ηετ φαμυε ΤΨΑ ΜΔΩ £° ΣΤΑ ¨ΤΕΝΠ©¬Ω »ξο οζζσετ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª πεελ α μογατιοξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΠΕΕΛ ΚΣÒ ΙΞΠΞΑÒΗ »ηετ αςη ΣΤΨ ΤΕΝΠ ΣΤΑ ΤΕΝΠ«± ΜΔΩ £° ΜΔΑ ¨ΤΕΝΠ©¬Ω »ηετ φαμυε ΚΝΠ ΣΦΔΑΤΑ »ςετυςξ ιξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª πςοδυγε α τοξε χιτθ αππμε σπεαλεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΤΟΞΕ ΜΔΑ £¤ΖΖ ΣΤΑ ΤΕΝΠ²«± »δεζαυμτ το ± τοξε ΚΣÒ ΙΞΠΞΑÒΗ »ηετ τοξε αςηυνεξτ ΣΤΨ ΤΕΝΠ² ΚΣÒ ΙΞΠΞΑÒΗ »ηετ δυςατιοξ―τοξε² αςηυνεξτ ΣΤΨ ΤΕΝΠ«± »σαφε ασ δυςατιοξ ΒΓΓ ΊΤΟΞΕ² »μαστ αςηυνεξτ ­­ εφεςωτθιξη ισ γοςςεγτ ΚΣÒ ΓΘΛΒΩΤ »γθεγλ ζος μαστ αςηυνεξτ ΓΝΠ £Ά¬Ά ΒΞΕ ΊΤΟΞΕ¶ »δο ξοςναμ σιξημε τοξε ΣΤΨ ΤΕΝΠ²«± »σαφε σεγοξδ τοξε ΚΣÒ ΙΞΠΞΑÒΗ »ηετ ςεαμ δυςατιοξ ΣΤΨ ΤΕΝΠ«± »σαφε δυςατιοξΊΤΟΞΕ² ΜΣÒ ΤΕΝΠ«± »γοςςεγτ τινιξη το νατγθ ομδ ςουτιξε ΜΔΑ ΤΕΝΠ²«± ΣΤΑ ΤΕΝΠ³«± »ςεσετ σεγοξδ τοξεΊΤΟΞΕ³ ΜΔΑ ΤΕΝΠ² ΣΤΑ ΤΕΝΠ³ »ςεσετ ζιςστ τοξε ΜΔΑ ΣΠΛÒ »γμιγλ σπεαλεςΊΤΟΞΕ΄ ΔΕΨ ΒΞΕ ΊΤΟΞΕµ »τινε δοχξ ΔΕΓ ΤΕΝΠ«± ΒΝΙ ΊΤΟΞΕΈ »δοξε χιτθ τοξεΊΤΟΞΕµ ΠΘΑ ΠΜΑ ΔΕΓ ΤΕΝΠ³ ΒΕΡ ΊΤΟΞΕ³ »γουξτ δοχξ ζιςστ τοξε ΠΘΑ ΠΜΑ  »γουξτ δοχξ σεγοξδ τοξε ΔΕΓ ΤΕΝΠ³«± ΒΞΕ ΊΤΟΞΕ΄ »ξοπε¬ δο ναιξ μοοπ ΜΔΑ ΤΕΝΠ²«± ΣΤΑ ΤΕΝΠ³«± »ςεσετ σεγοξδ τοξε ΜΔΑ ΣΠΛÒ »γμιγλ σπεαλες ΚΝΠ ΊΤΟΞΕ΄ »ηο ναιξ μοοπΊΤΟΞΕ¶ ΔΕΨ ΒΞΕ ΊΤΟΞΕ· ΜΔΨ ΤΕΝΠ² ΜΔΑ ΣΠΛÒ »νοδιζιεδ ζςον ΆλεεπεςΆ γοδεΊΤΟΞΕ· ΔΕΩ ΒΞΕ ΊΤΟΞΕ¶ ΔΕΓ ΤΕΝΠ«± ΒΞΕ ΊΤΟΞΕ¶ΊΤΟΞΕΈ ÒΤΣΔΟίΤΕΨΤ ΜΔΑ £° ΣΤΑ ΧΞΔΤΟΠ »σετ το ζυμμ σγςεεξΔΟίΘΟΝΕ ΚΝΠ ΦΙΔΓΜΣ »γμεας τθε μογαμ σγςεεξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεαδ στατυσ οζ α παδδμεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΠΔΜ ΚΣÒ ΙΞΠΞΑÒΗ »ηετ παδδμε ξυνβες ΜΔΑ ΠΤÒΙΗ »τοηημε παδδμε τςιηηες ΜΔΩ £° ΞΟΠ  »ηιφε δεμαω σο χε δοξτ ΞΟΠ  »ηετ α ζαμσε ςεαδΊΔΟίΠΔΜ² ΜΔΑ ΠΔΜΣ¬Ψ »γθεγλ παδδμε ζμαη ΒΠΜ ΊΔΟίΠΔΜ³ »χε αςε δοξε ΙΞΩ ΒΞΕ ΊΔΟίΠΔΜ² »λεεπ γουξτιξη ΔΕΩ  »γθαξηε ° το ²µµΊΔΟίΠΔΜ³ ΤΩΑ ΚΝΠ ΣΦΔΑΤΑ »ςετυςξ φαμυεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ ασγιι φαμυε οζ α στςιξηª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΑΣΓ ΚΣÒ ΙΞΠΣΑÒΗ »ςεαδ στςιξη ΜΔΑ £­± ΜΔΨ ΣΤÒΜΕΞ »αξω στςιξη τθεςεΏ ΒΕΡ ΊΔΟίΑΣΓ² »ξοπε¬ ςετυςξ φαμυε οζ ²µµ ΜΔΩ £° ΜΔΑ ¨ΣΤÒΜΟΓ©¬ΩΊΔΟίΑΣΓ² ΚΝΠ ΣΦΔΑΤΑ »ςετυςξ βωτεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γαμμ α ναγθιξε­μαξηυαηε ςοτιξεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΔΟίΓΑΜΜ ΚΣÒ ΙΞΠΞΥΝ »ηετ αδδςεσσ ΣΤΨ ΤΕΝΠ ΣΤΑ ΤΕΝΠ«± ΚΝΠ ¨ΤΕΝΠ© »τςαξσζες γοξτςομ»μογλ ουτ οτθες γονπυτες χςιτιξηΔΟίΜΟΓΛ πθα  » σαφε α ςεη τψα πθα  » σαφε ψ ςεη τωα πθαμογλ± μδα ΝΜΒΥΣ ασμ α » σθιζτ στατυσ το γαςςω βγσ μογλ² μδω £± » ηετ ξοδε £μογλ±α μδψ ¤ζζ » σετ υπ μοοπμογλ±β δεψ βξε μογλ±β » γουξτ δοχξ ιξξες μοοπ δεω βερ μογλ± »δοξε ωετΏ Ωεσ¬ γθεγλ αηαιξ βξε μογλ±α »Ξομογλ² στα ΑΞΥίΟΖΖ μδα £¤°γ στα ¤΄²· πμα ταω πμα ταψ πμα ςτσ»εξαβμε οτθες γονπυτες χςιτιξηΔΟίΥΞΜΛ στα ΑΞΥίΟΞ πθα μδα £¤±µ στα ¤΄²· πμα ςτσ
+ PAG
+********************************
+*                              *
+*     ACOS.OBJ - Commands2     *
+*                              *
+********************************
+ DATE
+*-------------------------------
+* check for keypress
+*-------------------------------
+
+DO_KEY JSR CHKDCD ;make key check for carrier
+ LDA #0
+ JSR COUT ;poll modem/keyboard
+
+ JSR INPNARG ;gobble argument
+ CPX #1
+ BEQ :DO_KEY3 ;check for 'stop' char?
+ CPX #2
+ BEQ :DO_KEY4 ;check for 'next' char?
+ CPX #3
+ BEQ :DO_KEY1 ;check for any int taking place
+
+ JSR GETCHR ;check buffer
+
+:DO_KEY2 AND #clrhi
+ JMP SVDATA
+
+:DO_KEY3 LDX STPCHR ;check stop char
+ BNE :DO_KEY5 ;-- always branch
+
+:DO_KEY4 LDX NXTCHR ;check next char
+:DO_KEY5 LDA #0
+ CPX INTCHR
+ BNE :DO_KEY2 ;did they hit it?, nope
+
+ LDA #1 ;yep
+ BNE :DO_KEY2 ;-- always branch
+
+:DO_KEY1 LDA INTOUT ;has output been interupted?
+ JMP SVDATA
+
+*-------------------------------
+* get width from index
+*-------------------------------
+
+DO_WID JSR INPNARG ;get arg
+ CPX #5
+ BGE WOK ;in range?, nope
+
+ LDA WIDTH,X ;get width
+ JMP SVDATA
+
+WOK LDX #syntax ;syntax error
+GO_ERR JMP BADERR
+
+*-------------------------------
+* handle for-next statement
+*-------------------------------
+
+DO_FOR LDA FORLVL
+ LDX #forfull
+ CMP #16
+ BEQ GO_ERR ;for stack full error
+
+ LDY #2 ;save variable name on stk
+ LDA (PRGPTR),Y ;since DO_LET could return
+ PHA  ;a possible second variable
+ DEY  ;name
+ LDA (PRGPTR),Y
+ PHA
+ JSR DO_LET ;do assign
+
+ LDX FORLVL ;get level
+ PLA  ;save var pointer
+ STA FORVAR,X
+ PLA
+ STA FORVAR+1,X
+
+ LDX #to ;gobble "TO" statement
+ JSR GOBBLE
+
+ JSR INPNUM
+ LDY FORLVL ;get level
+ STA FOREND+1,Y
+ TXA
+ STA FOREND,Y ;save end value
+
+ LDA #<1
+ STA FORSTP,Y ;save default step count (1)
+ LDA #>1
+ STA FORSTP+1,Y
+
+ JSR CHKBYT ;did they specify a step?
+ CMP #step
+ BNE :DO_FOR1 ;nope
+
+ JSR GETBYT ;gobble "step"
+ JSR INPNUM ;get step
+ LDY FORLVL
+ STA FORSTP+1,Y ;save desired step
+ TXA
+ STA FORSTP,Y
+
+ ORA FORSTP+1,Y ;did they try step 0?
+ BEQ WOK ;the dolt! error out
+
+:DO_FOR1 LDX FORLVL ;save address of 'FOR' section
+ LDA PRGPTR
+ STA FORLOC,X
+ LDA PRGPTR+1
+ STA FORLOC+1,X
+
+ INC FORLVL ;inc level
+ INC FORLVL
+ RTS
+
+*-------------------------------
+* handle "next" part of for-next loop
+*-------------------------------
+
+DO_NXT LDX FORLVL ;check for next without for
+ BEQ :DO_NXT6
+
+ JSR CHKBYT ;check for specified variable
+ CMP #number
+ BNE :DO_NXT2 ;none, use next on stack
+
+ JSR VARSET ;get variable
+ LDX FORLVL ;find variable in stack
+:DO_NXT1 DEX  ;back down 1 level
+ DEX
+ BMI :DO_NXT6
+
+ LDA FORVAR,X
+ CMP VNAME
+ BNE :DO_NXT1
+
+ LDA FORVAR+1,X
+ CMP VNAME+1
+ BNE :DO_NXT1
+
+ INX  ;set the pointer into stack
+ INX
+ STX FORLVL
+ BNE :DO_NXT3
+
+:DO_NXT2 DEX  ;get next variable in stack
+ DEX
+ LDA FORVAR,X
+ STA VNAME
+ LDA FORVAR+1,X
+ STA VNAME+1
+ JSR VARSET3 ;find variable in memory
+:DO_NXT3 LDX FORLVL ;back down to it
+ DEX
+ DEX
+ LDA VPTR
+ STA TEMP ;restore var pointer
+ LDA VPTR+1
+ STA TEMP+1
+
+ LDY #1
+ LDA FORSTP+1,X ;doing negative step?
+ BMI :DO_NXT7 ;yes, do it
+
+ LDA (TEMP),Y ;check high - are we done?
+ CMP FOREND+1,X
+ BLT :DO_NXT9 ;no, loop
+ BEQ :DO_NXT4 ;hmmm, check low byte
+ BGE :DO_NXT5 ;yes, we are done
+
+:DO_NXT4 DEY  ;check low - are we done?
+ LDA (TEMP),Y
+ CMP FOREND,X
+ BLT :DO_NXT9 ;no, loop
+
+:DO_NXT5 DEC FORLVL ;conclude loop
+ DEC FORLVL
+:DO_NXT6 RTS
+
+:DO_NXT7 LDA (TEMP),Y
+ CMP FOREND+1,X ;check high - are we done?
+ BEQ :DO_NXT8 ;maybe, check mid byte
+ BLT :DO_NXT5 ;yes, finish up
+ BGE :DO_NXT9 ;nope, loop
+
+:DO_NXT8 DEY  ;Are we done with low byte?
+ LDA (TEMP),Y
+ CMP FOREND,X
+ BEQ :DO_NXT5 ;yes, finish up
+ BLT :DO_NXT5 ;if less, we are done
+
+:DO_NXT9 LDA FORLOC,X
+ STA PRGPTR ;point to "for" location
+ LDA FORLOC+1,X
+ STA PRGPTR+1
+ CLC  ;add in step value
+ LDY #0
+ LDA FORSTP,X
+ ADC (TEMP),Y
+ STA (TEMP),Y ;do low
+ INY
+ LDA FORSTP+1,X
+ ADC (TEMP),Y
+ STA (TEMP),Y ;do high
+ RTS
+
+*-------------------------------
+* move memory
+*-------------------------------
+
+DO_MOVE JSR INPNUM ;get source address
+ STX TEMP2
+ STA TEMP2+1
+
+ JSR GOBCOM ;gobble comma
+ JSR INPNUM ;get # of bytes to move
+ TXA
+ PHA
+
+ LDX #to
+ JSR GOBBLE ;gobble 'TO' statement
+
+ JSR INPNUM ;get destination address
+ STX TEMP
+ STA TEMP+1
+
+ PLA
+ TAX  ;get back # of bytes to move
+
+ LDY #0
+:MOVE2 LDA (TEMP2),Y
+ STA (TEMP),Y ;copy byte
+ INY
+ DEX
+ BNE :MOVE2 ;count down, were done!
+ RTS
+
+*-------------------------------
+* get location of scratch ram
+*-------------------------------
+
+DO_RAM LDX #<SCRATCH
+ LDA #>SCRATCH
+ JMP DO_MATH
+
+*-------------------------------
+* get location of aux scratch ram
+*-------------------------------
+
+DO_RAM2 LDX #<SCRATCH+64
+ LDA #>SCRATCH+64
+ JMP DO_MATH
+
+*-------------------------------
+* generate a random character
+*-------------------------------
+
+DO_RNDS LDA RND
+ AND #$1F ;make in range [0-31]
+ CMP #'Z'-ctrl
+ BLT :DO_RND2 ;in range
+
+ SBC #10 ;put into range
+:DO_RND2 LDY #0
+ ADC #'A'
+ STA (VARSTR),Y ;save character
+ LDA RND+1
+ EOR #$B4
+ ADC RND
+ STA RND ;re-seed for next pass
+ ROL
+ ROL
+ ROL
+ STA RND+1
+
+ LDX VARSTR ;point to random char
+ LDA VARSTR+1
+ INY
+
+ INC VARSTR
+ BNE :DO_RND3
+ INC VARSTR+1
+:DO_RND3 JMP SVSTR ;save location of char
+
+*-------------------------------
+* get a random number
+*-------------------------------
+
+DO_RND JSR INPNARG ;get range
+ STX TEMP ;save range
+ STA TEMP+1
+ TAY  ;is it below 256?
+ BEQ :DO_RN0 ;yep, just get 8 bit seed
+ LDA RND+1
+:DO_RN0 LDX RND ;get seed
+
+:DO_RN2 CMP TEMP+1
+ BEQ :DO_RN4 ;check low
+ BGE :DO_RN5 ;kill number
+:DO_RN3 JMP DO_MATH ;return number
+
+:DO_RN4 CPX TEMP
+ BEQ :DO_RN3 ;check low byte
+ BLT :DO_RN3 ;all is well, return
+
+:DO_RN5 PHA
+ SEC
+ TXA
+ SBC TEMP ;(AX) = (AX) - range
+ TAX
+ PLA
+ SBC TEMP+1
+ BCS :DO_RN2 ;loop and check
+
+*-------------------------------
+* fill a range of memory
+*-------------------------------
+
+DO_FILL JSR INPNUM
+ STX TEMP ;point to fill location
+ STA TEMP+1
+ JSR GOBCOM ;gobble
+
+ JSR INPNUM ;get number of bytes to fill
+ STX TEMP2
+ JSR GOBCOM ;gobble
+
+ JSR INPNUM ;get byte to fill with
+ TXA
+
+ LDY #0
+:FILL2 STA (TEMP),Y ;fill
+ INY
+ DEC TEMP2
+ BNE :FILL2 ;repeat
+ RTS
+
+*-------------------------------
+* setup no carrier vector
+*-------------------------------
+
+DO_NOCD LDA #0
+ STA NOCDFLG ;reset carrier vector
+ JSR GETBYT ;see if it has a vector
+ CMP #goto
+ BNE :DO_NOC2 ;was it goto?
+
+ JSR GETBYT ;get low byte of routine
+ STA NOCDVEC
+ JSR GETBYT ;get high byte of routine
+ STA NOCDVEC+1
+ DEC NOCDFLG
+:DO_NOC2 RTS
+
+*-------------------------------
+* return error numer
+*-------------------------------
+
+DO_ERRNO LDA ERRNO
+ JMP SVDATA
+
+*-------------------------------
+* setup error vector
+*-------------------------------
+
+DO_ONERR LDA #0
+ STA ONERRFLG ;reset onerr vector
+ JSR GETBYT ;see if it has a vector
+ CMP #goto
+ BNE :DO_ERR2 ;was it goto?
+
+ JSR GETBYT ;get low byte of routine
+ STA ONERRVEC
+ JSR GETBYT ;get high byte of routine
+ STA ONERRVEC+1
+ DEC ONERRFLG
+:DO_ERR2 RTS
+
+*-------------------------------
+* resume command
+*-------------------------------
+
+DO_RESUM LDA FROMERR ;was there an error?
+ ORA FROMERR+1
+ BEQ :NOERR ;no error occurred
+
+ LDA FROMERR ;replace error location
+ STA PRGPTR
+ LDA FROMERR+1
+ STA PRGPTR+1
+
+ JSR CHKBYT ;get the byte there
+ JMP :TSTIT
+
+]LOOP JSR GETBYT ;get next byte
+:TSTIT CMP #chain2 ;end of line?
+ BEQ :DONE ;yes, continue with pgm
+ CMP #goto ;a goto?
+ BEQ :DO_LBL
+ CMP #gosub ;a gosub?
+ BEQ :DO_LBL
+ CMP #push ;a push?
+ BNE ]LOOP ;nope, next byte
+:DO_LBL JSR GETRAW ;skip label address
+ JSR GETRAW
+ JMP ]LOOP
+
+:DONE RTS
+
+:NOERR LDA #0 ;don't trap this one
+ STA ONERRFLG
+ LDX #$19 ;no error message
+ JMP BADERR
+
+*-------------------------------
+* get general system to program
+*-------------------------------
+
+DO_INFO JSR INPNARG ;get arg number
+ CPX #7
+ BGE :DO_INF2
+
+ TXA
+ ASL  ;a = a * 2
+ TAX
+
+ LDA INFOJMP,X
+ STA TEMP ;execute routine
+ LDA INFOJMP+1,X
+ STA TEMP+1
+ BIT IMMDEF
+ JMP (TEMP)
+
+:DO_INF2 LDX #syntax ;syntax error
+ JMP BADERR
+
+INFOJMP DW INF0 ;get remote flag
+ DW INF1 ;msg board capacity
+ DW INF2 ;get users baud rate
+ DW INF3 ;get/set nulls
+ DW INF4 ;display chat mode
+ DW INF5 ;get/set exec flags
+ DW INF6 ;number of blocks free
+
+*-------------------------------
+* return online status
+*-------------------------------
+
+INF0 LDA REMOTE ;pass remote flag
+ JMP SVDATA
+
+INF1 LDA #0
+ STA TEMP ;zero temp
+ LDA MSGINFO+1 ;multiple by 32
+ LUP 5
+ ASL A
+ ROL TEMP
+ --^
+ TAX
+ LDA TEMP
+ JMP DO_MATH ;return # of entries
+
+*-------------------------------
+* return users baud rate
+*-------------------------------
+
+INF2 LDA SPCINIT ;get caller speed
+ JMP SVDATA
+
+*-------------------------------
+* read, or set nulls
+*-------------------------------
+
+INF3 BMI :INF3_0 ;do set, not read
+ LDA NULLS ;return current null setting
+ JMP SVDATA
+
+:INF3_0 JSR GOBEQU ;set new null value
+ JSR INPNUM
+ STX NULLS
+ RTS
+
+INF4 JSR GOBEQU ;set chat mode
+ JSR INPNUM
+ TXA
+ JMP VIDCHAT ;carry through
+
+*-------------------------------
+* read or set EXEC mode
+*-------------------------------
+
+INF5 BMI :EXEC1 ;opps, do set, not read
+ LDA EXEC
+ JMP SVDATA ;return current exec mode
+
+:EXEC1 JSR GOBEQU
+ LDA #%10111111
+ STA EXEC ;set exec flag
+ JSR INPNUM ;set new exec mode
+ CPX #0
+ BNE :EXEC2 ;it is already set
+
+ STX EXEC ;set exec to 0
+:EXEC2 RTS
+
+INF6 LDA MSGINFO
+ ASL
+ ASL
+ STA TEMP ;save total # of bit blocks
+
+ SEC  ;new code for fixing the bug found
+ LDA TEMP ;by someone in a document named
+ SBC MSGINFO+2 ;sodapatches
+ TAX
+ LDA TEMP
+ SBC MSGINFO+3
+
+ AND #clrhi ;kill high bit
+ JMP DO_MATH ;return results
+
+*-------------------------------
+* get date from 2 byte binary
+*-------------------------------
+
+DO_WHEN BCC :DO_WH2 ;get data
+
+ JSR GOBEQU ;gobble equal's
+ JSR ARGTYP ;find out data type
+ BCS :DO_WH1
+
+ JSR INPNUM ;get location
+ STX WHNPTR ;and save
+ STA WHNPTR+1
+ RTS
+
+:DO_WH1 JSR INPSTR ;gobble
+ JSR GETDATE ;get date
+
+ LDY #0
+ PHA
+ TXA
+ STA (WHNPTR),Y ;save compacted date
+ INY
+ PLA
+ STA (WHNPTR),Y
+ RTS
+
+:DO_WH2 LDY #0
+ LDA (WHNPTR),Y ;get compressed date
+ TAX
+ INY
+ LDA (WHNPTR),Y
+ JMP DO_DT2 ;translate
+
+*-------------------------------
+* get date
+*-------------------------------
+
+DO_DATE BCC :DO_DT1 ;get the date
+
+ JSR GOBEQU ;gobble equ
+ JSR INSTR2 ;get string w/o using memory
+ LDX STRLOC
+ LDA STRLOC+1
+ LDY STRLEN
+ JMP SETDATE ;set the date
+
+:DO_DT1 JSR GETDATE
+DO_DT2 STA TEMP ;save date data
+ STX TEMP+1 ;date format: YYYYYYYMMMMDDDDD
+
+ LDA TEMP+1
+ AND #$1F
+ JSR BINDEC8 ;save day
+ STA DATESTR+3
+ STX DATESTR+4
+
+ LDA TEMP+1 ;get most of month
+ LSR TEMP ;shift last bit into carry
+ ROR  ;move bit in
+ LUP 4
+ LSR
+ --^
+ JSR BINDEC8
+ STA DATESTR ;save month
+ STX DATESTR+1
+
+ LDA TEMP ;get year
+ JSR BINDEC8 ;make ascii
+ STA DATESTR+6
+ STX DATESTR+7
+
+ LDX #<DATESTR ;point to string
+ LDA #>DATESTR
+ LDY #8
+SVSTR STX DATA+1
+ STA DATA+2
+ STY DATA+3
+ LDA #2
+ STA DATA
+ RTS
+
+DATESTR ASC '06/20/85'
+
+*-------------------------------
+* get time
+*-------------------------------
+
+DO_TIME JSR GETTIME ;read clock
+ LDY #11
+ BNE SVSTR ;return string
+
+DO_FDATE LDX #0
+ STX DATEPTR ;zero date text pointer
+
+ JSR GETDATE ;get date in ProDOS format
+ STA TEMP ;save year * 2
+ TXA
+ PHA
+ AND #$1F
+ STA TEMP2 ;save day of month
+ PLA
+ LSR TEMP ;divide year by 2
+ ROR  ;move high bit of month into A
+ AND #$F0
+ LUP 4
+ LSR
+ --^
+ STA TEMP2+1 ;save extracted month
+ TAX
+ LDA MTH_CNST-1,X
+ STA TEMP3 ;get month constant
+
+ LDX TEMP ;get year
+ TXA
+ SEC
+ SBC #85 ;subtract 85 from year
+ LSR  ;multiply by 2
+ LSR
+
+ CLC
+ ADC TEMP ;add in year again
+ SBC #83 ;subtracrt 83
+ JSR WEEK_MOD ;a = a mod 7
+
+ TAY  ;save in Y
+ TXA  ;put year in A
+ LDX #0
+ AND #3 ;leap year?
+ BEQ :FDATE1
+ DEX
+:FDATE1 STX TEMP+1 ;save leap year flag
+
+ TYA  ;get interm day of week back
+ CLC
+ ADC TEMP3 ;add in month constant
+ ADC TEMP2 ;add in day of month
+
+ LDY TEMP2+1 ;get month number
+ CPY #3
+ BLT :FDATE2
+ ADC TEMP+1 ;add in leap year flag
+:FDATE2 JSR WEEK_MOD ;a = a mod 7
+
+ TAX  ;move day to X
+ LDY DAYINDEX,X ;get index to day text
+ LDX #4 ;4 characters
+:FDATE3 LDA DAYS,Y ;move the text
+ DEX
+ BEQ :FDATE4
+ JSR PUTA
+ INY
+ BNE :FDATE3
+
+:FDATE4 LDA #'.' ;insert ". "
+ LDX #' '
+ JSR PUTAX
+
+ LDA TEMP2+1 ;get the month number
+ TAX
+ LDY MTHINDEX-1,X ;get index into month text
+ LDX #4
+:FDATE5 LDA MONTHS,Y ;move month text to string
+ DEX
+ BEQ :FDATE6
+ JSR PUTA
+ INY
+ BNE :FDATE5
+
+:FDATE6 LDA #' ' ;put in a space
+ JSR PUTA
+
+ LDA TEMP2 ;get day of month number
+ JSR BINDEC8 ;make it text
+ CMP #'0'
+ BNE :FDATE7 ;change leading 0 to space
+ LDA #' '
+:FDATE7 JSR PUTAX ;save day of month
+
+ LDA #',' ;add in a ", "
+ LDX #' '
+ JSR PUTAX
+
+ LDA #'1' ;put in the leading 19
+ LDX #'9'
+ JSR PUTAX
+
+ LDA TEMP ;get year - 1900
+ JSR BINDEC8 ;convert to text
+ JSR PUTAX ;save it
+
+ LDX #<FMTDATE ;point to string
+ LDA #>FMTDATE
+ LDY DATEPTR ;get the length
+ JMP SVSTR ;put it to program
+
+PUTAX JSR PUTA ;put the text in A
+ TXA  ;move X to A
+PUTA STX X_DATE ;save X
+ LDX DATEPTR ;get text pointer
+ STA FMTDATE,X ;store the character
+ INC DATEPTR ;bump the length pointer
+ LDX X_DATE ;get back X
+ RTS
+
+X_DATE DB 0
+
+WEEK_MOD SEC  ;subtract 7 till < 0
+:MOD SBC #7
+ BCS :MOD
+ ADC #7 ;add back in 7 for MOD
+ RTS
+
+MTH_CNST DB 0,3,3,6,1,4,6,2,5,0,3,5
+
+DATEPTR DB 0
+
+FMTDATE ASC 'Fri. Jan 13, 1989'
+
+*-------------------------------
+* do time computations
+*-------------------------------
+
+DO_CLOK JSR INPNARG ;get function number
+ CPX #3
+ BGE CLKRTN
+
+ TXA
+ ASL  ;x = x * 2
+ TAX
+
+ LDA CLKJMP,X
+ STA TEMP ;setup address for jump
+ LDA CLKJMP+1,X
+ STA TEMP+1
+ JMP (TEMP)
+
+CLKJMP DA CLK0
+ DA CLK1
+ DA CLK2
+
+*-------------------------------
+* reset timer
+*-------------------------------
+
+CLK0 JSR CONVSEC ;get base in seconds
+ STX CLKBASE
+ STA CLKBASE+1
+CLKRTN RTS
+
+*-------------------------------
+* get connect time in seconds
+*-------------------------------
+
+CLK1 JSR SECON
+CLK1A JMP DO_MATH ;save time
+
+*-------------------------------
+* get time limit
+*-------------------------------
+
+CLK2 LDX TIMEON
+ LDA TIMEON+1
+ BIT IMMDEF ;check exec status
+ BPL CLK1A
+
+ JSR GOBEQU ;gobble
+ JSR INPNUM ;get time limit
+ STX TIMEON ;save time limit
+ STA TIMEON+1
+ RTS
+
+*-------------------------------
+* find time on in seconds
+*-------------------------------
+
+SECON JSR CONVSEC ;get current time in seconds
+ SEC
+ PHA
+ TXA
+ SBC CLKBASE ;time on = current - base
+ TAX
+ PLA
+ SBC CLKBASE+1
+ BCS :SECON1
+
+ PHA
+ TXA
+ ADC #<ROLTIME ;time past midnight
+ TAX  ;add in rolover
+ PLA
+ ADC #>ROLTIME
+:SECON1 RTS
+
+ROLTIME = 43200 ;# seconds in 12 hours
+
+CONVSEC JSR GETTIME
+ STX TEMP3 ;point to time string
+ STA TEMP3+1
+
+ LDA #60
+ STA DATA+1 ;set up multiplier
+ LDA #0
+ STA DATA+2
+ STA DATA+3
+
+ JSR ZNUMIN ;get hour
+ TXA
+ BNE :CONVSC2 ;not 0 hours
+
+ LDA #24 ;make 0 hundred into 24 hundred
+
+:CONVSC2 CMP #13
+ BLT :CONVSC3 ;is it out of range?, nope
+
+ SBC #12 ;make into 1-12 range
+
+:CONVSC3 TAX  ;save result
+ LDA #0
+ JSR SAVNUMB
+ JSR DO_MUL0 ;multiply into minutes
+
+ INC TEMP3
+ JSR ZNUMIN ;get minute
+
+ CLC
+ TXA
+ ADC RESULT ;add in minutes
+ TAX
+ LDA #0
+ ADC RESULT+1
+ JSR SAVNUMB
+
+ LDA #60
+ STA DATA+1 ;multiply by 60
+ JSR DO_MUL0
+
+ INC TEMP3 ;position to seconds
+ JSR ZNUMIN
+
+ CLC
+ TXA
+ ADC RESULT ;add in seconds
+ TAX
+ LDA #0
+ ADC RESULT+1
+ RTS
+
+CHK4SN JSR KEYIN2 ;check for serial # access
+ CMP #'?'
+ BEQ :SHOWSN
+
+ JMP :NOSHOW
+
+:SHOWSN LDA #<SERNUM ;print serial #
+ STA TEMP
+ LDA #>SERNUM
+ STA TEMP+1
+
+ LDY #SEREND-SERNUM ;point to data to print
+ DEY
+
+]LOOP LDA (TEMP),Y
+ EOR #SEREND-SERNUM
+ ROR A
+ JSR COUT
+ DEY
+ BPL ]LOOP
+
+:NOSHOW RTS
+
+*-------------------------------
+* poke a value
+*-------------------------------
+
+DO_POKE JSR INPNUM ;get place to poke
+ STX TEMP
+ STA TEMP+1
+ JSR GOBCOM ;gobble
+ JSR INPNUM ;get value
+ TXA
+ LDY #0
+ STA (TEMP),Y ;no offset
+ RTS
+
+*-------------------------------
+* peek a location
+*-------------------------------
+
+DO_PEEK JSR INPNARG ;get arg
+ STX TEMP
+ STA TEMP+1
+ LDY #0
+ LDA (TEMP),Y ;get value
+ JMP SVDATA ;return in
+
+*-------------------------------
+* produce a tone with apple speaker
+*-------------------------------
+
+DO_TONE LDA #$FF
+ STA TEMP2+1 ;default to 1 tone
+
+ JSR INPNARG ;get tone argument
+ STX TEMP2
+
+ JSR INPNARG ;get duration/tone2 argument
+ STX TEMP+1 ;save as duration
+ BCC :TONE2 ;last argument -- everything is correct
+
+ JSR CHKBYT ;check for last argument
+ CMP #","
+ BNE :TONE6 ;do normal single tone
+
+ STX TEMP2+1 ;save second tone
+ JSR INPNARG ;get real duration
+ STX TEMP+1 ;save duration
+
+:TONE2 LSR TEMP+1 ;correct timing to match old routine
+ LDA TEMP2+1
+ STA TEMP3+1 ;reset second tone
+
+:TONE3 LDA TEMP2
+ STA TEMP3 ;reset first tone
+ LDA SPKR ;click speaker
+
+:TONE4 DEX
+ BNE :TONE5 ;time down
+ DEC TEMP+1
+ BMI :TONE8 ;done with tone
+
+:TONE5 PHA
+ PLA
+ DEC TEMP3
+ BEQ :TONE3 ;count down first tone
+
+ PHA
+ PLA  ;count down second tone
+ DEC TEMP3+1
+ BNE :TONE4 ;nope, do main loop
+
+ LDA TEMP2+1
+ STA TEMP3+1 ;reset second tone
+ LDA SPKR ;click speaker
+ JMP :TONE4 ;go main loop
+
+:TONE6 DEX
+ BNE :TONE7
+
+ LDX TEMP2
+ LDA SPKR ;modified from "keeper" code
+:TONE7 DEY
+ BNE :TONE6
+
+ DEC TEMP+1
+ BNE :TONE6
+:TONE8 RTS
+
+DO_TEXT LDA #0
+ STA WNDTOP ;set to full screen
+DO_HOME JMP VIDCLS ;clear the local screen
+
+*-------------------------------
+* read status of a paddle
+*-------------------------------
+
+DO_PDL JSR INPNARG ;get paddle number
+ LDA PTRIG ;toggle paddle trigger
+ LDY #0
+ NOP  ;give delay so we dont
+ NOP  ;get a false read
+:DO_PDL2 LDA PDLS,X ;check paddle flag
+ BPL :DO_PDL3 ;we are done
+ INY
+ BNE :DO_PDL2 ;keep counting
+ DEY  ;change 0 to 255
+:DO_PDL3 TYA
+ JMP SVDATA ;return value
+
+*-------------------------------
+* get ascii value of a string
+*-------------------------------
+
+DO_ASC JSR INPSARG ;read string
+ LDA #-1
+ LDX STRLEN ;any string there?
+ BEQ :DO_ASC2 ;nope, return value of 255
+
+ LDY #0
+ LDA (STRLOC),Y
+:DO_ASC2 JMP SVDATA ;return byte
+
+*-------------------------------
+* call a machine-language rotine
+*-------------------------------
+
+DO_CALL JSR INPNUM ;get address
+ STX TEMP
+ STA TEMP+1
+ JMP (TEMP) ;transfer control
+
+;lock out other computer writing
+DO_LOCK pha  ; save a reg
+ txa
+ pha  ; save x reg
+ tya
+ pha
+lock1 lda MLBUS
+ asl a ; shift status to carry
+ bcs lock2
+ ldy #1 ; get node #
+lock1a ldx $ff ; set up loop
+lock1b dex
+ bne lock1b ; count down inner loop
+ dey
+ beq lock1 ;done yet? Yes, check again
+ bne lock1a ;No
+lock2 sta ANU_OFF
+ lda #$0c
+ sta $427
+ pla
+ tay
+ pla
+ tax
+ pla
+ rts
+
+;enable other computer writing
+DO_UNLK sta ANU_ON
+ pha
+ lda #$15
+ sta $427
+ pla
+ rts
+
+

@@ -161,7 +161,7 @@ INIT_2 LDA #0 ; reset screen
  ASC '########################################' ; 1
  ASC '# ACOS LOADER V2.2N #    ACOS FILES    #' ; 2
  ASC '# COPYRIGHT 86-2019 ####################' ; 3
- ASC '#  Kevin Smallwood  #                  #' ; 4
+ ASC '#  KEVIN SMALLWOOD  #                  #' ; 4
  ASC '#####################                  #' ; 5
  ASC '#    FILENAMES      #                  #' ; 6
  ASC '#####################                  #' ; 7
@@ -199,7 +199,7 @@ INIT_2 LDA #0 ; reset screen
  LDA PREFIX+1 ; get rid of drive specifier
  AND #$F
  TAX
- INX  ; add 1 for '/'
+ INX ; add 1 for '/'
  STX PREFIX
 
  LDA #'/' ; put in leading slash
@@ -289,7 +289,7 @@ SNAME3 LDA LNBUF-1,Y ; copy filename
  DEY
  BNE SNAME3
 
- TXA  ; save length
+ TXA ; save length
  STA (TEMP),Y
  JMP SNAME ; go back
 
@@ -314,7 +314,7 @@ CHKPRG JSR MLI
  JMP CHKPRG
 
 ; get a directory and look for ".s" files.
-; if any exist, check to see if they have 
+; if any exist, check to see if they have
 ; been changed. If so, kill the ".c" file.
 
 DOCHECK JSR PRSTAT
@@ -403,7 +403,7 @@ RDLOOP4 LDX TEMP
 
  LDY DRIVEA ; get length of path
  TYA
- TAX  ; save length
+ TAX ; save length
 MVPATH LDA DRIVEA,Y
  STA FLNAME,Y ; move pathname
  DEY
@@ -485,7 +485,7 @@ RDLOOP4C LDX TEMP
 
  LDY #0
  LDA (TEMP),Y
- TAY  ; change file back to .S
+ TAY ; change file back to .S
  LDA #'S'
  STA (TEMP),Y
 
@@ -552,7 +552,7 @@ WAIT2C LDA #1
 
  LDY LNBUF ; get pathname length
  INY
-SHOW2 DEY  ; count down
+SHOW2 DEY ; count down
  BMI SHOW3 ; they match
 
  LDA LNBUF,Y
@@ -649,7 +649,7 @@ PRSTAT LDA #2
  STA $23
  JSR HOME ; clear window
 
-PR PLA  ; point to string
+PR PLA ; point to string
  STA PRN
  PLA
  STA PRN+1
@@ -697,7 +697,7 @@ PRWIND STX PRN ; point to filename
  STA $22
  LDA WNDBTM,Y
  STA $23
- SEC  ; make into vtab
+ SEC ; make into vtab
  SBC #1
  STA $25
  JSR VTAB ; vtab down
@@ -725,7 +725,7 @@ WNDBTM DB 19,08,15,19
 PRSTR STX PRN
  STA PRN+1 ; point at string
  TYA
- TAX  ; save length
+ TAX ; save length
  LDY #0
 PRSTR2 LDA (PRN),Y ; get data
  ORA #$80
@@ -741,7 +741,7 @@ MOVPATH STX TEMP ; point to buffer
  STA TEMP+1
 
  LDX #0
-MOVE2 DEY  ; count down
+MOVE2 DEY ; count down
  BMI MOVE3 ; all finished
 
  TXA
@@ -774,7 +774,7 @@ FLCOPY JSR MLI
  JSR MLI ; close compiled file
  DB $CC
  DA P_CLOSE
-FLCOPY2 RTS  ; all is well
+FLCOPY2 RTS ; all is well
 
 FLCOPY1 LDX FLNAME ; change '.c' back to '.s'
  LDA #'S'
@@ -820,7 +820,7 @@ FLCOPY1 LDX FLNAME ; change '.c' back to '.s'
  JSR MLI ; close file 2
  DB $CC
  DA P_CLOSE
- RTS  ; we are done
+ RTS ; we are done
 
 
 ; prodos parmlist

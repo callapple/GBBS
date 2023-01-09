@@ -1,1 +1,145 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεγοξζιηυςε γμογλσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ησγμογλ εψτ  »ησ γμογλ δςιφεςσεςιαμπςο εψτ  »σεςιαμπςο  δςιφεςτθυξδες εψτ  »τθυξδεςγμογλ―τινεναστες δςιφεςιιγσωσ εψτ  »ιιγ σωστεν γμογλνουξταιξ εψτ  »νουξταιξ γμογλπςοδοσ εψτ  »σταξδαςδ πςοδοσ στυζζξυμμγμλ εψτ  »ξο γμογλξοσμοτ εψτ  »ξο σμοτ γμογλφεςσα εψτ  »πςονετθευσ φεςσαγαςδυμτςα εψτ  »υμτςα γμογλ δςιφεςςείγμλ κσς ΤοπΒοψ κσς πςιξτ δβ ±¬³¬±° ασγ §­ Òεγοξζιηυςε Γμογλ ­§¬°° κσς γμσª σεγ           »ςενοφε αστεςιλσ το ναλε ΙΙησª κσς ¤ζε±ζ     »γμογλ σεμζ­ιξσταμμιξηª βγσ ΙΙεΓμλª κνπ ησγμλΙΙεΓμλ κσς πςιξτ δβ ±¬·¬° ασγ § ± ­ Τθυξδεςγμογλ Γονπατιβμε§¬°δ ασγ § ² ­ Α®Ε® Τινεναστες ΙΙ Θ®Ο®§¬°δ ασγ § ³ ­ Α®Ε® Σεςιαμ Πςο§¬°δ ασγ § ΄ ­ Α®Ε® Υμτςα Γμογλ§¬°δ ασγ § µ ­ Α®Ε® ――γ Σωστεν Γμογλ§¬°δ ασγ § ¶ ­ ΣΝΤ Ξο­Σμοτ Γμογλ§¬°δ ασγ § · ­ ΠςοΔΟΣ Γονπατιβμε Γμογλ§¬°δ ασγ § Έ ­ Νουξταιξ Θαςδχαςε Γμογλ§¬°δ ασγ § Ή ­ Πςονετθευσ Φεςσαγαςδ§¬°δ ασγ §±° ­ ΙΙησ Βυιμτ­ιξ Γμογλ§¬°δ ασγ §±± ­ Ξο Γμογλ ιξ Σωστεν§¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­±±έ §¬°° μδψ £±± κσς ιξπξυν πθα ασμ α ταψ μδα Ίγμλταβμε¬ψ στα ποιξτ° ιξψ μδα Ίγμλταβμε¬ψ στα ποιξτ°«± πμα γνπ £΄ »υμτςα βερ Ίξοσμοτ γνπ £¶ »ξο σμοτ γμογλ βερ Ίξοσμοτ γνπ £· »πςοδοσ γονπαταβμε βερ Ίξοσμοτ γνπ £±° »ιιησ βυιμτ ιξ βερ Ίξοσμοτ γνπ £±± »ξο γμογλ βερ Ίξοσμοτ κσς πςιξτ δβ ±¬²±¬° ασγ §Χθιγθ σμοτ―ποςτ δοεσ τθε γμογλ υσεΏ§°δ ασγ §Ϋ±­·έ §°° μδψ £· » ηετ σμοτ κσς ιξπξυν ασμ α ασμ α ασμ α ασμ αΊξοσμοτ πθα  »σαφε σμοτ κσς γμσ κσς πςιξτ δβ ±¬·¬° ασγ §Χθατ τινε ζοςνατ δο ωου χαξτΏ§¬°δ¬°δ ασγ § ± ­ ±² θους§¬°δ ασγ § ² ­ ²΄ θους§¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­²έΊ §¬°° μδψ £² » ηετ νοδε κσς ιξπξυν μδψ £¤Έ° γνπ £± βερ Ί²΄θς μδψ £¤°°Ί²΄θς τψα  »πυτ νοδε ιξ αγγυν® πθα  »σαφε νοδε μδω £° »νοφε τθε σιξημε παηεΊμοοπ μδα ¨ποιξτ°©¬ω »σουςγε στα γμλδςφ¬ω »δεστιξατιοξ ιξω βξε Ίμοοπ πμα  »ηετ τθε νοδε βαγλ στα γμλδςφ«± πμα  »ηετ τθε σμοτ βαγλ στα γμλδςφ κσς γθιξιτ » γθεγλ ζος ιξιτ κνπ χςτγθη » χςιτε τθε γθαξηεσΊγμλταβμε δχ ° δα τθυξδες δα τθυξδες δα σεςιαμπςο δα υμτςα δα ιιγσωσ δα ξοσμοτ δα πςοδοσ δα νουξταιξ δα φεςσα δα ησγμογλ δα ξυμμγμλª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΙΙησ γμογλ ισ ιξσταμμεδ βω ιτσεμζησγμλ κσς πςιξτ δβ ±¬·¬° ασγ §ΙΙησ Γμογλ ιξσταμμεδ αυτονατιγαμμω®®®§¬°° κσς ηετγς μδω £°Ίμοοπ μδα ησγμογλ¬ω στα γμλδςφ¬ω ιξω βξε Ίμοοπ κσς γθιξιτ κνπ χςτγθη
+*-------------------------------
+* reconfigure clocks
+*-------------------------------
+
+gsclock ext  ;gs clock driver
+serialpro ext  ;serialpro  driver
+thunder ext  ;thunderclock/timemaster driver
+iicsys ext  ;iic system clock
+mountain ext  ;mountain clock
+prodos ext  ;standard prodos stuff
+nullclk ext  ;no clock
+noslot ext  ;no slot clock
+versa ext  ;prometheus versacard
+ultra ext  ;ultra clock driver
+
+
+
+re_clk jsr TopBox
+ jsr print
+ db 1,3,10
+ asc '- Reconfigure Clock -',00
+
+ jsr cls
+
+* sec           ;remove asteriks to make IIgs
+* jsr $fe1f     ;clock self-installing
+* bcs IIeClk
+* jmp gsclk
+
+IIeClk jsr print
+ db 1,7,0
+ asc ' 1 - Thunderclock Compatible',0d
+ asc ' 2 - A.E. Timemaster II H.O.',0d
+ asc ' 3 - A.E. Serial Pro',0d
+ asc ' 4 - A.E. Ultra Clock',0d
+ asc ' 5 - A.E. //c System Clock',0d
+ asc ' 6 - SMT No-Slot Clock',0d
+ asc ' 7 - ProDOS Compatible Clock',0d
+ asc ' 8 - Mountain Hardware Clock',0d
+ asc ' 9 - Prometheus Versacard',0d
+ asc '10 - IIgs Built-in Clock',0d
+ asc '11 - No Clock in System',0d,0d
+ asc 'Which? [1-11] ',00
+
+ ldx #11
+ jsr inpnum
+
+ pha
+ asl a
+ tax
+ lda :clktable,x
+ sta point0
+ inx
+ lda :clktable,x
+ sta point0+1
+
+ pla
+ cmp #4 ;ultra
+ beq :noslot
+ cmp #6 ;no slot clock
+ beq :noslot
+ cmp #7 ;prodos compatable
+ beq :noslot
+ cmp #10 ;iigs built in
+ beq :noslot
+ cmp #11 ;no clock
+ beq :noslot
+
+ jsr print
+ db 1,21,0
+ asc 'Which slot/port does the clock use?'0d
+ asc '[1-7] '00
+
+ ldx #7 ; get slot
+ jsr inpnum
+ asl a
+ asl a
+ asl a
+ asl a
+:noslot pha  ;save slot
+
+ jsr cls
+ jsr print
+ db 1,7,0
+ asc 'What time format do you want?',0d,0d
+ asc ' 1 - 12 hour',0d
+ asc ' 2 - 24 hour',0d,0d
+ asc 'Which? [1-2]: ',00
+
+ ldx #2 ; get mode
+ jsr inpnum
+ ldx #$80
+ cmp #1
+ beq :24hr
+ ldx #$00
+
+:24hr txa  ;put mode in accum.
+ pha  ;save mode
+
+
+ ldy #0 ;move the single page
+:loop lda (point0),y ;source
+ sta clkdrv,y ;destination
+ iny
+ bne :loop
+
+ pla  ;get the mode back
+ sta clkdrv+1
+ pla  ;get the slot back
+ sta clkdrv
+
+ jsr chinit ; check for init
+ jmp wrtchg ; write the changes
+
+:clktable dw 0
+ da thunder
+ da thunder
+ da serialpro
+ da ultra
+ da iicsys
+ da noslot
+ da prodos
+ da mountain
+ da versa
+ da gsclock
+ da nullclk
+
+*-------------------------------
+* IIgs clock is installed by itself
+
+gsclk jsr print
+ db 1,7,0
+ asc 'IIgs Clock installed automatically...',00
+ jsr getcr
+
+ ldy #0
+:loop lda gsclock,y
+ sta clkdrv,y
+ iny
+ bne :loop
+
+ jsr chinit
+ jmp wrtchg
+
+

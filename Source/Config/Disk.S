@@ -1,1 +1,103 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Δισλ στυζζ ζος γοξζιηª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ ³―±±―ΈΈª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ςεαδ ιξ α παςτιαμ ςεγοςδ Ϋ±­²µµ βωτεσέςδπαςτ στψ παςτ στα παςτ«± » ποιξτ το βυζζες τωα ταψ  » σαφε γουξτες μδω £°Ίμοοπ κσς ςδβωτε » ςεαδ ιξ δατα βγσ Ίεςςος » εςςος στα ¨παςτ©¬ω ιξω δεψ βξε Ίμοοπ » δο ξεψτ βωτε γμγ  » αμμ χεξτ χεμμΊεςςος ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª χςιτε α παςτιαμ βμογλ οζ δατα το δισλχςπαςτ στψ παςτ » ποιξτ το δατα στα παςτ«± τωα ταψ  » σαφε μεξητθ μδω £°Ίμοοπ μδα ¨παςτ©¬ω » χςιτε ουτ δατα κσς χςβωτε ιξω δεψ βξε Ίμοοπ » δο ξεψτ βωτε ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª φεςιζω α τθατ α δισλ ισ οξμιξεφεςιζω στψ φεςιζωίπ«± » ποιξτ το χαξτεδ πατθ στα φεςιζωίπ«² κσς νμι δβ ¤γ¶ » σετ πςεζιψ δχ φεςιζωίπ βγσ Ίεςςος κσς νμι »ηετ πςεζιψ ζος σουςγε φομυνε δβ ¤γ· »ηετ πςεζιψ δχ πίπζψ² »ποιξτ το πατθΊεςςος ςτσφεςιζωίπ δβ ± δχ ° »αδδςεσσ οζ πατθ το σετª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª μοαδ γοξζιη―αγοσ®οβκ ζςον δισλμδαγοσ κσς μοηπςη » μοη το τθε πςοηςαν δισλ μδψ £Όηξανε μδα £Ύηξανε κσς νοφξανε » νοφε ζιμεξανε κσς οπεξ » οπεξ §αγοσ®οβκ§ βγσ Ίεςςος » εςςος μδψ £Όγοξζβυζ » μοαδ γοξζιη παςτ ιξτο βυζζες μδα £Ύγοξζβυζ μδω £²° » ςεαδ ±° παηεσ ¨µ βμογλσ© κσς ςδβμλ κσς γμοσε » γμοσε ζιμε γμγΊεςςος ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª χςιτε γοξζιη―αγοσ®οβκ βαγλ το δισλσφαγοσ κσς μοηπςη » μοη το πςοηςαν δισλ μδψ £Όηξανε μδα £Ύηξανε κσς νοφξανε » νοφε ζιμεξανε κσς οπεξ βγσ Ίεςςος μδψ £Όγοξζβυζ » χςιτε γοξζιη βαγλ το δισλ μδα £Ύγοξζβυζ μδω £²° κσς χςβμλ » χςιτε ±° παηεσ ¨µ βμογλσ© κσς γμοσε γμγΊεςςος ςτσςεζξυν δβ °
+*-------------------------------
+* Disk stuff for config
+*-------------------------------
+* Date: 3/11/88
+*-------------------------------
+
+*-------------------------------
+* read in a partial record [1-255 bytes]
+
+rdpart stx part
+ sta part+1 ; point to buffer
+ tya
+ tax  ; save counter
+
+ ldy #0
+:loop jsr rdbyte ; read in data
+ bcs :error ; error
+
+ sta (part),y
+ iny
+ dex
+ bne :loop ; do next byte
+
+ clc  ; all went well
+:error rts
+
+*-------------------------------
+* write a partial block of data to disk
+
+wrpart stx part ; point to data
+ sta part+1
+ tya
+ tax  ; save length
+
+ ldy #0
+:loop lda (part),y ; write out data
+ jsr wrbyte
+ iny
+ dex
+ bne :loop ; do next byte
+
+ rts
+
+
+*-------------------------------
+* verify a that a disk is online
+
+verify stx verify_p+1 ; point to wanted path
+ sta verify_p+2
+
+ jsr mli
+ db $c6 ; set prefix
+ dw verify_p
+ bcs :error
+
+ jsr mli ;get prefix for source volume
+ db $c7 ;get prefix
+ dw p_pfx2 ;point to path
+:error rts
+
+verify_p db 1
+ dw 0 ;address of path to set
+
+
+*-------------------------------
+* load config/acos.obj from disk
+
+ldacos jsr logprg ; log to the program disk
+ ldx #<gname
+ lda #>gname
+ jsr movname ; move filename
+ jsr open ; open 'acos.obj'
+ bcs :error ; error
+
+ ldx #<confbuf ; load config part into buffer
+ lda #>confbuf
+ ldy #20 ; read 10 pages (5 blocks)
+ jsr rdblk
+ jsr close ; close file
+ clc
+:error rts
+
+*-------------------------------
+* write config/acos.obj back to disk
+
+svacos jsr logprg ; log to program disk
+ ldx #<gname
+ lda #>gname
+ jsr movname ; move filename
+ jsr open
+ bcs :error
+
+ ldx #<confbuf ; write config back to disk
+ lda #>confbuf
+ ldy #20
+ jsr wrblk ; write 10 pages (5 blocks)
+ jsr close
+ clc
+:error rts
+
+refnum db 0
+
+

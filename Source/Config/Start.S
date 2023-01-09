@@ -1,1 +1,126 @@
-ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª    Γοξζιη Πςοηςαν ­ Σταςτ    ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ µ―²Ή―Ή±ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­βεηιξ στα ¤γ°µ± »τεψτ νοδε στα ¤Γ°°Ε »Τυςξ ΝουσεΤεψτ οζζ βιτ ¤Γ°Έ² μδα £Όδοίρυιτ »ζυδηε ςεσετ φεγτος στα ςεσετ μδα £Ύδοίρυιτ στα ςεσετ«± εος £¤Αµ στα ςεσετ«² μδψ £¤Ζ° »ςεσετ σταγλ τψσ κσς ζιξδγοξ »ζιξδ τθε γοξζιη δισλ¬μοηιτ κσς ΦιδεοΣταςτυπ » Ιξιτ τθε φιδεο δςιφες κσς δοίναιξª κνπ μοαδη »ζοςγε το ςεγοξζιη κσς γμσ » γμεας σγςεεξ κσς πςιξτ δβ ±¬·¬° ασγ §Χθεξ ωου δο αξ ιξιτιαμ γοξζιηυςε¬ αμμ§¬°δ ασγ §πςεφιουσ δατα χιμμ βε δεστςοωεδ αξδ§¬°δ ασγ §ςεπμαγεδ χιτθ τθε ξεχ γοξζιηυςατιοξ®§¬°δ¬°δ ασγ §ΑΜΜ ΟΜΔ ΓΟΞΖΙΗΥÒΑΤΙΟΞ ΔΑΤΑ ΧΙΜΜ ΒΕ ΜΟΣΤ§¬°δ¬°δ¬°δ ασγ §Δο ωου χαξτ το δο αξ Ιξιτιαμ ΓοξζιηυςεΏ§¬°δ ασγ §ΫΩ―Ξέ §¬°° κσς ιξπωξ » ιξπυτ ωεσ―ξο βγσ μοαδη κσς μδαγοσ » μοαδ ιξ αγοσ ζιμε κνπ δοιξιτ » δο ιξιτιαμ γοξζιηª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­μοαδη κσς μδγοξζη » μοαδ γοξζιη σεηνεξτσταςτ μδα £° » τυςξ οζζ εσγαπε θαξδμες στα ςεζξυν κσς εσγαπε κσς γμοσε » γμοσε αμμ ζιμεσ κσς μοηγοξ κσς δοίναιξ κσς γμσ » γμεας σγςεεξ κσς πςιξτ ασγ §Σεμεγτ αξ ΟπτιοξΊ§¬°δ¬°δ ασγ §  ± ­ Òεγοξζιηυςε Νοδεν§¬°δ ασγ §  ² ­ Òεγοξζιηυςε Φιδεο§¬°δ ασγ §  ³ ­ Òεγοξζιηυςε Πςιξτες§¬°δ ασγ §  ΄ ­ Òεγοξζιηυςε Γμογλ§¬°δ ασγ §  µ ­ Òεγοξζιηυςε Στοςαηε§¬°δ ασγ §  ¶ ­ Εδιτ Πςοζαξιτω Ζιμτες§¬°δ ασγ §  · ­ Εδιτ Βυμμετιξ Βοαςδ Ιξζο§¬°δ ασγ §  Έ ­ Σοςτ αξδ Πςιξτ Υσεςμιστ§¬°δ ασγ §  Ή ­ Πυςηε Υσεςσ Ζςον Σωστεν§¬°δ ασγ § ±° ­ Εψιτ Γοξζιηυςε§¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­±°έ §¬°° μδψ £±° » ηετ α ξυνβες Ϋ±­¶έ κσς ιξπξυν πθα μδψ £Όσταςτ μδα £Ύσταςτ κσς εσγαπε »εσγ ηοεσ βαγλ το θεςε πμα ασμ α ταψ μδα κυνπταβμε¬ψ στα πςξ ιξψ  »πυσθ μοχ μδα κυνπταβμε¬ψ στα πςξ«± κνπ ¨πςξ©κυνπταβμε δχ ° δα ςείνδν δα ςείφιδ δα ςείπς δα ςείγμλ δα ςείστος δα δοίζιμτ δα βςδεδιτ δα υσςμιστ δα υσςλιμμ δα δοίρυιτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª πςιξτ τθε τοπ βοψδοίναιξ κσς ΤοπΒοψ κσς πςιξτ δβ ±¬²¬³ ασγ §ΗΒΒΣ Γοξζιη Πςοηςαν ­ Φεςσιοξ ²®²§¬°° κσς πςιξτ δβ ±¬΄¬² ασγ §Γοπωςιηθτ ±ΉΈ¶­²°±Ή Λεφιξ Σναμμχοοδ§¬°° ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ιξιτ δβ °υσςξανε δβ µ ασγ §ΥΣΕÒΣ§ηξανε δβ Έ ασγ §ΑΓΟΣ®ΟΒΚ§
+********************************
+*                              *
+*    Config Program - Start    *
+*                              *
+********************************
+
+*-------------------------------
+* Date: 5/29/91
+*-------------------------------
+
+begin sta $c051 ;text mode
+ sta $C00E ;Turn MouseText off
+ bit $C082
+
+ lda #<do_quit ;fudge reset vector
+ sta reset
+ lda #>do_quit
+ sta reset+1
+ eor #$A5
+ sta reset+2
+
+ ldx #$F0 ;reset stack
+ txs
+
+ jsr findcon ;find the config disk,logit
+ jsr VideoStartup ; Init the video driver
+
+
+ jsr do_main
+
+* jmp loadg ;force to reconfig
+
+ jsr cls ; clear screen
+ jsr print
+ db 1,7,0
+ asc 'When you do an initial configure, all',0d
+ asc 'previous data will be destroyed and',0d
+ asc 'replaced with the new configuration.',0d
+ asc 'All old data will be lost.',0d,0d,0d
+ asc 'Do you want to do an Initial Configure?',0d
+ asc '[Y/N] ',00
+
+ jsr inpyn ; input yes/no
+ bcs loadg
+
+ jsr ldacos ; load in acos file
+ jmp doinit ; do initial config
+
+*-------------------------------
+
+loadg jsr ldconfg ; load config segment
+
+start lda #0 ; turn off escape handler
+ sta refnum
+ jsr escape
+ jsr close ; close all files
+ jsr logcon
+
+ jsr do_main
+
+ jsr cls ; clear screen
+ jsr print
+ asc 'Select an Option:',0d,0d
+ asc '  1 - Reconfigure Modem',0d
+ asc '  2 - Reconfigure Video',0d
+ asc '  3 - Reconfigure Printer',0d
+ asc '  4 - Reconfigure Clock',0d
+ asc '  5 - Reconfigure Storage',0d
+ asc '  6 - Edit Profanity Filter',0d
+ asc '  7 - Edit Bulletin Board Info',0d
+ asc '  8 - Sort and Print Userlist',0d
+ asc '  9 - Purge Users From System',0d
+ asc ' 10 - Exit Configure',0d,0d
+
+ asc 'Which? [1-10] ',00
+
+ ldx #10 ; get a number [1-6]
+ jsr inpnum
+
+ pha
+ ldx #<start
+ lda #>start
+ jsr escape ;esc goes back to here
+ pla
+ asl a
+ tax
+
+ lda jumptable,x
+ sta prn
+ inx  ;push low
+ lda jumptable,x
+ sta prn+1
+ jmp (prn)
+
+jumptable dw 0
+ da re_mdm
+ da re_vid
+ da re_pr
+ da re_clk
+ da re_stor
+ da do_filt
+ da brdedit
+ da usrlist
+ da usrkill
+ da do_quit
+
+*-------------------------------
+* print the top box
+
+do_main jsr TopBox
+ jsr print
+ db 1,2,3
+ asc 'GBBS Config Program - Version 2.2',00
+ jsr print
+ db 1,4,2
+ asc 'Copyright 1986-2019 Kevin Smallwood',00
+ rts
+
+*-------------------------------
+
+init db 0
+
+usrname db 5
+ asc 'USERS'
+gname db 8
+ asc 'ACOS.OBJ'

@@ -1,1 +1,202 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ――γ Σωστεν Γμογλ ­ ²΄ θςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Òεφισεδ ΔατεΊ °Έ―°²―Έ·ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ψγ ςεμ δσλ ςεμ―ιιγσωσιιγσωσ εξτ οςη ¤°δ°°μξβυζ ερυ ¤²°°ΪΒΥΖ ΕΡΥ ¤΄±ΠΤÒ ΕΡΥ ¤΄²στατ± ερυ ¤γ°ΉΉγονν± ερυ ¤γ°Ήαστατ² ερυ ¤γ°αΉγονν² ερυ ¤γ°ααβωτγξτ ερυ ¤°ε°³ξυμμπτς ερυ ¤°ανμι ερυ ¤βζ°°δατε ερυ ¤βζΉ°τινε ερυ ¤βζΉ²ηετίτινε ερυ ¤Έ²σμοτ θεψ ²°νοδε δβ ° βςα ηετδατετινες δβ °° κνπ ηεττινε ςτσ  » κνπ σετδατεª ηετ τθε δατε ιξ πςοδοσ ηββσ ζοςνατª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηετδατε κσς νμι » νμι γαμμ δβ ηετίτινε » ηετίτινε θεψ °°°° » ξο πςανατες ταβμε μδψ δατε μδα δατε«±σετδατε ςτσª ηετ τθε γυςςεξτ τινεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηεττινε κσς ςδτινε βιτ νοδε βπμ ητινε± κσς γοξφεςτητινε± μδψ £Ότινεστς » ποιξτ το στςιξη μδα £Ύτινεστς ςτσª ςεαδ τινε ζςον γμογλª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ςδτινε μδα £¶΄ » ςεαδ τθε δατε αξδ τινε ζςον γμογλιξιτ±ί± πθαιξιτ±ί² σβγ £± βξε ιξιτ±ί² πμα σβγ £± » ηιφε πμεξτω οζ σετυπ δεμαω βξε ιξιτ±ί± πθπ σειιξιτ±ί³ μδα γονν± » ηετ γυςςεξτ σεττιξη πθα μδω £³ μδψ £²² μδα £Έιξιτ² στα γονν± » σεξδ ιξιτ σερυεξγε το γμογλιξιτ²ί± δεψ  » ιξτςα­βιτ δεμαω βξε ιξιτ²ί± εος £¤°α » τοηημε βαγλ αξδ ζοςτθ μδψ £±± δεω βξε ιξιτ² » λεεπ μοοπιξη μδω £΄ μδψ £Έ βξε ιξιτ³ί² » σλιπ ιξιτιαμ δεμαωιξιτ³ μδα £¤³΄ στα τινες » δεμαω χθιμε γμογλ σετσ υπιξιτ³ί± δεγ τινες » το σεξδ τθε δατε―τινε βξε ιξιτ³ί±ιξιτ³ί² μδα στατ± » σθιζτ βιτ δατα ιξτο ξιββμε ςομ ςομ ςομ ςος δατεστς δεψ βξε ιξιτ³ » ηο βαγλ το δεμαω μδα δατεστς εος £° » σαφε τθε ξιββμε στα δατεστς¬ω μδψ £Έ δεω βπμ ιξιτ³ πμαιξιτ³ί³ στα γονν± » ςετοςε υαςτ το ιξιτιαμ σεττιξησ μδω £±µ μδψ £΄ιξιτ΄ μδα δατεστς¬ψ πθα αξδ £¤°ζ » πςογεσσ διηιτ ¨ναλε ιξτο ασγιι© οςα £¤³° στα δατεστς¬ω δεω πμα μσς μσς μσς  » πςογεσσ τοπ οζ ξιββμε μσς οςα £¤³° » τυςξ ιξτο ασγιι στα δατεστς¬ω δεω δεω δεψ βπμ ιξιτ΄ πμπ μδα £§Ί§ στα τινεστς«² » πυτ τινε διφιδεςσ ιξ στα τινεστς«µ μδψ £Ότινεστς » ποιξτ το στςιξη μδα £Ύτινεστς ςτσª γοξφεςτ τινε το ±²θς ζοςνατª­­­­­­­­­­­­­­­­­­­­­­­­­­­­γοξφεςτ μδα τινεστς »γοξφεςτ το ±² θους μδψ τινεστς«± αξδ £¤°ζ ταω τψα αξδ £¤°ζ δεω βνι γοξφ² γμγ αδγ £±° δεω βνι γοξφ² αδγ £±°γοξφ² γνπ £±² βξε γοξφ²α μδα £²΄γοξφ²α ταω βξε γοξφ³ μδα £±²γοξφ³ μδψ £§Α§ γνπ £±³ βγγ γοξφ΄ σβγ £±² μδψ £§Π§γοξφ΄ μδω £§°§γοξφµ γνπ £±° βγγ γοξφ¶ σβγ £±° ιξω βξε γοξφµγοξφ¶ οςα £§°§ στα τινεστς«± στω τινεστς στψ τινεστς«Ή μδψ £§Ν§ στψ τινεστς«±° ςτσδατεστς ασγ §°° °° °°§τινεστς ασγ §°°Ί°°Ί°°   §
+*-------------------------------
+* //c System Clock - 24 hr
+*-------------------------------
+* Revised Date: 08/02/87
+*-------------------------------
+
+ lst off
+
+ xc
+ rel
+ dsk rel/iicsys
+
+iicsys ent
+
+ org $0d00
+
+lnbuf equ $200
+
+ZBUF EQU $41
+PTR EQU $42
+
+stat1 equ $c099
+comm1 equ $c09a
+stat2 equ $c0a9
+comm2 equ $c0aa
+
+bytcnt equ $0e03
+nullptr equ $0a
+
+mli equ $bf00
+date equ $bf90
+time equ $bf92
+get_time equ $82
+
+
+slot hex 20
+mode db 0
+
+ bra getdate
+timer db 00
+ jmp gettime
+ rts ; jmp setdate
+
+* get the date in prodos gbbs format
+*-------------------------------
+getdate jsr mli ; mli call
+ db get_time ; get_time
+ hex 0000 ; no pramater table
+
+ ldx date
+ lda date+1
+setdate rts
+
+* get the current time
+*-------------------------------
+gettime jsr rdtime
+ bit mode
+ bpl gtime1
+ jsr convert
+
+gtime1 ldx #<timestr ; point to string
+ lda #>timestr
+ rts
+
+* read time from clock
+*-------------------------------
+rdtime lda #64 ; read the date and time from clock
+init1_1 pha
+init1_2 sbc #1
+ bne init1_2
+ pla
+ sbc #1 ; give plenty of setup delay
+ bne init1_1
+
+ php
+ sei
+init1_3 lda comm1 ; get current setting
+ pha
+
+ ldy #3
+ ldx #22
+ lda #8
+init2 sta comm1 ; send init sequence to clock
+
+init2_1 dex ; intra-bit delay
+ bne init2_1
+
+ eor #$0a ; toggle back and forth
+ ldx #11
+ dey
+ bne init2 ; keep looping
+
+ ldy #4
+ ldx #8
+ bne init3_2 ; skip initial delay
+
+init3 lda #$34
+ sta timer ; delay while clock sets up
+init3_1 dec timer ; to send the date/time
+ bne init3_1
+
+init3_2 lda stat1 ; shift bit data into nibble
+ rol
+ rol
+ rol
+ ror datestr
+ dex
+ bne init3 ; go back to delay
+
+ lda datestr
+ eor #0 ; save the nibble
+ sta datestr,y
+
+ ldx #8
+ dey
+ bpl init3
+
+ pla
+init3_3 sta comm1 ; retore uart to initial settings
+
+ ldy #15
+ ldx #4
+
+init4 lda datestr,x
+ pha
+ and #$0f ; process digit (make into ascii)
+ ora #$30
+ sta datestr,y
+
+ dey
+ pla
+ lsr
+ lsr
+ lsr ; process top of nibble
+ lsr
+ ora #$30 ; turn into ascii
+ sta datestr,y
+
+ dey
+ dey
+ dex
+ bpl init4
+ plp
+
+ lda #':'
+ sta timestr+2 ; put time dividers in
+ sta timestr+5
+
+ ldx #<timestr ; point to string
+ lda #>timestr
+ rts
+
+* convert time to 12hr format
+*----------------------------
+convert lda timestr ;convert to 12 hour
+ ldx timestr+1
+
+ and #$0f
+ tay
+ txa
+ and #$0f
+
+ dey
+ bmi conv2
+ clc
+ adc #10
+ dey
+ bmi conv2
+ adc #10
+
+conv2 cmp #12
+ bne conv2a
+ lda #24
+conv2a tay
+ bne conv3
+ lda #12
+
+conv3 ldx #'A'
+ cmp #13
+ bcc conv4
+
+ sbc #12
+ ldx #'P'
+
+conv4 ldy #'0'
+conv5 cmp #10
+ bcc conv6
+
+ sbc #10
+ iny
+ bne conv5
+
+conv6 ora #'0'
+ sta timestr+1
+ sty timestr
+ stx timestr+9
+ ldx #'M'
+ stx timestr+10
+ rts
+
+datestr asc '00 00 00'
+timestr asc '00:00:00   '

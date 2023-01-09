@@ -1,1 +1,144 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Ξο Γμογλ Δςιφεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Òεφισεδ ΔατεΊ °Έ―°²―Έ·ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ςεμ δσλ ςεμ―ξυμμβωτγξτ ερυ ¤°ε°³ξυμμπτς ερυ ¤°αξυμμγμλ εξτ οςη ¤°δ°°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­σμοτ θεψ °°νοδε δβ ° κνπ ηετδατε κνπ ηεττινε κνπ σετδατεª ηετ τθε δατε ιξ πςοδοσ―ηββσ ζοςνατª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηετδατε μδψ δατε μδα δατε«± ςτσª σετ τθε δατε ναξυαμμωª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­σετδατε γπω £Έ » ισ ιτ Έ γθαςσ μοξηΏ βξε σετδτ² » ξοπε στψ ξυμμπτς » ποιξτ το στςιξη στα ξυμμπτς«± μδω £· μδα ¨ξυμμπτς©¬ω ταψ  » πςογεσσ ωεας δεω μδα ¨ξυμμπτς©¬ω κσς δεγβιξΈ στα δατε«± » σαφε ωεας μδω £΄ μδα ¨ξυμμπτς©¬ω ταψ  » πςογεσσ δαω δεω μδα ¨ξυμμπτς©¬ω κσς δεγβιξΈ αξδ £¥°°°±±±±± στα δατε » σαφε δαω μδω £± μδα ¨ξυμμπτς©¬ω ταψ  » πςογεσσ νοξτθ δεω μδα ¨ξυμμπτς©¬ω κσς δεγβιξΈ αξδ £¥°°°°±±±± » ηετ ςιδ οζ εψτςα κυξλ ασμ ασμ ασμ ασμ ασμ ςομ δατε«± » πυτ βιτ ιξτο ωεας ζιεμδ οςα δατε στα δατε » πυτ ςεστ ιξτο δαω ζιεμδσετδτ² ςτσª ηετ τθε γυςςεξτ εστινατεδ τινεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηεττινε μδα βωτγξτ«² » σθοχ θουςσ κσς βιξδεγΈ στα τινεστς στψ τινεστς«± μδα βωτγξτ«± » σθοχ νιξυτεσ κσς βιξδεγΈ στα τινεστς«³ στψ τινεστς«΄ μδα βωτγξτ«° » σθοχ σεγοξδσ κσς βιξδεγΈ στα τινεστς«¶ στψ τινεστς«· μδψ £Ότινεστς » ποιξτ το στςιξη μδα £Ύτινεστς ςτσª γοξφεςτ α ² βωτε δεγιναμ ξυνβες το βιξαςωª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­δεγβιξΈ αξδ £¤·ζ σεγ σβγ £§°§ στα δεγβωτε » σαφε ±°§σ διηιτ τψα  » νοφε ±§σ ιξτο Α αξδ £¤·ζ σεγ σβγ £§°§ μδω £±°δεγΈα γμγ αδγ δεγβωτε » αδδ τθε ±°§σ διηιτ¬ ±° τινεσ δεω βξε δεγΈα ςτσ  » ςετυςξ χιτθ ςεσυμτδεγβωτε θεψ °°ª τςαξσματε α βιξαςω το τεψτ Ϋ°­ΉΉέª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­βιξδεγΈ γνπ £¶° » πυτ μινιτ οζ µΉ βγγ βιξΈ μδα £µΉβιξΈ μδω £° » σταςτ ±°§σ γουξτεςβιξΈα γνπ £±° βγγ βιξΈβ » μεσσ τθαξ ±°¬ χεςε δοξε σβγ £±° » νιξυσ ±° ιξω  » αδδ ± το τθε ±°§σ γουξτες βξε βιξΈα » μοοπβιξΈβ αδγ £§°§ » ναλε ±§σ ιξτο τεψτ ταψ  » σαφε τωα αδγ £§°§ » ναλε ±°§σ ιξτο τεψτ ςτσ  » χεςε δοξετινεστς ασγ §°°Ί°°Ί°° ΕΤ§δατε θεψ °°°°
+*-------------------------------
+* No Clock Driver
+*-------------------------------
+* Revised Date: 08/02/87
+*-------------------------------
+
+ lst off
+
+ rel
+ dsk rel/null
+
+bytcnt equ $0e03
+nullptr equ $0a
+
+
+nullclk ent
+
+ org $0d00
+
+*-------------------------------
+
+slot hex 00
+mode db 0
+
+ jmp getdate
+ jmp gettime
+ jmp setdate
+
+* get the date in prodos/gbbs format
+*-------------------------------
+
+getdate ldx date
+ lda date+1
+ rts
+
+* set the date manually
+*-------------------------------
+
+setdate cpy #8 ; is it 8 chars long?
+ bne setdt2 ; nope
+
+ stx nullptr ; point to string
+ sta nullptr+1
+
+ ldy #7
+ lda (nullptr),y
+ tax  ; process year
+ dey
+ lda (nullptr),y
+ jsr decbin8
+ sta date+1 ; save year
+
+ ldy #4
+ lda (nullptr),y
+ tax  ; process day
+ dey
+ lda (nullptr),y
+ jsr decbin8
+ and #%00011111
+ sta date ; save day
+
+ ldy #1
+ lda (nullptr),y
+ tax  ; process month
+ dey
+ lda (nullptr),y
+ jsr decbin8
+ and #%00001111 ; get rid of extra junk
+ asl
+ asl
+ asl
+ asl
+ asl
+ rol date+1 ; put bit into year field
+ ora date
+ sta date ; put rest into day field
+setdt2 rts
+
+* get the current estimated time
+*-------------------------------
+
+gettime lda bytcnt+2 ; show hours
+ jsr bindec8
+ sta timestr
+ stx timestr+1
+
+ lda bytcnt+1 ; show minutes
+ jsr bindec8
+ sta timestr+3
+ stx timestr+4
+
+ lda bytcnt+0 ; show seconds
+ jsr bindec8
+ sta timestr+6
+ stx timestr+7
+
+ ldx #<timestr ; point to string
+ lda #>timestr
+ rts
+
+* convert a 2 byte decimal number to binary
+*-------------------------------
+
+decbin8 and #$7f
+ sec
+ sbc #'0'
+ sta decbyte ; save 10's digit
+ txa  ; move 1's into A
+ and #$7f
+ sec
+ sbc #'0'
+
+ ldy #10
+dec8a clc
+ adc decbyte ; add the 10's digit, 10 times
+ dey
+ bne dec8a
+ rts  ; return with result
+
+decbyte hex 00
+
+* translate a binary to text [0-99]
+*-------------------------------
+
+bindec8 cmp #60 ; put limit of 59
+ bcc bin8
+ lda #59
+
+bin8 ldy #0 ; start 10's counter
+bin8a cmp #10
+ bcc bin8b ; less than 10, were done
+
+ sbc #10 ; minus 10
+ iny  ; add 1 to the 10's counter
+ bne bin8a ; loop
+
+bin8b adc #'0' ; make 1's into text
+ tax  ; save
+ tya
+ adc #'0' ; make 10's into text
+ rts  ; were done
+
+timestr asc '00:00:00 ET'
+date hex 0000

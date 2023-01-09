@@ -1,1 +1,131 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Τθυξδεςγμογλ Δςιφες ­ ²΄ θςσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Δατε ÒεφισεδΊ °Έ―°΄―Έ·ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ςεμ δσλ ςεμ―τθυξδεςμξβυζ ερυ ¤²°°δατε ερυ ¤βζΉ°τθυξδες εξτ οςη ¤δ°°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­σμοτ θεψ ΄°νοδε δβ ° κνπ ηετδατε κνπ ηεττινε κνπ σετδατε» ηετ τθε δατε ιξ πςοδοσ―ηββσ ζοςνατηετδατε κσς ¤βζ°° θεψ Έ² θεψ °°°° μδψ δατε μδα δατε«±σετδατε ςτσª ηετ τθε γυςςεξτ τινεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ηεττινε κσς ςδτινε βιτ νοδε βπμ ητινε± κσς γοξφεςτητινε± μδψ £Ότινεστς » ποιξτ το στςιξη μδα £Ύτινεστς ςτσª ςεαδ τινε ζςον γμογλª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ςδτινε βιτ ιξιτβωτ » θασ ςουτιξε βεεξ γαμμεδ βεζοςεΏ βνι γμογλ± » ωεπ μδα σμοτ » ηετ γμογλ σμοτ μυπ ΄ μσς ­­ή οςα £¤γ° » ναλε ιξτο ¤Γξ ζοςν στα γμογλ²«² » νοδιζω γοδε ζος σμοτ στα γμογλ³«² δεγ ιξιτβωτ » σθοχ ςουτιξε θασ βεεξ ιξιτ§εδγμογλ± μδα £Ά£Ά » υσε Ά¦Ά νοδε ¨²΄ θους©γμογλ² κσς ¤γ°°β » νοδιζιεδ ¨¤γ΄°β©γμογλ³ κσς ¤γ°°Έ » νοδιζιεδ ¨¤γ΄°Έ© μδω £°γμογλ΄ μδα μξβυζ«Ή¬ω » ηετ τινε ζςον ιξπυτ βυζζες στα τινεστς¬ω ιξω γπω £Έ βξε γμογλ΄ μδα £ΆΊΆ » πυτ γομεξσ βαγλ ιξτο στςιξη στα τινεστς«² στα τινεστς«µ μδα £§ § στα τινεστς«Ή » ναλε συςε τθατ τθε αν―πν ισ ςεσετ στα τινεστς«±° ςτσª γοξφεςτ τινε το ±² θους ζοςνατª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γοξφεςτ μδα τινεστς »γοξφεςτ το ±² θους μδψ τινεστς«± αξδ £¤°ζ ταω τψα αξδ £¤°ζ δεω βνι γοξφ² γμγ αδγ £±° δεω βνι γοξφ² αδγ £±°γοξφ² γνπ £±² βξε γοξφ²α μδα £²΄γοξφ²α ταω βξε γοξφ³ μδα £±²γοξφ³ μδψ £§Α§ γνπ £±³ βγγ γοξφ΄ σβγ £±² μδψ £§Π§γοξφ΄ μδω £§°§γοξφµ γνπ £±° βγγ γοξφ¶ σβγ £±° ιξω βξε γοξφµγοξφ¶ οςα £§°§ στα τινεστς«± στω τινεστς στψ τινεστς«Ή μδψ £§Ν§ στψ τινεστς«±° ςτσª δατα αςεαª­­­­­­­­­­­­­­­­­­­­­­­­­ιξιτβωτ θεψ °°τινεστς ασγ §°°Ί°°Ί°°   §¬°°
+*-------------------------------
+* Thunderclock Driver - 24 hrs
+*-------------------------------
+* Date Revised: 08/04/87
+*-------------------------------
+
+ lst off
+
+ rel
+ dsk rel/thunder
+
+lnbuf equ $200
+date equ $bf90
+
+thunder ent
+ org $d00
+
+*-------------------------------
+
+slot hex 40
+mode db 0
+
+ jmp getdate
+ jmp gettime
+ jmp setdate
+
+; get the date in prodos/gbbs format
+getdate jsr $bf00
+ hex 82
+ hex 0000
+
+ ldx date
+ lda date+1
+setdate rts
+
+* get the current time
+*-------------------------------
+gettime jsr rdtime
+ bit mode
+ bpl gtime1
+ jsr convert
+
+gtime1 ldx #<timestr ; point to string
+ lda #>timestr
+ rts
+
+* read time from clock
+*-------------------------------
+rdtime bit initbyt ; has routine been called before?
+ bmi clock1 ; yep
+
+ lda slot ; get clock slot
+ lup 4
+ lsr
+ --^
+ ora #$c0 ; make into $Cn form
+
+ sta clock2+2 ; modify code for slot
+ sta clock3+2
+ dec initbyt ; show routine has been init'ed
+
+clock1 lda #"#" ; use "&" mode (24 hour)
+clock2 jsr $c00b ; modified ($c40b)
+clock3 jsr $c008 ; modified ($c408)
+
+ ldy #0
+clock4 lda lnbuf+9,y ; get time from input buffer
+ sta timestr,y
+ iny
+ cpy #8
+ bne clock4
+ lda #":" ; put colens back into string
+ sta timestr+2
+ sta timestr+5
+ lda #' '
+ sta timestr+9 ; make sure that the am/pm is reset
+ sta timestr+10
+ rts
+
+* convert time to 12 hour format
+*-------------------------------
+convert lda timestr ;convert to 12 hour
+ ldx timestr+1
+
+ and #$0f
+ tay
+ txa
+ and #$0f
+
+ dey
+ bmi conv2
+ clc
+ adc #10
+ dey
+ bmi conv2
+ adc #10
+
+conv2 cmp #12
+ bne conv2a
+ lda #24
+conv2a tay
+ bne conv3
+ lda #12
+
+conv3 ldx #'A'
+ cmp #13
+ bcc conv4
+
+ sbc #12
+ ldx #'P'
+
+conv4 ldy #'0'
+conv5 cmp #10
+ bcc conv6
+
+ sbc #10
+ iny
+ bne conv5
+
+conv6 ora #'0'
+ sta timestr+1
+ sty timestr
+ stx timestr+9
+ ldx #'M'
+ stx timestr+10
+ rts
+
+* data area
+*-------------------------
+initbyt hex 00
+timestr asc '00:00:00   ',00

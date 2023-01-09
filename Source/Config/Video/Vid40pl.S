@@ -1,1 +1,449 @@
-ª ­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª αππμε ΄° γομ δςιφεςª ­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ςεμ δσλ ςεμ―αππμε΄°πμγς ερυ ¤°δμζ ερυ ¤°αβσ ερυ ¤°Έεσγ ερυ ¤±βχξδμζτ ερυ ¤²°χξδχδτθ ερυ ¤²±χξδτοπ ερυ ¤²²χξδβτν ερυ ¤²³γθ ερυ ¤²΄γφ ερυ ¤²µβμιξλ ερυ ¤²¶ομδγφ ερυ ¤²·βασε ερυ ¤²Έβασε² ερυ ¤²αψίσαφε ερυ ¤²γωίσαφε ερυ ¤²διξφζμη ερυ ¤³²φιδ΄°πμ εξτ οςη ¤°Ή°° κνπ ιξιτ κνπ γμσ κνπ γουτ κνπ σγςομμ κνπ βαξξες κνπ γμςμαστ κνπ ςδιξιτ κνπ ςδλεω κνπ ςδεξδ κνπ χιξδοχ κνπ ςεαδ κνπ λεωιξ κνπ ψωποσ κνπ σθγθατ» ιξιτ ΄° γομ φιδεοιξιτ μδα ¤γ³°β γνπ £± βξε ιξιτί² μδα ¤γ³°γ γνπ £¤Έ² βξε ιξιτί± μδα ¤γ°µΈ γμγ βγγ ιξιτί²ιξιτί± γνπ £¤Έ· βξε ιξιτί² μδα £° στα ¤γ°β²ιξιτί² μδα £° » ςεσετ σγςεεξ στα βμιξλ στα σθιζτ στα χξδμζτ στα χξδτοπ στα ιξφζμη μδα £΄° στα χξδχδτθ στα ομδγφ » ναλε συςε ιτ ισ διζζεςεξτ΅ μδα £²΄ στα χξδβτν» ίίίζαμμ τθςουηθ το γμσίίίγμσ μδψ χξδτοπγμσ± κσς σετβασε » σετυπ βασε αδδςεσσ μδω £³Ή μδα £Ά Άγμσ² στα ¨βασε©¬ω » γμεας σγςεεξ δεω βπμ γμσ² ιξψ γπψ χξδβτν » ισ τθεςε νοςεΏ βξε γμσ± » ωεπ» ίίίζαμμ τθςουηθ το θονε ςουτιξείίίθονε μδα £° » θονε γυςσος στα γθ μδα χξδτοπ » τοπ οζ σγςεεξ στα γφ ταψ» ίίίζαμμ τθςουηθ το σετβασε ςουτιξεσετβασε γπψ ομδγφ » δο χε θαφε τθε βασε αμςεαδωΏ βερ σετβασ² » ωεπ πθα τψα ασμ α » ψ ½ ψ ª ² ταψ μδα σγςξαδς¬ψ » ηετ αξδ σαφε αδδςεσσ στα βασε μδα σγςξαδς«±¬ψ στα βασε«± τψα μσς α » ψ ½ ψ ― ² ταψ στψ ομδγφ » υπδατε ομδ γφ φαμυε πμασετβασ² ςτσ» ουτπυτ α γθαςαγτεςγουτ στψ ψίσαφε » σαφε εφεςωτθιξη στω ωίσαφε πθα αξδ £¤·ζ » γμεας θιηθ γνπ £γς βερ γουτ² γνπ £μζ βερ γουτ³ γνπ £βσ βερ γουτµ γνπ £§ § βγγ γουτ΄ μδψ γφ » σετ βασε κσς σετβασε μδω γθ » ηετ οζζσετ οςα £¤Έ° βιτ ιξφζμη » ιξφεςσεΏ βπμ γουτ± » ξοπε γνπ £ΆαΆ » μοχεςΏ βγγ γουτ° » ξοπε σβγ £¤²° » ναλε υππεςγουτ° αξδ £¤³ζ » ιξφεςσε υππες γουτ± στα ¨βασε©¬ω » σαφε γθαςαγτες ιξγ γθ » νοφε οφες ± σπαγε μδω γθ γπω £΄° » χςαπ­αςουξδΏ βξε γουτ΄ » ξοπεγουτ² μδω £° » ςεσετ θοςιϊ στω γθγουτ³ ιξγ γφ » ηο δοχξ ± μιξε μδα γφ » ισ ιτ ιξ ςαξηεΏ γνπ χξδβτν βξε γουτ΄ » ξοπε δεγ γφ » πυτ ιτ βαγλ κσς σγςομμγουτ΄ πμα μδψ ψίσαφε » ςεστοςε στυζζ μδω ωίσαφε ςτσγουτµ δεγ γθ » βαγλυπ βπμ γουτ΄ » αμμ ισ χεμμ μδα £³Ή » νοφε το εξδ οζ μιξε στα γθ μδα γφ » αςε χε ατ τθε τοπ γνπ χξδτοπ βερ γουτ΄ » ωεπ δεγ γφ κνπ γουτ΄ » ολ¬ χε αςε δοξε» σγςομμ τθε σγςεεξ δοχξ ± μιξεσγςομμ μδψ χξδτοπ » ηετ ζιςστ μιξε το σγςομμσγςομμ² κσς σετβασε » ηετ τθε ζιςστ βασε μδα βασε στα βασε² » νοφε το σεγοξδ μδα βασε«± στα βασε²«± ιξψ κσς σετβασε » ηετ οτθες βασε μδω £³Ή » γοπω μιξεσγςομμ³ μδα ¨βασε©¬ω » νοφε γθαςαγτες στα ¨βασε²©¬ω δεω βπμ σγςομμ³ τψα ταω ιξω γπω χξδβτν » δοξεΏ βξε σγςομμ² » ξοπε» ίίίζαμμ τθςουηθ ιξτο γμεας μαστ μιξε ςουτιξείίίγμςμαστ μδψ χξδβτν δεψ μδα £Ά Ά » ζιμμ χιτθ σπαγεσγμςμιξε πθα κσς σετβασε » ποιξτ το μαστ μιξε πμα μδω £³Ήγμςμστ³ στα ¨βασε©¬ω » γμεας τθε μιξε δεω βπμ γμςμστ³ ςτσ» σγςομμ α γθαςαγτες αγςοσσ τθε βοττον μιξεβαξξες πθα  » σαφε εφεωτθιξη τψα πθα μδψ £°βαξξες² μδα ¤·δµ¬ψ » νοφε γθας στα ¤·δ΄¬ψ ιξψ γπψ £¤²΄ » δο αμμ τθε γθαςσ βξε βαξξες² πμα ταψ πμα πθα γνπ £ΆαΆ » μοχεςΏ βγγ βαξξες³ » ξοπε γνπ £ΆϊΆ«± » μοχεςΏ βγσ βαξξες³ » ξοπε σβγ £¤±ζ » ναλε υππεςβαξξες³ στα ¤·ζ· » σαφε ξεχ γθας πμα ςτσ» ηετ α γθαςαγτες ­­ ξοξ δεστςυγταβμεςδλεω πθα στω ωίσαφε » σαφε Ω μδω γθ μδα £¤δζ » υξδεςμιξε γνπ ¨βασε©¬ω » ισ ιτ ιξ υξδεςμιξε πθασεΏ βξε ςδλεω² » ξοπε¬ πυτ ιτ τθεςε μδα βμιξλ » πυτ ιξτο γθαςαγτες πθασεςδλεω² στα ¨βασε©¬ω μδω ωίσαφε » χεςε δοξε πμα ςτσ» ιξιτ ςδλεω ςουτιξεςδιξιτ πθα στψ ψίσαφε στω ωίσαφε μδψ γφ κσς σετβασε » σετυπ βασε μδω γθ » σεμεγτ σγςεεξ το χοςλ χιτθ μδα ¨βασε©¬ω στα βμιξλ » σαφε βμιξλ γθαςαγτες μδψ ψίσαφε μδω ωίσαφε πμα ςτσ» ζιξισθ υπ ςδλεω ςουτιξεςδεξδ πθα στω ωίσαφε » σαφε Α ¦ Ω μδω γθ μδα βμιξλ » πυτ βαγλ οςιη γθας στα ¨βασε©¬ω μδω ωίσαφε » ςεστοςε πμα ςτσ» σετ υπ χιξδοχ ζος τοπ οζ σγςεεξ δισπμαωχιξδοχ μδψ £° μδα £§­§ κσς γμςμιξε » ζιμμ μιξε ± μδψ £³ κσς γμςμιξε » ζιμμ μιξε ΄ δεψ μδα £§ § κσς γμςμιξε » ζιμμ μιξε ³ δεψ κσς γμςμιξε » ζιμμ μιξε ² μδα £΄ » σετ τοπ οζ χιξδοχ στα χξδτοπ ςτσ» ςεαδ α μιξε οζ δατα ζςον τθε σγςεεξςεαδ κσς σετβασε » σετυπ βασε μδα ¨βασε©¬ω » ηετ γθαςαγτες αξδ £¤·ζ γνπ £§ § βγσ ª«΄ » ναλε ιξτο ασγιι γθαςαγτες αδγ £§ΐ§ ςτσ» γθεγλ ζος μογαμ λεωιξλεωιξ± στα ¤γ°±° » ςεσετ λεωβοαςδ στςοβε μδα £¤¶° εος σθιζτ » τοηημε σθιζτ βωτε στα σθιζτλεωιξ μδα ¤γ°°° » γθεγλ λεωβοαςδ βπμ λεωιξ² » ξο δατα γνπ £εσγ«±²Έ » γθαξηε γασεΏ βερ λεωιξ± » ξοπε γνπ £ΆΐΆ » ισ ιτ αμπθαΏ βγγ λεωιξ² » ξοπε γνπ £ΆΐΆ » ισ ιτ α  βξε λεωιξ³ μδα £ΆΠΆ » ναλε ΐ ιξτο Πλεωιξ³ γνπ £ΆΫΆ » ισ ιτ α σπεγιαμ σωνβομΏ βγγ λεωιξ΄ » ξοπε γνπ £ΆαΆ » ισ ιτ μοχες γασεΏ βγσ λεωιξ΄ » ωεπ αξδ £¥±±±°±±±± » ναλε ιξτο Ν ος Ξλεωιξ΄ βιτ ¤γ°¶³ » γθεγλ σθιζτ­λεω νοδ βπμ λεωιξ² » δοξτ γθαξηε δατα¬ τθεω σθιζτεδ οςα σθιζτ » ποσσιβμε σθιζτλεωιξ² γνπ £° » ςεσετ αμμ ζμαησ ςτσσθιζτ δβ °» δο ψ­ω ποσιτιοξιξηψωποσ στψ γθ » σαφε μογατιοξ στω γφ τωα ταψ κνπ σετβασε » ςεσετ βασε» σθοχ τθατ γθατ θασ βεεξ σεμεγτεδσθγθατ ταψ μδα χξδτοπ » αςε χε ζυμμ σγςεεξΏ βερ σθγθατµ » ωεπ¬ δοξτ δισπμαω μδα γθ » σαφε μογατιοξ πθα μδα γφ πθα τψα βερ σθγθατ³ » γοφες ιτ υπ πθα μδω £° μδψ £±³ » ποσιτιοξ γυςσος κσς ψωποσ μδα £­± στα ιξφζμη » σετ ιξφεςσε νοδε πμα ταω μδψ νσηοζζ­±¬ωσθγθατ² μδα γθατνση¬ψ » πςιξτ γθατ νεσσαηε ιξψ πθα κσς γουτ πμα βπμ σθγθατ² μδα £° » σετ ξοςναμ νοδε στα ιξφζμη βερ σθγθατ΄ » ζιξισθ υπσθγθατ³ μδψ £° » ζιψ τοπ μιξε μδα £§­§ κσς γμςμιξεσθγθατ΄ πμα ταω πμα  » νοφε βαγλ ταψ κσς ψωποσσθγθατµ ςτσνσηοζζ δβ °¬±²γθατνση δγι §Ϋ ΠαηεΊ Οξ έ§ δγι §Ϋ ΕψεγΊ Οξ έ§» ταβμε οζ σγςεεξ αδδςεσσσγςξαδς δχ ¤΄°° » ζιςστ ±―³ δεγοδιξη δχ ¤΄Έ° δχ ¤µ°° δχ ¤µΈ° δχ ¤¶°° δχ ¤¶Έ° δχ ¤·°° δχ ¤·Έ° δχ ¤΄²Έ » σεγοξδ ±―³ δεγοδιξη δχ ¤΄αΈ δχ ¤µ²Έ δχ ¤µαΈ δχ ¤¶²Έ δχ ¤¶αΈ δχ ¤·²Έ δχ ¤·αΈ δχ ¤΄µ° » τθιςδ ±―³ δεγοδιξη δχ ¤΄δ° δχ ¤µµ° δχ ¤µδ° δχ ¤¶µ° δχ ¤¶δ° δχ ¤·µ° δχ ¤·δ° εξδ
+* ------------------------------
+* apple 40 col driver
+* ------------------------------
+ lst off
+
+ rel
+ dsk rel/apple40pl
+
+cr equ $0d
+lf equ $0a
+bs equ $08
+esc equ $1b
+
+wndlft equ $20
+wndwdth equ $21
+wndtop equ $22
+wndbtm equ $23
+ch equ $24
+cv equ $25
+blink equ $26
+oldcv equ $27
+base equ $28
+base2 equ $2a
+x_save equ $2c
+y_save equ $2d
+invflg equ $32
+
+vid40pl ent
+ org $0900
+
+ jmp init
+ jmp cls
+ jmp cout
+ jmp scroll
+ jmp banner
+ jmp clrlast
+ jmp rdinit
+ jmp rdkey
+ jmp rdend
+ jmp window
+ jmp read
+ jmp keyin
+ jmp xypos
+ jmp shchat
+
+; init 40 col video
+
+init lda $c30b
+ cmp #1
+ bne init_2
+
+ lda $c30c
+ cmp #$82
+ bne init_1
+
+ lda $c058
+ clc
+ bcc init_2
+
+init_1 cmp #$87
+ bne init_2
+
+ lda #0
+ sta $c0b2
+
+init_2 lda #0 ; reset screen
+ sta blink
+ sta shift
+ sta wndlft
+ sta wndtop
+ sta invflg
+ lda #40
+ sta wndwdth
+ sta oldcv ; make sure it is different!
+ lda #24
+ sta wndbtm
+
+; ___fall through to cls___
+
+cls ldx wndtop
+cls1 jsr setbase ; setup base address
+ ldy #39
+ lda #" "
+cls2 sta (base),y ; clear screen
+ dey
+ bpl cls2
+
+ inx
+ cpx wndbtm ; is there more?
+ bne cls1 ; yep
+
+; ___fall through to home routine___
+
+home lda #0 ; home cursor
+ sta ch
+ lda wndtop ; top of screen
+ sta cv
+ tax
+
+; ___fall through to setbase routine
+
+setbase cpx oldcv ; do we have the base already?
+ beq setbas2 ; yep
+
+ pha
+ txa
+ asl a ; x = x * 2
+ tax
+ lda scrnadr,x ; get and save address
+ sta base
+ lda scrnadr+1,x
+ sta base+1
+ txa
+ lsr a ; x = x / 2
+ tax
+ stx oldcv ; update old cv value
+ pla
+
+setbas2 rts
+
+; output a character
+cout stx x_save ; save everything
+ sty y_save
+ pha
+
+ and #$7f ; clear high
+ cmp #cr
+ beq cout2
+ cmp #lf
+ beq cout3
+ cmp #bs
+ beq cout5
+ cmp #' '
+ bcc cout4
+
+ ldx cv ; set base
+ jsr setbase
+
+ ldy ch ; get offset
+ ora #$80
+
+ bit invflg ; inverse?
+ bpl cout1 ; nope
+
+ cmp #"a" ; lower?
+ bcc cout0 ; nope
+
+ sbc #$20 ; make upper
+
+cout0 and #$3f ; inverse upper 
+
+cout1 sta (base),y ; save character
+
+ inc ch ; move over 1 space
+ ldy ch
+ cpy #40 ; wrap-around?
+ bne cout4 ; nope
+
+cout2 ldy #0 ; reset horiz
+ sty ch
+
+cout3 inc cv ; go down 1 line
+ lda cv ; is it in range?
+ cmp wndbtm
+ bne cout4 ; nope
+
+ dec cv ; put it back
+ jsr scroll
+cout4 pla
+ ldx x_save ; restore stuff
+ ldy y_save
+ rts
+
+cout5 dec ch ; backup
+ bpl cout4 ; all is well
+
+ lda #39 ; move to end of line
+ sta ch
+
+ lda cv ; are we at the top
+ cmp wndtop
+ beq cout4 ; yep
+
+ dec cv
+ jmp cout4 ; ok, we are done
+
+
+; scroll the screen down 1 line
+scroll ldx wndtop ; get first line to scroll
+
+scroll2 jsr setbase ; get the first base
+ lda base
+ sta base2 ; move to second
+ lda base+1
+ sta base2+1
+ inx
+ jsr setbase ; get other base
+
+ ldy #39 ; copy line
+scroll3 lda (base),y ; move character
+ sta (base2),y
+ dey
+ bpl scroll3
+
+ txa
+ tay
+ iny
+ cpy wndbtm ; done?
+ bne scroll2 ; nope
+
+; ___fall through into clear last line routine___
+
+clrlast ldx wndbtm
+ dex
+ lda #" " ; fill with spaces
+
+clrline pha
+ jsr setbase ; point to last line
+ pla
+
+ ldy #39
+clrlst3 sta (base),y ; clear the line
+ dey
+ bpl clrlst3
+ rts
+
+
+; scroll a character across the bottom line
+banner pha  ; save eveything
+ txa
+ pha
+
+ ldx #0
+banner2 lda $7d5,x ; move char
+ sta $7d4,x
+ inx
+ cpx #$24 ; do all the chars
+ bne banner2
+
+ pla
+ tax
+ pla
+ pha
+ cmp #"a" ; lower?
+ bcc banner3 ; nope
+
+ cmp #"z"+1 ; lower?
+ bcs banner3 ; nope
+
+ sbc #$1f ; make upper
+
+banner3 sta $7f7 ; save new char
+ pla
+ rts
+
+
+; get a character -- non destructable
+rdkey pha
+ sty y_save ; save Y
+ ldy ch
+ lda #$df ; underline
+ cmp (base),y ; is it in underline phase?
+ bne rdkey2 ; nope, put it there
+
+ lda blink ; put into character phase
+rdkey2 sta (base),y
+ ldy y_save ; were done
+ pla
+ rts
+
+; init rdkey routine
+rdinit pha
+ stx x_save
+ sty y_save
+ ldx cv
+ jsr setbase ; setup base
+
+ ldy ch ; select screen to work with
+ lda (base),y
+ sta blink ; save blink character
+ ldx x_save
+ ldy y_save
+ pla
+ rts
+
+; finish up rdkey routine
+rdend pha
+ sty y_save ; save A & Y
+ ldy ch
+ lda blink ; put back orig char
+ sta (base),y
+ ldy y_save ; restore
+ pla
+ rts
+
+
+; set up window for top of screen display
+window ldx #0
+ lda #'-'
+ jsr clrline ; fill line 1
+ ldx #3
+ jsr clrline ; fill line 4
+ dex
+ lda #' '
+ jsr clrline ; fill line 3
+ dex
+ jsr clrline ; fill line 2
+ lda #4 ; set top of window
+ sta wndtop
+ rts
+
+
+; read a line of data from the screen
+read jsr setbase ; setup base
+ lda (base),y ; get character
+ and #$7f
+ cmp #' '
+ bcs *+4 ; make into ascii character
+ adc #'@'
+ rts
+
+
+; check for local keyin
+keyin1 sta $c010 ; reset keyboard strobe
+
+ lda #$60
+ eor shift ; toggle shift byte
+ sta shift
+
+keyin lda $c000 ; check keyboard
+ bpl keyin2 ; no data
+
+ cmp #esc+128 ; change case?
+ beq keyin1 ; nope
+
+ cmp #"@" ; is it alpha?
+ bcc keyin2 ; nope
+
+ cmp #"@" ; is it a 
+ bne keyin3
+
+ lda #"P" ; make @ into P
+
+keyin3 cmp #"[" ; is it a special symbol?
+ bcc keyin4 ; nope
+
+ cmp #"a" ; is it lower case?
+ bcs keyin4 ; yep
+
+ and #%11101111 ; make into M or N
+
+keyin4 bit $c063 ; check shift-key mod
+ bpl keyin2 ; dont change data, they shifted
+
+ ora shift ; possible shift
+
+keyin2 cmp #0 ; reset all flags
+ rts
+
+shift db 0
+
+
+; do x-y positioning
+xypos stx ch ; save location
+ sty cv
+ tya
+ tax
+ jmp setbase ; reset base
+
+
+; show that chat has been selected
+shchat tax
+ lda wndtop ; are we full screen?
+ beq shchat5 ; yep, dont display
+
+ lda ch ; save location
+ pha
+ lda cv
+ pha
+ txa
+ beq shchat3 ; cover it up
+
+ pha
+ ldy #0
+ ldx #13 ; position cursor
+ jsr xypos
+ lda #-1
+ sta invflg ; set inverse mode
+ pla
+
+ tay
+ ldx msgoff-1,y
+shchat2 lda chatmsg,x ; print chat message
+ inx
+ pha
+ jsr cout
+ pla
+ bpl shchat2
+
+ lda #0 ; set normal mode
+ sta invflg
+ beq shchat4 ; finish up
+
+shchat3 ldx #0 ; fix top line
+ lda #'-'
+ jsr clrline
+
+shchat4 pla
+ tay
+ pla  ; move back
+ tax
+ jsr xypos
+shchat5 rts
+
+msgoff db 0,12
+
+chatmsg dci '[ Page: On ]'
+ dci '[ Exec: On ]'
+
+
+; table of screen address
+scrnadr dw $400 ; first 1/3 decoding
+ dw $480
+ dw $500
+ dw $580
+ dw $600
+ dw $680
+ dw $700
+ dw $780
+
+ dw $428 ; second 1/3 decoding
+ dw $4a8
+ dw $528
+ dw $5a8
+ dw $628
+ dw $6a8
+ dw $728
+ dw $7a8
+
+ dw $450 ; third 1/3 decoding
+ dw $4d0
+ dw $550
+ dw $5d0
+ dw $650
+ dw $6d0
+ dw $750
+ dw $7d0
+
+ end

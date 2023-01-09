@@ -1,1 +1,869 @@
-ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª                              ªª   ΑΓΟΣ Μοαδες Φεςσιοξ ²®°    ªª                              ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ ±²―²±―Έ¶ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ τωπ ¤ζζ δσλ αγοσ®σωστεν οςη ¤²°°°γς ερυ ¤°δμζ ερυ ¤°ανμι ερυ ¤βζ°°θονε ερυ ¤ζγµΈγουτ ερυ ¤ζδζ°φταβ ερυ ¤ζγ²²ιξπμξ ερυ ¤ζδ¶ζςδλεω ερυ ¤ζδ³µμξβυζ ερυ ¤°²°°ζμξανε ερυ ¤°³°°αγοσοβκ ερυ ¤°Έ°°δςιφεα ερυ ¤°Έ±µδιςιξζο ερυ ¤µγ°°διςβυζ ερυ ¤µε°°πςεζιψ ερυ ¤¶°°°ζμβυζ ερυ ¤¶±°°ζμβυζ± ερυ ¤¶µ°°ςυξαδς ερυ ¤¶Ή°°τενπ ερυ ¤°°τενπ² ερυ ¤°²ξυνζμσ ερυ ¤°΄βμλγξτ ερυ ¤°¶πςξ ερυ ¤°Έ» ςεμογατε γοδε υπ το ¤Έ°° μδα τενπ » σαφε σταςτυπ βωτεσ πθα μδα τενπ«± πθα μδα £Όοβκγοδε » το οβκ γοδε στα τενπ μδα £Ύοβκγοδε στα τενπ«± μδα £Όςυξαδς » ποιξτ το δεστ αδδςεσσ στα τενπ² μδα £Ύςυξαδς στα τενπ²«± μδψ £¤±° » νοφε ¤±° παηεσ μδω £°δονοφε μδα ¨τενπ©¬ω » νοφε α βωτε στα ¨τενπ²©¬ω ιξω βξε δονοφε ιξγ τενπ«± » ηο το τθε ξεψτ παηε ιξγ τενπ²«± δεψ βξε δονοφε πμα στα σταςτυπ«± » σαφε σταςτυπ βωτεσ πμα στα σταςτυπ κνπ ςυξαδς » εψεγυτε γοδε δσ ά » ζιμμ σπαγεοβκγοδε οςη ςυξαδς» σετ το ξοςναμ ΄° γομ τεψτ νοδειξιτ μδα ¤γ³°β γνπ £± βξε ιξιτί² μδα ¤γ³°γ γνπ £¤Έ² βξε ιξιτί± μδα ¤γ°µΈ γμγ βγγ ιξιτί²ιξιτί± γνπ £¤Έ· βξε ιξιτί² μδα £° στα ¤γ°β²ιξιτί² μδα £° » ςεσετ σγςεεξ στα ¤²° στα ¤²² μδα £΄° στα ¤²± μδα £²΄ στα ¤²³ κσς θονε » γμεας σγςεεξ κσς πς » σθοχ ναιξ σγςεεξ ασγ §££££££££££££££££££££££££££££££££££££££££§ » ± ασγ §£ ΑΓΟΣ ΜΟΑΔΕÒ Φ²®±± £    ΑΓΟΣ ΖΙΜΕΣ    £§ » ² ασγ §£ ΓΟΠΩÒΙΗΘΤ ±ΉΈ¶­Ή° ££££££££££££££££££££§ » ³ ασγ §£  Μ¦Μ ΠÒΟΔΥΓΤΙΟΞΣ  £                  £§ » ΄ ασγ §£££££££££££££££££££££                  £§ » µ ασγ §£    ΖΙΜΕΞΑΝΕΣ      £                  £§ » ¶ ασγ §£££££££££££££££££££££                  £§ » · ασγ §£                   £                  £§ » Έ ασγ §£                   ££££££££££££££££££££§ » Ή ασγ §£                   £  ΔΕΜΕΤΕΔ ΖΙΜΕΣ   £§ » ±° ασγ §£                   ££££££££££££££££££££§ » ±± ασγ §£                   £                  £§ » ±² ασγ §£                   £                  £§ » ±³ ασγ §£                   £                  £§ » ±΄ ασγ §£                   £                  £§ » ±µ ασγ §£                   ££££££££££££££££££££§ » ±¶ ασγ §£                   £ ΣΤΑÒΤΥΠ ΣΕΗΝΕΞΤ  £§ » ±· ασγ §£                   ££££££££££££££££££££§ » ±Έ ασγ §£                   £                  £§ » ±Ή ασγ §££££££££££££££££££££££££££££££££££££££££§ » ²° ασγ §£ ΣΤΑΤΥΣΊ                              £§ » ²± ασγ §£   ΜΟΑΔΙΞΗ ΑΓΟΣ®ΟΒΚ                   £§ » ²² ασγ §££££££££££££££££££££££££££££££££££££££££§¬°° » ²³ κσς νμι δβ ¤γ· » ηετ πςεζιψ δχ πίπζψ μδα πςεζιψ βξε ηοτδεζ » χε θαφε α δεζαυμτ μδα ¤βζ³° » σαφε γυςςεξτμω υσεδ δισλ στα πίοξμξ«± κσς νμι δβ ¤γµ » ηετ τθε οξμιξε φομυνε δχ πίοξμξ μδα πςεζιψ«± » ηετ ςιδ οζ δςιφε σπεγιζιες αξδ £¤°ζ ταψ ιξψ  » αδδ ± ζος §―§ στψ πςεζιψ μδα £§―§ » πυτ ιξ μεαδιξη σμασθ στα πςεζιψ«± κσς νμι δβ ¤γ¶ » σετ τθε πςεζιψ δχ πίπζψηοτδεζ μδψ ¤²Έ° » ηετ μεξητθ οζ πατθηοτδεζ² δεψ βερ μοαδη » χε θαφε τθε πατθ σετ μδα ¤²Έ°¬ψ γνπ £§―§ » ζιξδ πατθΏ βξε ηοτδεζ² » ξοπε στψ ¤²Έ° » σετ ξεχ μεξητθ κσς νμι δβ ¤γ¶ » σετ πςεζιψ δχ πίπζψ²μοαδη μδα £° στα ¤βζΉ΄ κσς νμι » γμοσε ΑΜΜ οπεξ ζιμεσ δβ ¤γγ δχ ςίγμοσε κσς νμι δβ ¤γΈ » οπεξ α ζιμε δχ ςίοπεξ μδα ςίοπεξ«µ » νοφε ςεζξυν στα ςίςεαδ«± κσς νμι δβ ¤γα » ςεαδ ιξ αγοσ®οβκ δχ ςίςεαδ κσς νμι δβ ¤γγ » γμοσε ζιμε δχ ςίγμοσε» γθεγλ ζος τυςξλεω ςυξ μδα σταςτυπ » ισ ζιςστ ι―δ βωτε ολΏ γνπ £± βξε σξανε » ξοπε μδα σταςτυπ«± στα σταςτυπ » ναλε συςε τθεω δοξτ νατγθ αηαιξ γνπ £² βερ σξανε΄» ηετ ξανε οζ σταςτιξη σεηνεξτσξανε μδα αγοσοβκ«² » ποιξτ το ζιμεξανε στα τενπ μδα αγοσοβκ«³ στα τενπ«± κσς πςστατ ασγ §ΣΟΥÒΓΕ ΝΟΔΥΜΕ Ϋ§¬°° μδω £° μδα ¨τενπ©¬ω ταψσξανε² ιξω μδα ¨τενπ©¬ω » πςιξτ ζιμεξανε οςα £¤Έ° κσς γουτ δεψ βξε σξανε² κσς πς » ζιξισθ οζζ στςιξη ασγ §έΊ §¬°° κσς ιξπμξ γπψ £° » γςΏ βερ σξανε΄ » ωεπ γπψ £±΄ » ±΄ ος οφεςΏ βγσ σξανε » ωεπ τψα ταωσξανε³ μδα μξβυζ­±¬ω » γοπω ζιμεξανε στα ¨τενπ©¬ω δεω βξε σξανε³ τψα  » σαφε μεξητθ στα ¨τενπ©¬ω κνπ σξανε » ηο βαγλσξανε΄ μδψ αγοσοβκ«² μδα αγοσοβκ«³ » δισπμαω ιξ χιξδοχ ³ μδω £³ κσς πςχιξδ μδα £Όδςιφεα » ποιξτ το πατθξανε στα πίηιξζο«± μδα £Ύδςιφεα στα πίηιξζο«²γθλπςη κσς νμι δβ ¤γ΄ » ηετ ζιμε ιξζο δχ πίηιξζο βερ δογθεγλ κσς πςστατ ασγ §ΙΞΣΕÒΤ ΣΩΣΤΕΝ ΔΙΣΛ ΙΞΤΟ ΟΤΘΕÒ ΔÒΙΦΕ§¬°δ¬°° κσς ηετγς κνπ γθλπςη» ηετ α διςεγτοςω αξδ μοολ ζος Ά®σΆ ζιμεσ®» ιζ αξω εψιστ¬ γθεγλ το σεε ιζ τθεω θαφε » βεεξ γθαξηεδ® Ιζ σο¬ λιμμ τθε Ά®γΆ ζιμε®δογθεγλ κσς πςστατ ασγ §ΣΤΑΤΥΣΊ§¬°δ ασγ §  ΓΘΕΓΛΙΞΗ ΖΙΜΕΣ®®®§¬°°μοηπςη κσς νμι δβ ¤γ· » ηετ τθε γυςςεξτ πςεζιψ δχ πίπζψ μδω δςιφεαμοηπςη± μδα δςιφεα¬ω » αςε τθεσε ² πατθσ τθε σανεΏ εος πςεζιψ¬ω αξδ £¥±±°±±±±± βξε μοηπςη² » ξοπε δεω βξε μοηπςη± » λεεπ γθεγλιξημοηπςη² κσς νμι » οπεξ τθε γυςςεξτ πςεζιψ δβ ¤γΈ δχ πίοπεξ μδα πίοπεξ«µ » ηετ ςεζξυν στα πίςδιξζ«± στα πίςδδις«± στα πίποσ«± κσς νμι » ςεαδ δις ιξζο δβ ¤γα δχ πίςδιξζ κσς νμι » σετ το βωτε ° δβ ¤γε δχ πίποσ μδψ £° στψ ξυνζμσ » ° ζιμεσ πςογεσσεδ στψ ξυνζμσ«± δεψ στψ βμλγξτ » σταςτ ατ ζιμε ± ιξ βμογλςδμοοπ μδα £Όδιςβυζ«΄ » ποιξτ το βυζ στα τενπ μδα £Ύδιςβυζ«΄ στα τενπ«± κσς νμι » ςεαδ βμογλ δβ ¤γα δχ πίςδδις βξε ςδμοοπ± » οππσ¬ εςςος μδα βμλγξτ » ζιςστ πασσΏ βπμ ςδμοοπ² » ξοπε ιξγ βμλγξτ » σετ το ° κνπ ςδμοοπµ » ηο το ξεψτ εξτςωςδμοοπ² μδα ξυνζμσ » χε δοξεΏ γνπ διςιξζο«¤²µ βξε ςδμοοπ³ » ξοπε μδα ξυνζμσ«± » γθεγλ θιηθ γνπ διςιξζο«¤²¶ βξε ςδμοοπ³ » χεςε δοξεςδμοοπ± κνπ ζιξισθςδμοοπ³ μδω £° μδα ¨τενπ©¬ω » ηετ μεξητθ αξδ τωπε αξδ £¤°ζ στα ¨τενπ©¬ω » ηετ ςιδ οζ εψτςα στυζζ στα τενπ² βξε ςδμπ³α κνπ ςδμοοπµςδμπ³α ιξγ ξυνζμσ » ιξγ ζιμε γουξτ βξε ςδμοοπ΄ ιξγ ξυνζμσ«±ςδμοοπ΄ μδψ τενπ μδα τενπ«± » δισπμαω ζιμεξανε ιξ χιξδοχ ° μδω £° κσς πςχιξδ μδω δςιφεα » ηετ μεξητθ οζ πατθ τωα ταψ  » σαφε μεξητθνφπατθ μδα δςιφεα¬ω στα ζμξανε¬ω » νοφε πατθξανε δεω βπμ νφπατθ μδα £§―§ » αδδ ιξ σμασθ ιξψ στα ζμξανε¬ψ μδω £°νφπατθ² ιξψ ιξω μδα ¨τενπ©¬ω » ηετ ξανε οζ ζιμε στα ζμξανε¬ψ γπω τενπ² βξε νφπατθ² μδα £§Γ§ » ναλε ιξτο §®γ§ στα ζμξανε¬ψ στψ ζμξανε » υπδατε μεξητθ μδα τενπ² » ηετ μεξητθ γνπ £³ » ισ ιτ α ποσσιβμε §®σ§ ζιμεΏ βγγ ςδμοοπµ » ξοπε ταω μδα ¨τενπ©¬ω » γθεγλ ζος §σ§ ιξ §®σ§ γνπ £§Σ§ βξε ςδμοοπµ δεω μδα ¨τενπ©¬ω » γθεγλ ζος §®§ ιξ §®σ§ γνπ £§®§ βξε ςδμοοπµςδμοοπ΄γ μδψ τενπ μδα τενπ«± μδω £± » δισπμαω ®σ σουςγε ζιμε κσς πςχιξδ μδω £¤±ζ » οζζσετ ζος αυψ τωπε ιξ δις στςυγτ μδα ¨τενπ©¬ω βξε ςδμοπ΄α μδα τενπ » ποιξτ ατ ζιμεξανε στα πίηιξζο«± στα πίοπεξ²«± μδα τενπ«± στα πίηιξζο«² στα πίοπεξ²«² μδα £± στα πίηιξζο«µ » σετ βιτ ιξ νοδ®τινε μδα £· » σετυπ ζος σετ®ζιμε®ιξζο στα πίηιξζο κσς νμι » σετ ιξζο δβ ¤γ³ δχ πίηιξζο μδω £° μδα ¨τενπ©¬ω » γθαξηε ζιμε ιξτο ®Γ ταω μδα £§Γ§ στα ¨τενπ©¬ω μδψ τενπ μδα τενπ«± μδω £² » δισπμαω ιξ χιξδοχ ² κσς πςχιξδ μδω £° μδα ¨τενπ©¬ω ταω  » γθαξηε ζιμε βαγλ το ®Σ μδα £§Σ§ στα ¨τενπ©¬ω κσς νμι » δεμετε §®γ§ ζιμε δβ ¤γ± δχ πίδεμςδμοπ΄α κσς ζμγοπω » γοπω οφες τθε ζιμεςδμοοπµ γμγ μδα τενπ » ηο το ξεψτ εξτςω αδγ διςιξζο«¤²³ στα τενπ μδα τενπ«± αδγ £° στα τενπ«± ιξγ βμλγξτ » ιξγ πμαγε χιτθιξ βμογλ μδα βμλγξτ γνπ διςιξζο«¤²΄ βερ ςδμοοπ¶ » ηο το ξεψτ βμογλ κνπ ςδμοοπ² » δο ξεψτ εξτςω χιτθιξ τθισ βμογλςδμοοπ¶ μδα £° » ςεσετ γουξτ στα βμλγξτ κνπ ςδμοοπ » δο αξοτθες βμογλζιξισθ μδα £° στα πίγμοσε«± κσς νμι » γμοσε ζιμε δβ ¤γγ δχ πίγμοσε μδα ¤γ°°° » διδ τθεω χαξτ το παυσεΏ γνπ £¤α° βερ χαιτ²γ » ωεπ¬ χαιτ το σεε κνπ εψεαγοσχαιτ²γ μδα £± στα ¤²° στα ¤²² μδα £³Έ στα ¤²± μδα £²² στα ¤²³ κσς θονε » γμεας σγςεεξ κσς πς δβ γς ασγ § ΝΑΛΕ ΣΥÒΕ ΤΘΕΣΕ ΔΙΣΛΣ ΑÒΕ ΙΞ ΠΜΑΓΕΊ§¬°δ¬°° μδω £° » νοφε ΑΊ μδψ £Όμξβυζ μδα £Ύμξβυζ κσς νοφπατθ » νοφε πατθξανε μδω £± » νοφε ΒΊ μδψ £Όμξβυζ«±²Έ μδα £Ύμξβυζ«±²Έ κσς νοφπατθ » νοφε πατθξανε μδω μξβυζ » ηετ πατθξανε μεξητθ ιξωσθοχ² δεω  » γουξτ δοχξ βνι σθοχ³ » τθεω νατγθ μδα μξβυζ¬ω γνπ μξβυζ«±²Έ¬ω » αςε τθεω τθε σανεΏ βερ σθοχ² » ωεπ κσς πς δβ γς ασγ § ΒΟΟΤ ΔΙΣΛ     ­­ §¬°° μδω μξβυζ μδψ £Όμξβυζ«± μδα £Ύμξβυζ«± κσς πςστς » σθοχ πατθξανεσθοχ³ κσς πς δβ γς ασγ § ΣΩΣΤΕΝ ΔΙΣΛ   ­­ §¬°° μδω μξβυζ«±²Έ μδψ £Όμξβυζ«±²Ή μδα £Ύμξβυζ«±²Ή κσς πςστς » σθοχ πατθξανε μδω £µ μδψ £Όμξβυζ » νοφε πατθξανε μδα £Ύμξβυζ κσς νοφπατθ κσς πς δβ γς ασγ § ΒΥΜΜΕΤΙΞ ΔΙΣΛ ­­ §¬°° μδω μξβυζ μδψ £Όμξβυζ«± μδα £Ύμξβυζ«± κσς πςστς » σθοχ πατθξανε μδω £¶ μδψ £Όμξβυζ«±²Έ μδα £Ύμξβυζ«±²Έ » νοφε πατθξανε κσς νοφπατθ μδω μξβυζ » ηετ μεξητθ οζ πατθ ιξωσθοχ΄ δεω βνι σθοχµ » τθε πατθ§σ νατγθ μδα μξβυζ¬ω » αςε τθεω τθε σανεΏ γνπ μξβυζ«±²Έ¬ω βερ σθοχ΄ » ωεπ κσς πς δβ γς ασγ § ΝΑΙΜ ΔΙΣΛ     ­­ §¬°° μδω μξβυζ«±²Έ μδψ £Όμξβυζ«±²Ή μδα £Ύμξβυζ«±²Ή κσς πςστςσθοχµ κσς πς δβ γς¬γς ασγ § ΟΞΓΕ ΤΘΕΣΕ ΔΙΣΛΣ ΑÒΕ ΙΞ ΠΜΑΓΕ§¬°δ¬°δ ασγ § §¬°° κσς ηετγςεψεαγοσ μδα £° στα ¤βζΉ΄ » σετ μεφεμ το ° κσς νμι δβ ¤γγ » γμοσε αμμ οπεξ ζιμεσ δχ ςίγμοσε » σπεγιζιγαμμω ΕΨΕΓ ζιμεσ μδα αγοσοβκ«¶ στα τενπ μδα αγοσοβκ«· στα τενπ«± κνπ ¨τενπ© » σταςτ αγοσ ςυξξιξη» συβ­ςουτιξεσ» πςιξτ α μιξε οζ στατυσπςστατ μδα £² στα ¤²° μδα £³¶ στα ¤²± μδα £²° » σετ χιξδοχ στα ¤²² μδα £²² στα ¤²³ κσς θονε » γμεας χιξδοχπς πμα  » ποιξτ το στςιξη στα πςξ πμα στα πςξ«±πς² ιξγ πςξ » ηετ ξεψτ βωτε βξε πς³ ιξγ πςξ«±πς³ μδω £° » ηετ βωτε μδα ¨πςξ©¬ω οςα £¤Έ° γνπ £Ά£Ά » ιξφεςσε βμογλΏ βξε πς³α » ξοπε μδα £¤²°πς³α κσς γουτ » πςιξτ ασμ α βξε πς² » λεεπ ηοιξη ιξγ πςξ » ναλε ιξτο γοςςεγτ αδδςεσσ βξε πς΄ ιξγ πςξ«±πς΄ κνπ ¨πςξ© » ςετυςξ» ηετ α ςετυςξηετγς κσς πς ασγ §ΠÒΕΣΣ ΫÒΕΤΥÒΞέ ΤΟ ΓΟΞΤΙΞΥΕ®®®§¬°°ηετγς² κσς ¤ζδ³µ γνπ £¤Έδ βξε ηετγς² ςτσ» πςιξτ α ζιμεξανε χιτθιξ α χιξδοχπςχιξδ στψ πςξ » ποιξτ το ζιμεξανε στα πςξ«± μδα χξδμζτ¬ω » δεζιξε τεψτ χιξδοχ στα ¤²° στα ¤²΄ μδα χξδςητ¬ω στα ¤²± μδα χξδτοπ¬ω στα ¤²² μδα χξδβτν¬ω στα ¤²³ σεγ  » ναλε ιξτο φταβ σβγ £± στα ¤²µ κσς ¤ζγ²² » φταβ δοχξ μδα £¤Έδ κσς ¤ζδζ° » σγςομμ δοχξ μδω £° μδα ¨πςξ©¬ω » ηετ ζιμεξανε μεξητθ ταψπςχιξδ² ιξω μδα ¨πςξ©¬ω » πςιξτ ξανε οςα £¤Έ° κσς ¤ζδζ° δεψ βξε πςχιξδ² ςτσχξδμζτ δβ °²¬²²¬²²¬²²χξδςητ δβ ±¶¬±¶¬±¶¬±¶χξδτοπ δβ °·¬°³¬±±¬±Έχξδβτν δβ ±Ή¬°Έ¬±µ¬±Ή» πςιξτ α στςιξη ποιξτεδ το βω Ψ ¦ Α¬ μεξητθ Ωπςστς στψ πςξ στα πςξ«± » ποιξτ ατ στςιξη τωα ταψ  » σαφε μεξητθ μδω £°πςστς² μδα ¨πςξ©¬ω » ηετ δατα οςα £¤Έ° κσς ¤ζδζ° ιξω δεψ βξε πςστς² » δο εξτιςε στςιξη ςτσ» νοφε α πατθξανε ιξτο α βυζζεςνοφπατθ στψ τενπ » ποιξτ το βυζζες στα τενπ«± μδψ £°νοφε² δεω  » γουξτ δοχξ βνι νοφε³ » αμμ ζιξισθεδ τψα σεγ αδγ δςιφεα¬ψ » αδδ ιξ ξεψτ οζζσετ ταψ κνπ νοφε²νοφε³ μδα δςιφεα¬ψ » ηετ πατθ μεξητθ στα τενπ² » σαφε ασ γουξτες μδω £°νοφε΄ μδα δςιφεα¬ψ στα ¨τενπ©¬ω » σαφε ιξ βυζζες ιξψ ιξω δεγ τενπ² » γουξτ δοχξ μεξητθ βπμ νοφε΄ ςτσ» γοπω οφες α σουςγε ζιμεζμγοπω κσς νμι δβ ¤γΈ » δοεσ §®γ§ ζιμε εψιστΏ δχ πίοπεξ± βξε ζμγοπω± » ξοπε¬ γοπω σουςγε μδα πίοπεξ±«µ στα πίγμοσε«± κσς νμι » γμοσε γονπιμεδ ζιμε δβ ¤γγ δχ πίγμοσεζμγοπω² ςτσ  » αμμ ισ χεμμζμγοπω± μδψ ζμξανε » γθαξηε §®γ§ βαγλ το §®σ§ μδα £§Σ§ στα ζμξανε¬ψ κσς νμι δβ ¤γ° » γςεατε ξεχ ζιμε δχ πίγςεατ βξε ζμγοπω² » ζιμε νυστ αμςεαδω εψιστ κσς νμι δβ ¤γΈ » οπεξ ομδ ζιμε δχ πίοπεξ² μδα πίοπεξ²«µ » σαφε ςεζξυν στα πίςεαδ«± στα πίγμοσε«± κσς νμι δβ ¤γα » ςεαδ ιξ ζιμε δχ πίςεαδ κσς νμι δβ ¤γγ » γμοσε σουςγε ζιμε δχ πίγμοσε κσς νμι δβ ¤γΈ » οπεξ ξεχ ζιμε δχ πίοπεξ± μδα πίοπεξ±«µ » σετυπ χςιτε ςουτιξε στα πίχςιτε«± στα πίγμοσε«± μδα πίςεαδ«¶ » σετυπ χςιτε μεξητθ στα πίχςιτε«΄ μδα πίςεαδ«· στα πίχςιτε«µ κσς νμι δβ ¤γβ » χςιτε ουτ σεηνεξτ δχ πίχςιτε κσς νμι » γμοσε ζιμε ² δβ ¤γγ δχ πίγμοσε ςτσ  » χε αςε δοξε» πςοδοσ παςνμιστσταςτυπ δχ °πίγςεατ δβ · δχ ζμξανε δβ ¤γ³ δβ ¤°΄ δχ ° δβ ± δχ ° δχ °πίοπεξ δβ ³ δχ πςεζιψ δχ ζμβυζ δβ °πίοπεξ± δβ ³ δχ ζμξανε δχ ζμβυζ± δβ °πίοπεξ² δβ ³ δχ ° δχ ζμβυζ± δβ °πίςδιξζ δβ ΄ δβ ° δχ διςιξζο δχ ¤°±°° δχ °πίςδδις δβ ΄ δβ ° δχ διςβυζ δχ ¤°²°° δχ °πίςεαδ δβ ΄ δβ ° δχ γοπωβυζ δχ γοπωμεξ δχ ¤°°°°πίχςιτε δβ ΄ δβ ° δχ γοπωβυζ δχ γοπωμεξ δχ ¤°°°°πίγμοσε δβ ± δβ °πίηιξζο δβ ¤°α δχ ° δβ ° δβ ° δχ ° δβ ° δχ ° δχ ° δχ ° δχ ° δχ °πίδεμ δβ ± δχ ζμξανεπίποσ δβ ² δβ ° δβ ¤°°¬¤°°¬¤°°πίπζψ δβ ± δχ πςεζιψπίπζψ² δβ ± δχ ¤²Έ°πίοξμξ δβ ² δβ ° δχ πςεζιψ«±» δατα ζος ςεμογατεδ γοδεςίοπεξ δβ ³ δχ ςίζιμε δχ ζμβυζ± » υσε μαστ ποσσιβμε βυζζες δβ °ςίςεαδ δβ ΄ δβ ° δχ αγοσοβκ δχ ¤¶°°° δχ ¤°°°°ςίγμοσε δβ ± δβ °ςίζιμε δβ Έ ασγ §αγοσ®οβκ§γοπωβυζ ερυ ªγοπωμεξ ερυ νμι­γοπωβυζ εξδ
+********************************
+*                              *
+*   ACOS Loader Version 2.0    *
+*                              *
+********************************
+
+*-------------------------------
+* Date: 12/21/86
+*-------------------------------
+ typ $ff
+ dsk acos.system
+
+ org $2000
+
+cr equ $0d
+lf equ $0a
+
+mli equ $bf00
+home equ $fc58
+cout equ $fdf0
+vtab equ $fc22
+inpln equ $fd6f
+rdkey equ $fd35
+
+lnbuf equ $0200
+flname equ $0300
+acosobj equ $0800
+drivea equ $0815
+
+dirinfo equ $5c00
+dirbuf equ $5e00
+prefix equ $6000
+flbuf equ $6100
+flbuf1 equ $6500
+
+runadr equ $6900
+
+temp equ $00
+temp2 equ $02
+numfls equ $04
+blkcnt equ $06
+prn equ $08
+
+; relocate code up to $800
+
+ lda temp ; save startup bytes
+ pha
+ lda temp+1
+ pha
+
+ lda #<objcode ; to obj code
+ sta temp
+ lda #>objcode
+ sta temp+1
+
+ lda #<runadr ; point to dest address
+ sta temp2
+ lda #>runadr
+ sta temp2+1
+
+ ldx #$10 ; move $10 pages
+ ldy #0
+domove lda (temp),y ; move a byte
+ sta (temp2),y
+ iny
+ bne domove
+
+ inc temp+1 ; go to the next page
+ inc temp2+1
+ dex
+ bne domove
+
+ pla
+ sta startup+1 ; save startup bytes
+ pla
+ sta startup
+ jmp runadr ; execute code
+
+ ds \ ; fill space
+
+objcode org runadr
+
+; set to normal 40 col text mode
+init lda $c30b
+ cmp #1
+ bne init_2
+
+ lda $c30c
+ cmp #$82
+ bne init_1
+
+ lda $c058
+ clc
+ bcc init_2
+
+init_1 cmp #$87
+ bne init_2
+
+ lda #0
+ sta $c0b2
+
+init_2 lda #0 ; reset screen
+ sta $20
+ sta $22
+ lda #40
+ sta $21
+ lda #24
+ sta $23
+
+ jsr home ; clear screen
+ jsr pr ; show main screen
+ asc '########################################' ; 1
+ asc '# ACOS LOADER V2.11 #    ACOS FILES    #' ; 2
+ asc '# COPYRIGHT 1986-90 ####################' ; 3
+ asc '#  L&L PRODUCTIONS  #                  #' ; 4
+ asc '#####################                  #' ; 5
+ asc '#    FILENAMES      #                  #' ; 6
+ asc '#####################                  #' ; 7
+ asc '#                   #                  #' ; 8
+ asc '#                   ####################' ; 9
+ asc '#                   #  DELETED FILES   #' ; 10
+ asc '#                   ####################' ; 11
+ asc '#                   #                  #' ; 12
+ asc '#                   #                  #' ; 13
+ asc '#                   #                  #' ; 14
+ asc '#                   #                  #' ; 15
+ asc '#                   ####################' ; 16
+ asc '#                   # STARTUP SEGMENT  #' ; 17
+ asc '#                   ####################' ; 18
+ asc '#                   #                  #' ; 19
+ asc '########################################' ; 20
+ asc '# STATUS:                              #' ; 21
+ asc '#   LOADING ACOS.OBJ                   #' ; 22
+ asc '########################################',00 ; 23
+
+ jsr mli
+ db $c7 ; get prefix
+ dw p_pfx
+
+ lda prefix
+ bne gotdef ; we have a default
+
+ lda $bf30 ; save currently used disk
+ sta p_onln+1
+
+ jsr mli
+ db $c5 ; get the online volume
+ dw p_onln
+
+ lda prefix+1 ; get rid of drive specifier
+ and #$0f
+ tax
+ inx  ; add 1 for '/'
+ stx prefix
+
+ lda #'/' ; put in leading slash
+ sta prefix+1
+
+ jsr mli
+ db $c6 ; set the prefix
+ dw p_pfx
+
+gotdef ldx $280 ; get length of path
+gotdef2 dex
+ beq loadg ; we have the path set
+
+ lda $280,x
+ cmp #'/' ; find path?
+ bne gotdef2 ; nope
+
+ stx $280 ; set new length
+
+ jsr mli
+ db $c6 ; set prefix
+ dw p_pfx2
+
+loadg lda #0
+ sta $bf94
+ jsr mli ; close ALL open files
+ db $cc
+ dw r_close
+
+ jsr mli
+ db $c8 ; open a file
+ dw r_open
+
+ lda r_open+5 ; move refnum
+ sta r_read+1
+
+ jsr mli
+ db $ca ; read in acos.obj
+ dw r_read
+
+ jsr mli
+ db $cc ; close file
+ dw r_close
+
+; check for turnkey run
+ lda startup ; is first i/d byte ok?
+ cmp #1
+ bne sname ; nope
+
+ lda startup+1
+ sta startup ; make sure they dont match again
+ cmp #2
+ beq sname4
+
+; get name of starting segment
+sname lda acosobj+2 ; point to filename
+ sta temp
+ lda acosobj+3
+ sta temp+1
+
+ jsr prstat
+ asc 'SOURCE MODULE [',00
+ ldy #0
+ lda (temp),y
+
+ tax
+sname2 iny
+ lda (temp),y ; print filename
+ ora #$80
+ jsr cout
+ dex
+ bne sname2
+
+ jsr pr ; finish off string
+ asc ']: ',00
+
+ jsr inpln
+ cpx #0 ; cr?
+ beq sname4 ; yep
+ cpx #14 ; 14 or over?
+ bcs sname ; yep
+
+ txa
+ tay
+sname3 lda lnbuf-1,y ; copy filename
+ sta (temp),y
+ dey
+ bne sname3
+
+ txa  ; save length
+ sta (temp),y
+ jmp sname ; go back
+
+sname4 ldx acosobj+2
+ lda acosobj+3 ; display in window 3
+ ldy #3
+ jsr prwind
+
+ lda #<drivea ; point to pathname
+ sta p_ginfo+1
+ lda #>drivea
+ sta p_ginfo+2
+
+chkprg jsr mli
+ db $c4 ; get file info
+ dw p_ginfo
+ beq docheck
+
+ jsr prstat
+ asc 'INSERT SYSTEM DISK INTO OTHER DRIVE',0d,00
+ jsr getcr
+ jmp chkprg
+
+; get a directory and look for ".s" files.
+; if any exist, check to see if they have 
+; been changed. If so, kill the ".c" file.
+
+docheck jsr prstat
+ asc 'STATUS:',0d
+ asc '  CHECKING FILES...',00
+
+logprg jsr mli
+ db $c7 ; get the current prefix
+ dw p_pfx
+
+ ldy drivea
+logprg1 lda drivea,y ; are these 2 paths the same?
+ eor prefix,y
+ and #%11011111
+ bne logprg2 ; nope
+
+ dey
+ bne logprg1 ; keep checking
+
+logprg2 jsr mli ; open the current prefix
+ db $c8
+ dw p_open
+
+ lda p_open+5 ; get refnum
+ sta p_rdinf+1
+ sta p_rddir+1
+ sta p_pos+1
+
+ jsr mli ; read dir info
+ db $ca
+ dw p_rdinf
+
+ jsr mli ; set to byte 0
+ db $ce
+ dw p_pos
+
+ ldx #0
+ stx numfls ; 0 files processed
+ stx numfls+1
+ dex
+ stx blkcnt ; start at file 1 in block
+
+rdloop lda #<dirbuf+4 ; point to buf
+ sta temp
+ lda #>dirbuf+4
+ sta temp+1
+
+ jsr mli ; read block
+ db $ca
+ dw p_rddir
+ bne rdloop1 ; opps, error
+
+ lda blkcnt ; first pass?
+ bpl rdloop2 ; nope
+
+ inc blkcnt ; set to 0
+ jmp rdloop5 ; go to next entry
+
+rdloop2 lda numfls ; we done?
+ cmp dirinfo+$25
+ bne rdloop3 ; nope
+
+ lda numfls+1 ; check high
+ cmp dirinfo+$26
+ bne rdloop3 ; were done
+
+rdloop1 jmp finish
+
+rdloop3 ldy #0
+ lda (temp),y ; get length and type
+ and #$0f
+ sta (temp),y ; get rid of extra stuff
+ sta temp2
+ bne rdlp3a
+
+ jmp rdloop5
+
+rdlp3a inc numfls ; inc file count
+ bne rdloop4
+ inc numfls+1
+
+rdloop4 ldx temp
+ lda temp+1 ; display filename in window 0
+ ldy #0
+ jsr prwind
+
+ ldy drivea ; get length of path
+ tya
+ tax  ; save length
+mvpath lda drivea,y
+ sta flname,y ; move pathname
+ dey
+ bpl mvpath
+
+ lda #'/' ; add in slash
+ inx
+ sta flname,x
+
+ ldy #0
+mvpath2 inx
+ iny
+ lda (temp),y ; get name of file
+ sta flname,x
+ cpy temp2
+ bne mvpath2
+
+ lda #'C' ; make into '.c'
+ sta flname,x
+ stx flname ; update length
+
+ lda temp2 ; get length
+ cmp #3 ; is it a possible '.s' file?
+ bcc rdloop5 ; nope
+
+ tay
+ lda (temp),y ; check for 's' in '.s'
+ cmp #'S'
+ bne rdloop5
+
+ dey
+ lda (temp),y ; check for '.' in '.s'
+ cmp #'.'
+ bne rdloop5
+
+rdloop4c ldx temp
+ lda temp+1
+ ldy #1 ; display .s source file
+ jsr prwind
+
+ ldy #$1f ; offset for aux type in dir struct
+ lda (temp),y
+ bne rdlop4a
+
+ lda temp ; point at filename
+ sta p_ginfo+1
+ sta p_open2+1
+ lda temp+1
+ sta p_ginfo+2
+ sta p_open2+2
+
+ lda #1
+ sta p_ginfo+5 ; set bit in mod.time
+
+ lda #7 ; setup for set.file.info
+ sta p_ginfo
+
+ jsr mli ; set info
+ db $c3
+ dw p_ginfo
+
+ ldy #0
+ lda (temp),y ; change file into .C
+ tay
+ lda #'C'
+ sta (temp),y
+
+ ldx temp
+ lda temp+1
+ ldy #2 ; display in window 2
+ jsr prwind
+
+ ldy #0
+ lda (temp),y
+ tay  ; change file back to .S
+ lda #'S'
+ sta (temp),y
+
+ jsr mli ; delete '.c' file
+ db $c1
+ dw p_del
+
+rdlop4a jsr flcopy ; copy over the file
+
+rdloop5 clc
+ lda temp ; go to next entry
+ adc dirinfo+$23
+ sta temp
+ lda temp+1
+ adc #0
+ sta temp+1
+
+ inc blkcnt ; inc place within block
+ lda blkcnt
+ cmp dirinfo+$24
+ beq rdloop6 ; go to next block
+
+ jmp rdloop2 ; do next entry within this block
+
+rdloop6 lda #0 ; reset count
+ sta blkcnt
+ jmp rdloop ; do another block
+
+finish lda #0
+ sta p_close+1
+
+ jsr mli ; close file
+ db $cc
+ dw p_close
+
+ lda $c000 ; did they want to pause?
+ cmp #$a0
+ beq wait2c ; yep, wait to see
+
+ jmp exeacos
+
+wait2c lda #1
+ sta $20
+ sta $22
+ lda #38
+ sta $21
+ lda #22
+ sta $23
+ jsr home ; clear screen
+ jsr pr
+ db cr
+ asc ' MAKE SURE THESE DISKS ARE IN PLACE:',0d,00
+
+
+ ldy #0 ; move A:
+ ldx #<lnbuf
+ lda #>lnbuf
+ jsr movpath ; move pathname
+
+ ldy #1 ; move B:
+ ldx #<lnbuf+128
+ lda #>lnbuf+128
+ jsr movpath ; move pathname
+
+ ldy lnbuf ; get pathname length
+ iny
+show2 dey  ; count down
+ bmi show3 ; they match
+
+ lda lnbuf,y
+ cmp lnbuf+128,y ; are they the same?
+ beq show2 ; yep
+
+ jsr pr
+ db cr
+ asc ' BOOT DISK     -- ',00
+ ldy lnbuf
+ ldx #<lnbuf+1
+ lda #>lnbuf+1
+ jsr prstr ; show pathname
+
+show3 jsr pr
+ db cr
+ asc ' SYSTEM DISK   -- ',00
+ ldy lnbuf+128
+ ldx #<lnbuf+129
+ lda #>lnbuf+129
+ jsr prstr ; show pathname
+
+ ldy #5
+ ldx #<lnbuf ; move pathname
+ lda #>lnbuf
+ jsr movpath
+
+ jsr pr
+ db cr
+ asc ' BULLETIN DISK -- ',00
+ ldy lnbuf
+ ldx #<lnbuf+1
+ lda #>lnbuf+1
+ jsr prstr ; show pathname
+
+ ldy #6
+ ldx #<lnbuf+128
+ lda #>lnbuf+128 ; move pathname
+ jsr movpath
+
+ ldy lnbuf ; get length of path
+ iny
+show4 dey
+ bmi show5 ; the path's match
+
+ lda lnbuf,y ; are they the same?
+ cmp lnbuf+128,y
+ beq show4 ; yep
+
+ jsr pr
+ db cr
+ asc ' MAIL DISK     -- ',00
+ ldy lnbuf+128
+ ldx #<lnbuf+129
+ lda #>lnbuf+129
+ jsr prstr
+
+show5 jsr pr
+ db cr,cr
+ asc ' ONCE THESE DISKS ARE IN PLACE',0d,0d
+ asc ' ',00
+ jsr getcr
+
+exeacos lda #0
+ sta $bf94 ; set level to 0
+
+ jsr mli
+ db $cc ; close all open files
+ dw r_close ; specifically EXEC files
+
+ lda acosobj+6
+ sta temp
+ lda acosobj+7
+ sta temp+1
+ jmp (temp) ; start acos running
+
+
+; sub-routines
+; print a line of status
+prstat lda #2
+ sta $20
+ lda #36
+ sta $21
+ lda #20 ; set window
+ sta $22
+ lda #22
+ sta $23
+ jsr home ; clear window
+
+pr pla  ; point to string
+ sta prn
+ pla
+ sta prn+1
+
+pr2 inc prn ; get next byte
+ bne pr3
+ inc prn+1
+
+pr3 ldy #0 ; get byte
+ lda (prn),y
+ ora #$80
+ cmp #"#" ; inverse block?
+ bne pr3a ; nope
+ lda #$20
+
+pr3a jsr cout ; print
+ asl a
+ bne pr2 ; keep going
+
+ inc prn ; make into correct address
+ bne pr4
+ inc prn+1
+
+pr4 jmp (prn) ; return
+
+
+; get a return
+getcr jsr pr
+ asc 'PRESS [RETURN] TO CONTINUE...',00
+getcr2 jsr $fd35
+ cmp #$8d
+ bne getcr2
+ rts
+
+
+; print a filename within a window
+prwind stx prn ; point to filename
+ sta prn+1
+ lda wndlft,y ; define text window
+ sta $20
+ sta $24
+ lda wndrgt,y
+ sta $21
+ lda wndtop,y
+ sta $22
+ lda wndbtm,y
+ sta $23
+ sec  ; make into vtab
+ sbc #1
+ sta $25
+ jsr $fc22 ; vtab down
+ lda #$8d
+ jsr $fdf0 ; scroll down
+
+ ldy #0
+ lda (prn),y ; get filename length
+ tax
+prwind2 iny
+ lda (prn),y ; print name
+ ora #$80
+ jsr $fdf0
+ dex
+ bne prwind2
+ rts
+
+wndlft db 02,22,22,22
+wndrgt db 16,16,16,16
+wndtop db 07,03,11,18
+wndbtm db 19,08,15,19
+
+
+; print a string pointed to by X & A, length Y
+prstr stx prn
+ sta prn+1 ; point at string
+ tya
+ tax  ; save length
+ ldy #0
+prstr2 lda (prn),y ; get data
+ ora #$80
+ jsr $fdf0
+ iny
+ dex
+ bne prstr2 ; do entire string
+ rts
+
+
+; move a pathname into a buffer
+movpath stx temp ; point to buffer
+ sta temp+1
+
+ ldx #0
+move2 dey  ; count down
+ bmi move3 ; all finished
+
+ txa
+ sec
+ adc drivea,x ; add in next offset
+ tax
+ jmp move2
+
+move3 lda drivea,x ; get path length
+ sta temp2 ; save as counter
+
+ ldy #0
+move4 lda drivea,x
+ sta (temp),y ; save in buffer
+ inx
+ iny
+ dec temp2 ; count down length
+ bpl move4
+ rts
+
+
+; copy over a source file
+flcopy jsr mli
+ db $c8 ; does '.c' file exist?
+ dw p_open1
+ bne flcopy1 ; nope, copy source
+
+ lda p_open1+5
+ sta p_close+1
+ jsr mli ; close compiled file
+ db $cc
+ dw p_close
+flcopy2 rts  ; all is well
+
+flcopy1 ldx flname ; change '.c' back to '.s'
+ lda #'S'
+ sta flname,x
+
+ jsr mli
+ db $c0 ; create new file
+ dw p_creat
+ bne flcopy2 ; file must already exist
+
+ jsr mli
+ db $c8 ; open old file
+ dw p_open2
+
+ lda p_open2+5 ; save refnum
+ sta p_read+1
+ sta p_close+1
+
+ jsr mli
+ db $ca ; read in file
+ dw p_read
+
+ jsr mli
+ db $cc ; close source file
+ dw p_close
+
+ jsr mli
+ db $c8 ; open new file
+ dw p_open1
+
+ lda p_open1+5 ; setup write routine
+ sta p_write+1
+ sta p_close+1
+ lda p_read+6 ; setup write length
+ sta p_write+4
+ lda p_read+7
+ sta p_write+5
+
+ jsr mli
+ db $cb ; write out segment
+ dw p_write
+
+ jsr mli ; close file 2
+ db $cc
+ dw p_close
+ rts  ; we are done
+
+
+; prodos parmlist
+startup dw 0
+
+p_creat db 7
+ dw flname
+ db $c3
+ db $04
+ dw 0
+ db 1
+ dw 0
+ dw 0
+
+p_open db 3
+ dw prefix
+ dw flbuf
+ db 0
+
+p_open1 db 3
+ dw flname
+ dw flbuf1
+ db 0
+
+p_open2 db 3
+ dw 0
+ dw flbuf1
+ db 0
+
+p_rdinf db 4
+ db 0
+ dw dirinfo
+ dw $0100
+ dw 0
+
+p_rddir db 4
+ db 0
+ dw dirbuf
+ dw $0200
+ dw 0
+
+p_read db 4
+ db 0
+ dw copybuf
+ dw copylen
+ dw $0000
+
+p_write db 4
+ db 0
+ dw copybuf
+ dw copylen
+ dw $0000
+
+p_close db 1
+ db 0
+
+p_ginfo db $0a
+ dw 0
+ db 0
+ db 0
+ dw 0
+ db 0
+ dw 0
+ dw 0
+ dw 0
+ dw 0
+ dw 0
+
+p_del db 1
+ dw flname
+
+p_pos db 2
+ db 0
+ db $00,$00,$00
+
+p_pfx db 1
+ dw prefix
+
+p_pfx2 db 1
+ dw $280
+
+p_onln db 2
+ db 0
+ dw prefix+1
+
+; data for relocated code
+r_open db 3
+ dw r_file
+ dw flbuf1 ; use last possible buffer
+ db 0
+
+r_read db 4
+ db 0
+ dw acosobj
+ dw $6000
+ dw $0000
+
+r_close db 1
+ db 0
+
+r_file db 8
+ asc 'acos.obj'
+
+copybuf equ *
+copylen equ mli-copybuf
+
+ end
+
+

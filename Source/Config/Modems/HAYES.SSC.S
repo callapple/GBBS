@@ -1,1 +1,576 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Συπες Σεςιαμ Γαςδ ¨ΣΣΓ© Δςιφεςª Καξυαςω ±Ή¬ ±ΉΈΈªª ΘιστοςωΊªª Ναω ±ΉΉ±¬ αξδω¬ γθαξηεδ το συπποςτ ιξτεςςυπτσª Νενοςιαμ Δαω ±ΉΉ±¬ αξδω¬ συπποςτ θαωεσ υμτςαª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ψγ ςεμ δσλ ςεμ―σσγγς ερυ ¤°δμζ ερυ ¤°αδατα ερυ ¤γ°ΈΈστατυσ ερυ ¤γ°ΈΉγονναξδ ερυ ¤γ°Έαγοξτςομ ερυ ¤γ°ΈβΙΞΙΤΣΤÒ ερυ ¤±±δ° »υξγοννεξτ τθεσεαξσστς ερυ ¤±±γ°γδβωτε ερυ ¤±±βζª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΦΙΔΓΟΥΤ ½ ¤°Ή°¶Òετυςξ ½ ±³ΣΝίΟΛ ½ ° »Νοδεν §ΟΛ§ΣΝίΓοξ°³ ½ ± »Νοδεν §ΓΟΞΞΕΓΤ ³°°§ΣΝίÒιξη ½ ² »Νοδεν §ÒΙΞΗ§ΣΝίΞοΓας ½ ³ »Νοδεν §ΞΟ ΓΑÒÒΙΕÒ§ΣΝίΓοξ±² ½ ΄ »Νοδεν §ΓΟΞΞΕΓΤ ±²°°§ΣΝίΓοξ²΄ ½ ±° »Νοδεν §ΓΟΞΞΕΓΤ ²΄°°§ΣΝίΓοξ΄Έ ½ ±± »Νοδεν §ΓΟΞΞΕΓΤ ΄Έ°°§ΣΝίΓοξΉ¶ ½ ±² »Νοδεν §ΓΟΞΞΕΓΤ Ή¶°°§ΣΝίΓοξ±Ή ½ ±΄ »Νοδεν §ΓΟΞΞΕΓΤ ±Ή²°°§ΣΝίΓοξ³Έ ½ ²Έ »Νοδεν §ΓΟΞΞΕΓΤ ³Έ΄°°§ΣΝίΓας°³ ½ ΄° »Νοδεν §ΓΑÒÒΙΕÒ ³°°§ΣΝίΓας±² ½ ΄¶ »Νοδεν §ΓΑÒÒΙΕÒ ±²°°§ΣΝίΓας²΄ ½ ΄· »Νοδεν §ΓΑÒÒΙΕÒ ²΄°°§ΣΝίΓας΄Έ ½ ΄Έ »Νοδεν §ΓΑÒÒΙΕÒ ΄Έ°°§ΣΝίΓαςΉ¶ ½ µ° »Νοδεν §ΓΑÒÒΙΕÒ Ή¶°°§ΓονπίΝΞΠµ ½ ¶¶ »Νοδεν §ΓΟΝΠÒΕΣΣΙΟΞΊ ΓΜΑΣΣ µ§ΓονπίΦ΄²βισ ½ ¶· »Νοδεν §ΓΟΝΠÒΕΣΣΙΟΞΊ Φ®΄²ΒΙΣ§ΓονπίΑΔΓ ½ ¶Έ »Νοδεν §ΓΟΝΠÒΕΣΣΙΟΞΊ ΑΣΓ§ΓονπίΞΟΞΕ ½ ¶Ή »Νοδεν §ΓΟΝΠÒΕΣΣΙΟΞΊ ΞΟΞΕ§ΠςοτίΞοξε ½ ·° »Νοδεν §ΠÒΟΤΟΓΟΜΊ ΞΟΞΕ§ΠςοτίΑΜΤ ½ Έ° »Νοδεν §ΠÒΟΤΟΓΟΜΊ ΑΜΤ§ΠςτΣπδΜ ½ ±²ΠςτΣπδΘ ½ ±³Εσγαπε ½ ΄³σσγ εξτ οςη ¤ε°°νοδενª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª κυνπ ταβμεσμοτ θεψ ²° »σεςιαμ γαςδ σμοτª±¶ΙΞΙΤΣΠΔ θεψ °°γαμμσπδ δζβ ° »σπεεδ οζ γαμμΒΩΤΓΞΤ δζβ °¬°¬° κνπ ιξιτ κνπ ςεσετ κνπ ςιξη κνπ αξσχες κνπ θαξηυπ κνπ ιξπ κνπ ουτ κνπ γθλδγδ κνπ σετσπδ κνπ ςαισεδτς κνπ ζμυσθ κνπ σθυτΔοχξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ιξιτ τθε σεςιαμ γαςδ ­­ Ι θοπε τθισ ισ οξμω εφες γαμμεδ οξγειξιτ μδα £° »ςεσετ βωτεσ μδψ σμοτ στα στατυσ¬ψ »ςεσετ υαςτ στα γονναξδ¬ψ »ςεσετ γονναξδ γμγ τψα αδγ £Όδατα στα δαταμογ«± »ναλε ιξτο αβσομυτε σαφε μδα £° στα θεαδ »ςεσετ τθε θεαδ αξδ ταιμ ποιξτεςσ στα ταιμ κσς ¤βζ°° »αμμογίιξτεςςυπτ δζβ ¤΄° δα αμμογΠαςνσ μδα αμμογΠαςνσ«± στα δεΑμμογΠαςνσ«± γμι  »τυςξ ιξτσ οξ ςτσαμμογΠαςνσ δζβ ² δζβ ° δα ιξτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σθυτΔοχξ ­­ σθυτ τθε ΣΣΓ δοχξªª Τθισ χιμμ δισαβμε ιξτεςςυπτσ¬ βυτ ξοτ δςοπ γαςςιες χθιγθ σθουμδª βε δοξε εψπμιγιτμω χιτθ τθε θαξηυπ ςουτιξε®  Σθυτδοχξ κυστ ναλεσª ιτ ΆσαζεΆ το εψιτ®ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­σθυτΔοχξ μδψ σμοτª μδα £¥°°°°°°°° »ΔΤΣ οζζ¬ ÒΤΣ οζζ¬ ιξτεςςυπτσ ΟΖΖ μδα £¥°°°°±°±± »ΔΤÒ οξ¬ ÒΤΣ οξ¬ ιξτεςςυπτσ ΟΖΖ στα γονναξδ¬ψ κσς ¤βζ°° δζβ ¤΄± δα δεΑμμογΠαςνσ ςτσδεΑμμογΠαςνσ δζβ ± δζβ °ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ιξιτ νοδεν ζος ςιξηςεσετ ΚΣÒ θαξηυπ ΣΤΪ Γαςςιες »γμεας πςεφιουσ στυζζ ΣΤΪ Πςοτογομ ΣΤΪ Γονπςεσσιοξ ΣΤΪ Γοξξεγτ ΜΔΑ £° »μετ νοδεν ςεσετ ΚΣÒ χαιτ ΚΣÒ χαιτ ΚΣÒ ςαισεδτς ΜΔΩ ΙΞΙΤΣΠΔ »σετ ιξιτ σπεεδ ΚΣÒ σετσπδ ΜΔΑ £° »σμιηθτ δεμαω ¨μετ νοδεν δο ιξιτ© ΚΣÒ χαιτ ΜΔΨ £­±ΊÒΣΕΤ² ΙΞΨ  »δο πςε­ιξγ ΜΔΑ ΙΞΙΤΣΤÒ¬Ψ »ηετ νοδεν ιξιτ στςιξη ΒΕΡ ΊÒΣΕΤ³ »χε αςε δοξε ΚΣÒ ουτ »ουτπυτ ΒÒΑ ΊÒΣΕΤ² »μοοπ ¨Ϊ­βιτ σετ αζτες χαιτ©ΊÒΣΕΤ³ ΜΔΑ £¶ ΣΤΑ ΓΟΥΞΤΜΟ ΣΤΑ ΓΟΥΞΤΘΙΊÒΣΕΤ΄ ΜΔΩ £­±ΊÒΣΕΤµ ΔΕΩ ΒΞΕ ΊÒεσυμτΏ ΔΕΓ ΓΟΥΞΤΜΟ ΒΞΕ ΊÒΣΕΤ΄ ΔΕΓ ΓΟΥΞΤΘΙ ΒΞΕ ΊÒΣΕΤ΄ ΒΕΡ ςεσετΊÒεσυμτΏ ΚΣÒ ΗετΞυνβες ΒΓΓ ΊÒΣΕΤµ ΒΞΕ ΊÒΣΕΤµ μδα £° στα ΒΩΤΓΞΤ »ςεσετ βωτε γουξτες στα ΒΩΤΓΞΤ«± στα ΒΩΤΓΞΤ«² ΚΣÒ ζμυσθ ΓΜΓ ÒΤΣ  »ςετυςξª τεστ ζος α ςιξη αξδ θαξδμε ιτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ςιξη ΚΣÒ ΗετΞυνβες »γθεγλ ζος α γθας ΒΓΓ ΊΞοΔατα »ξοπε®®® ΓΝΠ £ΣΝίΟΛ »ισ ιτ α §ΟΛ§Ώ ¨ξυνεςιγ© ΒΕΡ ΊÒιξη± ΓΝΠ £ΣΝίÒιξη »ισ ιτ α §ςιξη§Ώ ¨ξυνεςιγ© ΒΕΡ ΊÒιξη± ΓΝΠ £ΣΝίΞοΓας »ισ ιτ α §ξο γαςςιες§Ώ ¨ξυνεςιγ© ΒΞΕ ΊΙσΓξγτΏ »ξοπε¬ γθεγλ ζος γοξξεγτ νεσσαηεσΊÒιξη± ΚΝΠ ΊΞοΔατα »ωεσ¬ ιηξοςε ιτ΅ΊÒεσυμτ ΚΣÒ ΗετΞυνβες ΒΦΣ ΊΙσΓξγτΏ ΒΓΓ ΊÒεσυμτª ΒΓΓ ΊΞοΔατα ΒΓΣ ΊΔςοπΙτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΊΙσΓξγτΏ ΚΣÒ ÒιξηΘυξη ΓΝΠ £ΠςοτίΞοξε ΒΓΓ ΊΤστΓονπ »ιτ§σ ξοτ ·° ος ηςεατες ΣΤΑ Πςοτογομ »σαφε ιτ σο χε γαξ μοολ ατ ιτ ιξ αγοσ ΒΓΣ ΊÒεσυμτΊΤστΓονπ ΓΝΠ £ΓονπίΝΞΠµ ΒΓΓ ΊΤστΓαςς »ισ ξοτ ¶¶ ος ηςεατες ΣΤΑ Γονπςεσσιοξ »σαφε ιτ σο χε γαξ μοολ ατ ιτ ιξ ΑΓΟΣ ΒΓΣ ΊÒεσυμτΊΤστΓαςς ΓΝΠ £ΣΝίΓας°³ »Γαςςιες νεσσαηεΏ ΒΓΓ ΊΤστΓοξξ »Ξο¬ τεστ ζος γοξξεγτ νεσσαηε ΣΤΑ Γαςςιες ΒΓΣ ΊÒεσυμτΊΤστΓοξξ ΜΔΩ ΤβμίΓοξξΊΤστΓοξ± ΔΕΩ ΒΝΙ ΊÒεσυμτ »ξο νοςε το γθεγλ¬ σο ηο βαγλ αξδ χαιτ ΓΝΠ ΤβμίΓοξξ¬Ω »ισ ιτ α φαμιδ γοδεΏ ΒΞΕ ΊΤστΓοξ± »ξοπε¬ λεεπ γθεγλιξη ΣΤΑ Γοξξεγτ »σαφε ιτ σο χε γαξ μοολ ατ ιτ ιξ ΑΓΟΣ ΔΕΩ  »ςεδυγε ιτ οξε ζος σετβαυδΊÒΙΞΗ³ ΚΣÒ σετσπδ »σετ τθε γοςςεγτ σπεεδ ΜΔΩ £µΊÒΙΞΗ΄ ΜΔΑ £° »μετ γαςςιες§σ σεττμε ΚΣÒ χαιτ ΔΕΩ ΒΞΕ ΊÒΙΞΗ΄ΊΓοξξεγτ ΚΣÒ ζμυσθ ΣΕΓ  »χε θαφε α γοξξεγτιοξ΅ ÒΤΣΊΔςοπΙτ ΚΣÒ ςεσετΊΞοΔατα ΓΜΓ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σεξδ ατα το πθοξεαξσχες μδψ £°αξσχες² μδα αξσστς¬ψ »ηετ τεψτ βερ αξσχες³ »χε αςε δοξε κσς ουτ »σεξδ ιτ μδα £¤Έ° κσς χαιτ ιξψ βξε αξσχες² »μοοπαξσχες³ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª θαξηυπ πθοξεθαξηυπ μδψ σμοτ »ηετ οζζσετ μδα £° στα γονναξδ¬ψ »θαξη υπ πθοξε ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ιξτ ­­ σονεοξε θιτ υσ χιτθ αξ ιξτεςςυπτª        σεςφιγε ιτ ος πασσ ιτ αμοξηªª        ιξτεςςυπτσ αςε δισαβμεδ χθεξ τθεω θιτ τθισ ςουτιξεªª ςεηιστεςσ δοξ§τ ξεεδ το βε πςεσεςφεδ βω τθισ ςουτιξεªª Αξδ¬ βεμιεφε ιτ ος ξοτ¬ ςεαδιξη τθε στατυσ ςεηιστες ΓΜΕΑÒΣ τθεª ιξτεςςυπτ στατυσ ζμαη οξ τθε ¶µµ±®  Αυηθ΅ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ιξτ γμδ  »ξεεδεδ ζος αμμ ΠςοΔΟΣ ιξτεςςυπτ θαξδμεςσ μδψ σμοτ μδα στατυσ¬ψ »δο χε θαφε δατα χαιτιξη¬ ος αςε χε ιξτεςςυπτιξηΏ αξδ £¥±°°°±°°° βξε Ίδατα σεγ ςτσ  »οτθεςχισε¬ ιτ χασξ§τ ους ιξτεςςυπτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­Ίμοοπ μδψ σμοτ »γθεγλ ζος αξοτθες γθαςαγτες§σ αςςιφαμ¬ κυστ μδα στατυσ¬ψ »ιξ γασε αξδ £¥±°°°±°°° βερ ΊξοΕςςοςΊδατα αξδ £¥°°°°±°°° βερ Ίεςςος »ιζ χε χεςε ιξτεςςυπτιξη¬ βυτ τθεςε§σ ξο γθαςαγτες μδα δατα¬ψ »χαιτιξη¬ τθεξ σονετθιξη σγςεχεδ υπ¬ σο μεαφε μδψ θεαδ στα βυζζες¬ψ »σαφε ους γθαςαγτες ατ τθε θεαδ ιξψ  »ξεψτ ποσ γπψ ταιμ βερ Ίμοοπ »ιζ ιτ χιμμ¬ τθεξ δοξ§τ νοφε τθε θεαδ στψ θεαδ »ιζ ιτ χοξ§τ¬ τθεξ λεεπ νοφιξη τθε θεαδ υπ κνπ Ίμοοπª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­Ίεςςος μδα στατυσ¬ψ »Òεαδ στατυσ τχιγε ιξ α ςοχ το γμεας τθε ιξτεςςυπτ μδα στατυσ¬ψ »πεξδιξη ζμαηΊξοΕςςος γμγ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ιξπ ­­ ηετ α γθαςαγτες ζςον τθε βυζζες¬ ναωβεª        ΣΕΓ ιζ χε ηοτ α γθας ιξ ¨Α©ª        ΓΜΓ ιζ ξοτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ιξπ στψ σαφείψ μδψ ταιμ γπψ θεαδ βερ Ίβαδ »ιζ τθεω αςε τθε σανε¬ ξοτθιξη ιξ τθε βυζζες μδα βυζζες¬ψ »ηετ τθε βωτε ζιςστ¬ τθεξ βυνπ υπ ους ταιμ ποιξτες ιξγ ταιμ »ποιξτ το ποτεξτιαμ ξεψτ γθαςαγτεςΊηοοδ μδψ σαφείψ σεγ ςτσΊβαδ μδα £° μδψ σαφείψ γμγ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ουτπυτ δαταουτ πθα στψ σαφείψουτ² μδψ σμοτ μδα στατυσ¬ψ »γθεγλ στατυσ ταψ αξδ £¥°°°°±°°° βερ ΊξοΙξγονιξη πθπ σει κσς ιξτ πμπ κνπ ουτ²ΊξοΙξγονιξη τψα αξδ £¥°°°±°°°° βερ ουτ² »μοοπ υξτιμ ςεαδω πμαδαταμογ στα δατα »σεμζ νοδιζιεδ μδψ σαφείψ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ζμυσθ ­­ ¨Α© ισ δεστςοωεδ¬ αμμ ςεησ πςεσεςφεδζμυσθ πθπ σει μδα £° στα θεαδ στα ταιμ πμπ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γθεγλ ζος γαςςιεςγθλδγδ πθα στψ σαφείψΊμοοπ μδψ σμοτ »ηετ οζζσετ μδα στατυσ¬ψ ταψ αξδ £¥°°°°±°°° βερ ΊξοΙξγονιξη πθπ σει κσς ιξτ πμπ κνπ ΊμοοπΊξοΙξγονιξη τψα αξδ γδβωτε »γθεγλ γαςςιες γμγ βξε γθλδγδ² σεγγθλδγδ² πμα  »ςεστοςε αμμ ¦ ςετυςξ μδψ σαφείψ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετ τθε ςσ­²³² σπεεδ―σπεεδ ιξ Ω ςεησετσπδ στψ σαφείψ μδψ σμοτ »ηετ οζζσετ μδα σπεεδ¬ω »ηετ σπεεδ στα γοξτςομ¬ψ »σετ σπεεδ μδα £± »ζιξδ γαμμες σπεεδ ¨ψ³°°© στα γαμμσπδ γπω £° »ατ ³°°Ώ βερ σετσπδ³ »ωεπ ασμ γαμμσπδ »σπεεδ ½ σπεεδ ª ²σετσπδ² ασμ γαμμσπδ »σπεεδ ½ σπεεδ ª ² δεω βξε σετσπδ² »μοοπ υξτιμ γοςςεγτ σπεεδ ζουξδσετσπδ³ μδψ σαφείψ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª τυςξ οξ δτς―ςτσςαισεδτς μδψ σμοτ »ηετ οζζσετ μδα £¥°°°°±°°± »τυςξ οξ ΔΤÒ¬ ÒΤΣ¬ ιξτεςςυπτσ ΟΞ στα γονναξδ¬ψ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª χαιτ ςουτιξεχαιτ σεγχαιτ² πθαχαιτ³ σβγ £± βξε χαιτ³ πμα σβγ £± βξε χαιτ² ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Ηετ τθε τχο διηιτ ςεσυμτ γοδε ιξ οξε βωτε ¨Θεψ Ζοςνατ©ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ΗετΞυνβες μδα £­± στα ΔεγΒωτεΊηετ±στ κσς ΊΗετΒωτε »ηετ τθε ζιςστ βωτε βφγ Ίεψιτ βγσ Ίηετ±στ στα ΔεγΒωτε »αξδ ιξγασε τθε ξεψτ βωτε ισ α ΓÒΊηετ²ξδ κσς ΊΗετΒωτε »ηετ τθε σεγοξδ βωτε βφγ Ίηετ²ξδ βγσ Ίεψιτ μδω £±°ΊδεγΈα γμγ αδγ ΔεγΒωτε » αδδ τθε ±°§σ διηιτ¬ ±° τινεσ δεω βξε ΊδεγΈα στα ΔεγΒωτεΊηετΓÒ κσς ΊΗετΔατα βγγ ΊηετΓÒΊεψιτ μδα ΔεγΒωτε πθπ γνπ £ΣΝίΞοΓας ΒΞΕ ΊηετΔαΟΛ ΣΤΪ Πςοτογομ ΜΔΑ £ΣΝίΓας°³ στα Γαςςιες μδα £ΣΝίΓοξ°³ΊηετΔαΟΛ πμπ ςτσª Ζμαησ οξ ΕψιτΊª Οφεςζμοχ Γαςςω  Γοξδιδτιοξª ­­­­­­­­ ­­­­­  ­­­­­­­­­­ª  Γμεας   Γμεας  Ξο δατα ςεγιεφεδª   Σετ    Γμεας  Ξυνβες ςεγιεφεδª   Σετ     Σετ   ΌΓÒΎ ςεγιεφεδΊΗετΒωτε ΚΣÒ ΊΗετΔατα γμφ βγγ ΊΔοξε αξδ £¤·ζ γνπ £Òετυςξ βερ ΊΔατΕψιτ γνπ £§ § βγγ ΊΗετΒωτε γνπ £§°§ βγγ ΊΗετΒωτε γνπ £§Ή§«± βγσ ΊΗετΒωτε εος £§°§ γμγΊΔατΕψιτ βιτ ΊΔοξεΊΔοξε ςτσΊΗετΔατα κσς ιξπÒιξηΘυξη ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Ταβμε οζ Σπεεδσ αξδ οτθες ινποςταξτ στυζζσαφείψ δζβ °θεαδ δζβ °° »σταςτ αξδ εξδ ατ τθε σανε πμαγεταιμ δζβ °°σπεεδ δζβ ¥°°°±°±±° »³°° δζβ ¥°°°±±°°° »±²°° δζβ ¥°°°±±°±° »²΄°° δζβ ¥°°°±±±°° »΄Έ°° δζβ ¥°°°±±±±° »Ή¶°° δζβ ¥°°°±±±±± »±Ή²°°ΓΟΥΞΤΘΙ ΔΒ °ΓΟΥΞΤΜΟ ΔΒ °ΤνπΖιεμδ δσ ΄ΤβμίΓοξξ ΔΖΒ ·¬ΣΝίΓοξ°³¬ΣΝίΓοξ±²¬ΣΝίΓοξ²΄¬ΣΝίΓοξ΄Έ¬ΣΝίΓοξΉ¶¬ΣΝίΓοξ±ΉΤβμίΓαςς ΔΖΒ ¶¬ΣΝίΓας°³¬ΣΝίΓας±²¬ΣΝίΓας²΄¬ΣΝίΓας΄Έ¬ΣΝίΓαςΉ¶ΔεγΒωτε θεψ °°βυζζες δσ ²µ¶ ΔΣ ¤³Β°­ª«νοδεν ΔΣ ±±Γαςςιες ΔΣ ±Πςοτογομ ΔΣ ±Γονπςεσσιοξ ΔΣ ±Γοξξεγτ ΔΣ ±ªΓΔΒΩΤΕ ΔΒ ¥°°°°±°°° »νασλ ΔΓΔ οξμω ¨°½γοξξεγτεδ©ªªΑΞΣΣΤÒ ΑΣΓ §ΑΤΑ§°Δ°°ª ΔΣ ¤±°­ª«ΑΞΣΣΤÒ »ΔΟΞ§Τ ΤΟΥΓΘªªΙΞΙΤΣΤÒ ΑΣΓ §ΑΤΣ°½±Σ²½±²ΈΣΉµ½΄΄¦Γ±¦Δ²¦Λ³¦Σ°ΦΕΝΧ±§°Δ°°ª ΔΣ ¤³°­ª«ΙΞΙΤΣΤÒ »ΔΟΞ§Τ ΤΟΥΓΘ
+*-------------------------------------------------
+* Super Serial Card (SSC) Driver
+* January 19, 1988
+*
+* History:
+*
+* May 1991, andy, changed to support interrupts
+* Memorial Day 1991, andy, support hayes ultra
+*-------------------------------------------------
+
+ lst off
+ xc
+
+ rel
+ dsk rel/ssc
+
+cr equ $0d
+lf equ $0a
+
+data equ $c088
+status equ $c089
+command equ $c08a
+control equ $c08b
+
+INITSTR equ $11d0 ;uncomment these
+ansstr equ $11c0
+cdbyte equ $11bf
+
+*-------------------------------------------------
+
+VIDCOUT = $0906
+
+Return = 13
+SM_OK = 0 ;Modem 'OK'
+SM_Con03 = 1 ;Modem 'CONNECT 300'
+SM_Ring = 2 ;Modem 'RING'
+SM_NoCar = 3 ;Modem 'NO CARRIER'
+SM_Con12 = 4 ;Modem 'CONNECT 1200'
+SM_Con24 = 10 ;Modem 'CONNECT 2400'
+SM_Con48 = 11 ;Modem 'CONNECT 4800'
+SM_Con96 = 12 ;Modem 'CONNECT 9600'
+SM_Con19 = 14 ;Modem 'CONNECT 19200'
+SM_Con38 = 28 ;Modem 'CONNECT 38400'
+
+SM_Car03 = 40 ;Modem 'CARRIER 300'
+SM_Car12 = 46 ;Modem 'CARRIER 1200'
+SM_Car24 = 47 ;Modem 'CARRIER 2400'
+SM_Car48 = 48 ;Modem 'CARRIER 4800'
+SM_Car96 = 50 ;Modem 'CARRIER 9600'
+
+Comp_MNP5 = 66 ;Modem 'COMPRESSION: CLASS 5'
+Comp_V42bis = 67 ;Modem 'COMPRESSION: V.42BIS'
+Comp_ADC = 68 ;Modem 'COMPRESSION: ASC'
+Comp_NONE = 69 ;Modem 'COMPRESSION: NONE'
+
+Prot_None = 70 ;Modem 'PROTOCOL: NONE'
+Prot_ALT = 80 ;Modem 'PROTOCOL: ALT'
+
+PrtSpdL = 12
+PrtSpdH = 13
+Escape = 43
+
+ssc ent
+
+ org $e00
+modem
+
+*-------------------------------------------------
+* jump table
+
+slot hex 20 ;serial card slot*16
+INITSPD hex 00
+
+callspd dfb 0 ;speed of call
+
+BYTCNT dfb 0,0,0
+
+ jmp init
+ jmp reset
+ jmp ring
+ jmp answer
+ jmp hangup
+ jmp inp
+ jmp out
+ jmp chkdcd
+ jmp setspd
+ jmp raisedtr
+ jmp flush
+ jmp shutDown
+
+*-------------------------------------------------
+* init the serial card -- I hope this is only ever called once
+
+init lda #0 ;reset bytes
+ ldx slot
+ sta status,x ;reset uart
+ sta command,x ;reset command
+
+ clc
+ txa
+ adc #<data
+ sta dataloc+1 ;make into absolute save
+
+ lda #0
+ sta head ;reset the head and tail pointers
+ sta tail
+
+ jsr $bf00 ;alloc_interrupt
+ dfb $40
+ da allocParms
+
+ lda allocParms+1
+ sta deAllocParms+1
+
+ cli  ;turn ints on
+ rts
+
+allocParms dfb 2
+ dfb 0
+ da int
+
+*-------------------------------------------------
+* shutDown -- shut the SSC down
+*
+* This will disable interrupts, but not drop carrier which should
+* be done explicitly with the hangup routine.  Shutdown just makes
+* it "safe" to exit.
+*-------------------------------------------------
+
+shutDown
+ ldx slot
+* lda #%00000000 ;DTS off, RTS off, interrupts OFF
+ lda #%00001011 ;DTR on, RTS on, interrupts OFF
+ sta command,x
+
+ jsr $bf00
+ dfb $41
+ da deAllocParms
+ rts
+
+deAllocParms dfb 1
+ dfb 0
+
+*-------------------------------
+* init modem for ring
+
+reset JSR hangup
+
+ STZ Carrier ;clear previous stuff
+ STZ Protocol
+ STZ Compression
+ STZ Connect
+
+ LDA #0 ;let modem reset
+ JSR wait
+ JSR wait
+
+ JSR raisedtr
+
+ LDY INITSPD ;set init speed
+ JSR setspd
+
+ LDA #0 ;slight delay (let modem do init)
+ JSR wait
+
+ LDX #-1
+:RSET2 INX  ;do pre-inc
+ LDA INITSTR,X ;get modem init string
+ BEQ :RSET3 ;we are done
+
+ JSR out ;output
+ BRA :RSET2 ;loop (Z-bit set after wait)
+
+:RSET3 LDA #6
+ STA COUNTLO
+ STA COUNTHI
+
+:RSET4 LDY #-1
+:RSET5 DEY
+ BNE :Result?
+
+ DEC COUNTLO
+ BNE :RSET4
+ DEC COUNTHI
+ BNE :RSET4
+ BEQ reset
+
+:Result? JSR GetNumber
+ BCC :RSET5
+ BNE :RSET5
+
+ lda #0
+ sta BYTCNT ;reset byte counter
+ sta BYTCNT+1
+ sta BYTCNT+2
+
+ JSR flush
+
+ CLC
+ RTS  ;return
+
+* test for a ring and handle it
+*-------------------------------
+ring JSR GetNumber ;check for a char
+ BCC :NoData ;nope...
+
+ CMP #SM_OK ;is it a 'OK'? (numeric)
+ BEQ :Ring1
+ CMP #SM_Ring ;is it a 'ring'? (numeric)
+ BEQ :Ring1
+ CMP #SM_NoCar ;is it a 'no carrier'? (numeric)
+ BNE :IsCnct? ;nope, check for connect messages
+:Ring1 JMP :NoData ;yes, ignore it!
+
+:Result JSR GetNumber
+
+ BVS :IsCnct?
+ BCC :Result
+* BCC :NoData
+ BCS :DropIt
+*-------------------------------
+:IsCnct? JSR RingHung
+
+ CMP #Prot_None
+ BCC :TstComp ;it's not 70 or greater
+ STA Protocol ;save it so we can look at it in acos
+ BCS :Result
+
+:TstComp CMP #Comp_MNP5
+ BCC :TstCarr ;is not 66 or greater
+ STA Compression ;save it so we can look at it in ACOS
+ BCS :Result
+
+:TstCarr CMP #SM_Car03 ;Carrier message?
+ BCC :TstConn ;No, test for connect message
+ STA Carrier
+ BCS :Result
+
+:TstConn LDY Tbl_Conn
+:TstCon1 DEY
+ BMI :Result ;no more to check, so go back and wait
+ CMP Tbl_Conn,Y ;is it a valid code?
+ BNE :TstCon1 ;nope, keep checking
+
+ STA Connect ;save it so we can look at it in ACOS
+ DEY  ;reduce it one for setbaud
+
+:RING3 JSR setspd ;set the correct speed
+
+ LDY #5
+:RING4 LDA #0 ;let carrier's settle
+ JSR wait
+ DEY
+ BNE :RING4
+
+:Connect JSR flush
+ SEC  ;we have a connection!
+ RTS
+:DropIt JSR reset
+:NoData CLC
+ RTS
+
+*-------------------------------------------------
+* send ata to phone
+
+answer ldx #0
+answer2 lda ansstr,x ;get text
+ beq answer3 ;we are done
+
+ jsr out ;send it
+
+ lda #$80
+ jsr wait
+
+ inx
+ bne answer2 ;loop
+
+answer3 rts
+
+*-------------------------------------------------
+* hangup phone
+
+hangup ldx slot ;get offset
+ lda #0
+ sta command,x ;hang up phone
+ rts
+
+*-------------------------------------------------
+* int -- someone hit us with an interrupt
+*        service it or pass it along
+*
+*        interrupts are disabled when they hit this routine
+*
+* registers don't need to be preserved by this routine
+*
+* And, believe it or not, reading the status register CLEARS the
+* interrupt status flag on the 6551.  Augh!
+*-------------------------------------------------
+
+int
+ cld  ;needed for all ProDOS interrupt handlers
+
+ ldx slot
+ lda status,x ;do we have data waiting, or are we interrupting?
+ and #%10001000
+ bne :data
+ sec
+ rts  ;otherwise, it wasn't our interrupt
+
+*-------------------------------------------------
+
+:loop ldx slot ;check for another character's arrival, just
+ lda status,x ;in case
+ and #%10001000
+ beq :noError
+
+:data and #%00001000
+ beq :error ;if we were interrupting, but there's no character
+ lda data,x ;waiting, then something screwed up, so leave
+
+ ldx head
+ sta buffer,x ;save our character at the head
+ inx  ;next pos
+
+ cpx tail
+ beq :loop ;if it will, then don't move the head
+ stx head ;if it won't, then keep moving the head up
+ jmp :loop
+
+*-------------------------------------------------
+:error lda status,x ;Read status twice in a row to clear the interrupt
+ lda status,x ;pending flag
+
+:noError clc
+ rts
+
+*-------------------------------------------------
+* inp -- get a character from the buffer, maybe
+*        SEC if we got a char in (A)
+*        CLC if not
+*-------------------------------------------------
+
+inp stx save_x
+
+ ldx tail
+ cpx head
+ beq :bad ;if they are the same, nothing in the buffer
+
+ lda buffer,x ;get the byte first, then bump up our tail pointer
+ inc tail ;point to potential next character
+
+:good ldx save_x
+ sec
+ rts
+
+:bad lda #0
+ ldx save_x
+ clc
+ rts
+
+*-------------------------------------------------
+* output data
+
+out
+ pha
+ stx save_x
+
+out2 ldx slot
+ lda status,x ;check status
+ tax
+ and #%00001000
+ beq :noIncoming
+
+ php
+ sei
+ jsr int
+ plp
+ jmp out2
+
+:noIncoming
+ txa
+ and #%00010000
+ beq out2 ;loop until ready
+ pla
+
+dataloc sta data ;self modified
+ ldx save_x
+ rts
+
+*-------------------------------------------------
+* flush -- (A) is destroyed, all regs preserved
+
+flush php
+ sei
+ lda #0
+ sta head
+ sta tail
+ plp
+ rts
+
+*-------------------------------------------------
+* check for carrier
+
+chkdcd pha
+ stx save_x
+
+:loop ldx slot ;get offset
+ lda status,x
+ tax
+ and #%00001000
+ beq :noIncoming
+
+ php
+ sei
+ jsr int
+ plp
+ jmp :loop
+
+:noIncoming
+ txa
+ and cdbyte ;check carrier
+ clc
+ bne chkdcd2
+
+ sec
+chkdcd2 pla  ;restore all & return
+ ldx save_x
+ rts
+
+*-------------------------------------------------
+* set the rs-232 speed/speed in Y reg
+
+setspd
+ stx save_x
+
+ ldx slot ;get offset
+ lda speed,y ;get speed
+ sta control,x ;set speed
+
+ lda #1 ;find caller speed (x300)
+ sta callspd
+ cpy #0 ;at 300?
+ beq setspd3 ;yep
+
+ asl callspd ;speed = speed * 2
+setspd2 asl callspd ;speed = speed * 2
+ dey
+ bne setspd2 ;loop until correct speed found
+
+setspd3
+ ldx save_x
+ rts
+
+*-------------------------------------------------
+* turn on dtr/rts
+
+raisedtr
+ ldx slot ;get offset
+ lda #%00001001 ;turn on DTR, RTS, interrupts ON
+ sta command,x
+ rts
+
+*-------------------------------------------------
+* wait routine
+
+wait sec
+wait2 pha
+wait3 sbc #1
+ bne wait3
+ pla
+ sbc #1
+ bne wait2
+ rts
+
+*-------------------------------
+* Get the two digit result code in one byte (Hex Format)
+*-------------------------------
+GetNumber lda #-1
+ sta DecByte
+:get1st jsr :GetByte ;get the first byte
+ bvc :exit
+ bcs :get1st
+ sta DecByte ;and incase the next byte is a CR
+
+:get2nd jsr :GetByte ;get the second byte
+ bvc :get2nd
+ bcs :exit
+
+ ldy #10
+:dec8a clc
+ adc DecByte ; add the 10's digit, 10 times
+ dey
+ bne :dec8a
+ sta DecByte
+
+:getCR jsr :GetData
+ bcc :getCR
+
+:exit lda DecByte
+ php
+ cmp #SM_NoCar
+ BNE :getDaOK
+ STZ Protocol
+ LDA #SM_Car03
+ sta Carrier
+ lda #SM_Con03
+
+:getDaOK plp
+ rts
+
+* Flags on Exit:
+* Overflow Carry  Condidtion
+* -------- -----  ----------
+*  Clear   Clear  No data recieved
+*   Set    Clear  Number recieved
+*   Set     Set   <CR> recieved
+:GetByte JSR :GetData
+ clv
+ bcc :Done
+ and #$7f
+ cmp #Return
+ beq :DatExit
+ cmp #' '
+ bcc :GetByte
+ cmp #'0'
+ bcc :GetByte
+ cmp #'9'+1
+ bcs :GetByte
+ eor #'0'
+ clc
+:DatExit bit :Done
+:Done rts
+
+:GetData jsr inp
+RingHung RTS
+
+*-------------------------------
+* Table of Speeds and other important stuff
+
+save_x dfb 0
+
+head dfb 00 ;start and end at the same place
+tail dfb 00
+
+speed dfb %00010110 ;300
+ dfb %00011000 ;1200
+ dfb %00011010 ;2400
+ dfb %00011100 ;4800
+ dfb %00011110 ;9600
+ dfb %00011111 ;19200
+
+COUNTHI DB 0
+COUNTLO DB 0
+
+TmpField ds 4
+Tbl_Conn DFB 7,SM_Con03,SM_Con12,SM_Con24,SM_Con48,SM_Con96,SM_Con19
+Tbl_Carr DFB 6,SM_Car03,SM_Car12,SM_Car24,SM_Car48,SM_Car96
+DecByte hex 00
+
+buffer ds 256
+
+ DS $3B0-*+modem
+
+ DS 11
+Carrier DS 1
+Protocol DS 1
+Compression DS 1
+Connect DS 1
+
+*CDBYTE DB %00001000 ;mask DCD only (0=connected)
+*
+*ANSSTR ASC 'ATA'0D00
+* DS $10-*+ANSSTR ;DON'T TOUCH
+*
+*INITSTR ASC 'ATS0=1S2=128S95=44&C1&D2&K3&S0VEMW1'0D00
+* DS $30-*+INITSTR ;DON'T TOUCH

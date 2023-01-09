@@ -1,1 +1,301 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Σιξημε Σπεεδ Εψτεςξαμª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ³―±Ή―ΈΈ Αξδςεχ Ε® Ξιγθομασª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ μστ οζζ ςεμ δσλ ςεμ―σιξημεσπδγς ερυ ¤°δμζ ερυ ¤°αδατα ερυ ¤γ°ΈΈστατυσ ερυ ¤γ°ΈΉγονναξδ ερυ ¤γ°Έαγοξτςομ ερυ ¤γ°Έβιξιτστς ερυ ¤±±δ°αξσστς ερυ ¤±±γ°γδβωτε ερυ ¤±±βζσιξημεσπδ εξτ  »¨Σταςτ© οςη ¤ε°°ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª κυνπ ταβμεσμοτ δζβ ¤²° »σεςιαμ γαςδ σμοτιξιτσπδ δζβ ° »τςαξσνιτ ― ςεγειφεγαμμσπδ δζβ ° »σπεεδ οζ γαμμβωτγξτ δζβ °¬°¬° ΚΝΠ ιξιτ ΚΝΠ ςιξησετ ΚΝΠ ςιξη ΚΝΠ αξσχες ΚΝΠ θαξηυπ ΚΝΠ ιξπ ΚΝΠ ουτ ΚΝΠ γθλδγδ κνπ σετσπδ κνπ ςαισεδτς κνπ δυννω κνπ δυννωδυννω ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ιξιτ τθε σεςιαμ γαςδιξιτ ΜΔΑ £° »ςεσετ ΜΔΨ σμοτ ΣΤΑ στατυσ¬ψ »ςεσετ υαςτ ΣΤΑ γονναξδ¬ψ »ςεσετ γονναξδ γμγ τψα αδγ £Όδατα στα δαταμογ«± »ναλε ιξτο αβσομυτε σαφε ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετυπ ζος γαμμςιξησετ ΜΔΨ σμοτ »ηετ οζζσετ ΜΔΑ £¥°°°°±°±± »τυςξ οξ ΔΤÒ¬ ÒΤΣ ΣΤΑ γονναξδ¬ψ σει  »δισαβμε ιξτσ ΜΔΩ ιξιτσπδ »σετ ιξιτ σπεεδ ΚΣÒ σετσπδ ΜΔΑ δατα¬ψ »γμεας δατα στςοβε ΜΔΑ £° »μοξη δεμαω ΚΣÒ χαιτ κσς χαιτ ΜΔΨ £­± »σταςτ ατ ­±ςσετ² ΙΞΨ  »δο πςε­ιξγ μδα £¤Έ° κσς χαιτ ΜΔΑ ιξιτστς¬ψ »ηετ νοδεν ιξιτ στςιξη ΒΕΡ ςσετ³ »χε αςε δοξε κνπ ςσετ²ςσετ³ μδα £¶ στα γουξτμο στα γουξτθιςσετ΄ μδω £¤ΖΖςσετµ δεω βερ δεγουξτ κσς ιξπ βγγ ςσετµ αξδ £¤·ζ γνπ £§Λ§ »γθεγλ ζος ΆΟΛΆ βερ μεαφε κνπ ςσετµδεγουξτ δεγ γουξτμο βξε ςσετ΄ δεγ γουξτθι βξε ςσετ΄ κνπ ςιξησετμεαφε μδα £° στα βωτγξτ »ςεσετ βωτε γουξτες στα βωτγξτ«± στα βωτγξτ«² γμγ ςτσ  »ςετυςξª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σγαξ ζος ςιξη αξδ θαξδμε ιτςιξη ΜΔΨ σμοτ »ηετ οζζσετ ΜΔΑ στατυσ¬ψ ΑΞΔ γδβωτε »στςιπ ουτ ΓΔ βωτε ΓΜΓ ΒΞΕ ςιξη³ »ξοτθιξη ΣΕΓ  »χε θαφε α γοξξεγτιοξ ΜΔΨ £µςιξη² ΜΔΑ £° »δεμαω βεζοςε ηοιξη οξμιξε ΚΣÒ χαιτ ΔΕΨ ΒΞΕ ςιξη² ΚΣÒ ιξπ »ηοββμε εψτςα ΣΕΓςιξη³ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σεξδ ατα το πθοξεαξσχες ΜΔΨ £°αξσχες² ΜΔΑ αξσστς¬ψ »ηετ τεψτ ΒΕΡ αξσχες³ »χε αςε δοξχ ΚΣÒ ουτ »σεξδ ιτ μδα £¤Έ° »δεμαω α μιττμε κσς χαιτ ΙΞΨ ΒΞΕ αξσχες² »μοοπαξσχες³ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª θαξηυπ πθοξεθαξηυπ ΜΔΨ σμοτ »ηετ οζζσετ ΜΔΑ £° ΣΤΑ γονναξδ¬ψ »θαξη υπ πθοξε ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ιξπυτ δαταιξπ ΣΤΨ σαφείψ »σαφε Ψ ΜΔΨ σμοτ »ηετ οζζσετ ΜΔΑ στατυσ¬ψ »ηετ στατυσ ΑΞΔ £¥°°°°±°°° ΓΜΓ ΒΕΡ ιξπ² »ξο δατα ΜΔΑ δατα¬ψ ΣΕΓιξπ² ΜΔΨ σαφείψ »ςεστοςε ¦ ςετυςξ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ουτπυτ δαταουτ ΣΤΨ σαφείψ »σαφε ψ ΔΕΓ τινεγξτ »γουξτ δοχξ βωτεσ πες σεγοξδ ΒΞΕ ουτ± »ξοτ α σεγοξδσ χοςτθ ωετ ΠΘΑ ΜΔΑ γαμμσπδ »ςεσετ γουξτες ΑΣΜ ΑΣΜ ΑΣΜ  »τινε γουξτ ½ βασε®ςατε ª ³² ΑΣΜ ΑΣΜ ΣΤΑ τινεγξτ ΠΜΑ ΙΞΓ βωτγξτ »σεγοξδσ ­ ατ ¶΄ ωετΏ ΒΙΤ βωτγξτ ΒΦΓ ουτ± »ξοπε ΜΔΨ £° »ςεσετ σεγοξδσ ΣΤΨ βωτγξτ ΙΞΓ βωτγξτ«± »νιξυτεσ ­ ατ ¶΄ ωετΏ ΒΙΤ βωτγξτ«± ΒΦΓ ουτ± »ξοπε ΜΔΨ £° »ςεσετ νιξυτεσ ΣΤΨ βωτγξτ«± ΙΞΓ βωτγξτ«² »ιξγ θουςσουτ± ΜΔΨ σμοτ ΠΘΑουτ² ΜΔΑ στατυσ¬ψ »γθεγλ στατυσ ΑΞΔ £¥°°°±°°°° ΒΕΡ ουτ² »μοοπ υξτιμ ςεαδω ΠΜΑδαταμογ ΣΤΑ δατα »σεμζ­νοδιζιεδ ΜΔΨ σαφείψ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª γθεγλ ζος γαςςιες σεγ ½ χε θαφε γαςςιεςγθλδγδ ΣΤΨ σαφείψ »δοξτ λιμμ αξω ςεη§σ ΠΘΑ ΜΔΨ σμοτ »ηετ οζζσετ ΜΔΑ στατυσ¬ψ ΑΞΔ γδβωτε »γθεγλ γαςςιες ΓΜΓ ΒΞΕ γθλδγδ² ΣΕΓγθλδγδ² ΠΜΑ ςεστοςε »αμμ ¦ ςετυςξ ΜΔΨ σαφείψ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª σετ τθε ςσ­²³² σπεεδ Ϋσπεεδ οζζσετ ιξ Ωέσετσπδ ΣΤΨ σαφείψ ΜΔΨ σμοτ »ηετ οζζσετ ΜΔΑ σπεεδ¬ω »ηετ σπεεδ ΣΤΑ γοξτςομ¬ψ »σετ σπεεδ ΜΔΑ £± »ζιξδ γαμμες σπεεδ ¨ψ³°°© ΣΤΑ γαμμσπδ ΓΠΩ £° »ατ ³°°Ώ ΒΕΡ σετσπδ³ »ωεπ ΑΣΜ γαμμσπδ »σπεεδ ½ σπεεδ ª ²σετσπδ² ΑΣΜ γαμμσπδ »σπεεδ ½ σπεεδ ª ² ΔΕΩ ΒΞΕ σετσπδ² »μοοπ υξτιμ γοςςεγτ σπεεδ ζουξδσετσπδ³ ΜΔΨ σαφείψ »ςεστοςε ¦ ςετυςξ ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª τυςξ οξ δτς―ςτσςαισεδτς στψ σαφείψ μδψ σμοτ μδα £¥°°°°±°±± »τυςξ οξ ΔΤÒ¬ ÒΤΣ στα γονναξδ¬ψ σει  »ςε­δισαβμε μδψ σαφείψ ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª χαιτ ςουτιξεχαιτ ΣΕΓ  »ζςον αππμε έΫ« ςεζ ναξ ­ πη ±΄·χαιτ² ΠΘΑχαιτ³ ΣΒΓ £± ΒΞΕ χαιτ³ ΠΜΑ ΣΒΓ £± ΒΞΕ χαιτ² ÒΤΣª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª αφαιμαβμε σπεεδσσπεεδ δζβ ¥°°°±°±±° »³°° δζβ ¥°°°±±°°° »±²°° δζβ ¥°°°±±°±° »²΄°° δζβ ¥°°°±±±°° »΄Έ°° δζβ ¥°°°±±±±° »Ή¶°° δζβ ¥°°°±±±±± »±Ή²°°γουξτμο δβ °γουξτθι δβ °σαφείψ δζβ °τινεγξτ δζβ ° ασγ §ΣιξημεΣπδ§
+*-------------------------------
+* Single Speed External
+*-------------------------------
+* 3/19/88 Andrew E. Nicholas
+*-------------------------------
+ lst off
+
+ rel
+ dsk rel/singlespd
+
+cr equ $0d
+lf equ $0a
+
+data equ $c088
+status equ $c089
+command equ $c08a
+control equ $c08b
+
+initstr equ $11d0
+ansstr equ $11c0
+cdbyte equ $11bf
+
+singlespd ent  ;(Start)
+ org $e00
+
+*-------------------------------
+* jump table
+
+slot dfb $20 ;serial card slot
+initspd dfb 0 ;transmit / receive
+callspd dfb 0 ;speed of call
+
+bytcnt dfb 0,0,0
+
+ JMP init
+ JMP ringset
+ JMP ring
+ JMP answer
+ JMP hangup
+ JMP inp
+ JMP out
+ JMP chkdcd
+ jmp setspd
+ jmp raisedtr
+ jmp dummy
+ jmp dummy
+
+dummy rts
+
+*-------------------------------
+* init the serial card
+
+init LDA #0 ;reset
+ LDX slot
+ STA status,x ;reset uart
+ STA command,x ;reset command
+
+ clc
+ txa
+ adc #<data
+ sta dataloc+1 ;make into absolute save
+ rts
+
+*-------------------------------
+* setup for call
+
+ringset LDX slot ;get offset
+ LDA #%00001011 ;turn on DTR, RTS
+ STA command,x
+
+ sei  ;disable ints
+
+ LDY initspd ;set init speed
+ JSR setspd
+
+ LDA data,x ;clear data strobe
+
+ LDA #0 ;long delay
+ JSR wait
+ jsr wait
+
+ LDX #-1 ;start at -1
+rset2 INX  ;do pre-inc
+ lda #$80
+ jsr wait
+ LDA initstr,x ;get modem init string
+ BEQ rset3 ;we are done
+ jmp rset2
+
+rset3 lda #6
+ sta countlo
+ sta counthi
+
+rset4 ldy #$FF
+rset5 dey
+ beq decount
+
+ jsr inp
+ bcc rset5
+ and #$7f
+ cmp #'K' ;check for "OK"
+ beq leave
+ jmp rset5
+
+decount dec countlo
+ bne rset4
+ dec counthi
+ bne rset4
+ jmp ringset
+
+leave lda #0
+ sta bytcnt ;reset byte counter
+ sta bytcnt+1
+ sta bytcnt+2
+ clc
+ rts  ;return
+
+*-------------------------------
+* scan for ring and handle it
+
+ring LDX slot ;get offset
+ LDA status,x
+ AND cdbyte ;strip out CD byte
+ CLC
+ BNE ring3 ;nothing
+
+ SEC  ;we have a connection
+ LDX #5
+ring2 LDA #0 ;delay before going online
+ JSR wait
+ DEX
+ BNE ring2
+ JSR inp ;gobble extra
+ SEC
+
+ring3 RTS
+
+*-------------------------------
+* send ata to phone
+
+answer LDX #0
+answer2 LDA ansstr,x ;get text
+ BEQ answer3 ;we are donw
+
+ JSR out ;send it
+
+ lda #$80 ;delay a little
+ jsr wait
+
+ INX
+ BNE answer2 ;loop
+
+answer3 RTS
+
+*-------------------------------
+* hangup phone
+
+hangup LDX slot ;get offset
+ LDA #0
+ STA command,x ;hang up phone
+ RTS
+
+*-------------------------------
+* input data
+
+inp STX save_x ;save X
+ LDX slot ;get offset
+ LDA status,x ;get status
+ AND #%00001000
+ CLC
+ BEQ inp2 ;no data
+
+ LDA data,x
+ SEC
+inp2 LDX save_x ;restore & return
+ RTS
+
+*-------------------------------
+* output data
+
+out STX save_x ;save x
+ DEC timecnt ;count down bytes per second
+ BNE out1 ;not a seconds worth yet
+
+ PHA
+ LDA callspd ;reset counter
+ ASL
+ ASL
+ ASL  ;time count = base.rate * 32
+ ASL
+ ASL
+ STA timecnt
+ PLA
+
+ INC bytcnt ;seconds - at 64 yet?
+ BIT bytcnt
+ BVC out1 ;nope
+
+ LDX #0 ;reset seconds
+ STX bytcnt
+
+ INC bytcnt+1 ;minutes - at 64 yet?
+ BIT bytcnt+1
+ BVC out1 ;nope
+
+ LDX #0 ;reset minutes
+ STX bytcnt+1
+
+ INC bytcnt+2 ;inc hours
+
+out1 LDX slot
+
+ PHA
+out2 LDA status,x ;check status
+ AND #%00010000
+ BEQ out2 ;loop until ready
+ PLA
+
+dataloc STA data ;self-modified
+ LDX save_x
+ RTS
+
+*-------------------------------
+* check for carrier sec = we have carrier
+
+chkdcd STX save_x ;dont kill any reg's
+ PHA
+
+ LDX slot ;get offset
+ LDA status,x
+ AND cdbyte ;check carrier
+ CLC
+ BNE chkdcd2
+
+ SEC
+chkdcd2 PLA restore ;all & return
+ LDX save_x
+ RTS
+
+*-------------------------------
+* set the rs-232 speed [speed offset in Y]
+
+setspd STX save_x
+ LDX slot ;get offset
+ LDA speed,y ;get speed
+ STA control,x ;set speed
+
+ LDA #1 ;find caller speed (x300)
+ STA callspd
+ CPY #0 ;at 300?
+ BEQ setspd3 ;yep
+
+ ASL callspd ;speed = speed * 2
+setspd2 ASL callspd ;speed = speed * 2
+ DEY
+ BNE setspd2 ;loop until correct speed found
+
+setspd3 LDX save_x ;restore & return
+ RTS
+
+*-------------------------------
+* turn on dtr/rts
+
+raisedtr stx save_x
+ ldx slot
+
+ lda #%00001011 ;turn on DTR, RTS
+ sta command,x
+ sei  ;re-disable
+
+ ldx save_x
+ rts
+
+*-------------------------------
+* wait routine
+
+wait SEC  ;from apple ][+ ref man - pg 147
+wait2 PHA
+wait3 SBC #1
+ BNE wait3
+ PLA
+ SBC #1
+ BNE wait2
+ RTS
+
+*-------------------------------
+* available speeds
+
+speed dfb %00010110 ;300
+ dfb %00011000 ;1200
+ dfb %00011010 ;2400
+ dfb %00011100 ;4800
+ dfb %00011110 ;9600
+ dfb %00011111 ;19200
+
+countlo db 0
+counthi db 0
+save_x dfb 0
+timecnt dfb 0
+
+ asc 'SingleSpd'

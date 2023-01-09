@@ -1,1 +1,463 @@
-ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ΔατεΊ ³―±±―ΈΈª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª νοδενσξυμμνδν εψτ  »ξυμμ νοδεν δςιφεςγατ±°³ εψτ  »³°° βαυδ γατ δςιφεςγατ²±² εψτ  »±²°° βαυδ γατ δςιφεςνν² εψτ  »νιγςονοδεν ΙΙ δςιφεςσσγ εψτ  »συπες σεςιαμ δςιφεςησποςτ± εψτ  »μογατιοξ ζος ησ ποςτ δςιφεςησποςτ² εψτ  »μογ ζος ησ ποςτ σμοτ £²ησ±θστ εψτ  »μογατιοξ ζος ΗΣ Ποςτ± ΘΣΤησ²θστ εψτ  »μογατιοξ ζος ΗΣ Ποςτ² ΘΣΤυμτςα± εψτ  »μογατιοξ ζος ΗΣ Ποςτ± Υμτςαυμτςα² εψτ  »μογατιοξ ζος ΗΣ Ποςτ² Υμτςασιξημεσπδ εψτ  »σιξημε σπεεδ δςιφεςνυμτισπδ εψτ  »νυμτι­σπεεδ ΌςετυςξΎ δςιφεςξογας εψτ  »ξο γαςςιες δςιφεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ιξιτ στςιξησυσς²΄°° εψτ  »ιξιτ στςιξη ζος υσς ²΄°°υσςΉ¶°° εψτ  »ιξιτ στςιξη ζος υσς Ή¶°°απμ±²°° εψτθαωεσ±²°° εψτθαωεσ²΄°° εψτθαωεσΉ¶°° εψτπςο²΄°° εψτηεξεςιγ εψτεπιγ εψτδαταμιξλ²΄ εψτυμτςαΉ¶°° εψτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Òεγοξζιηυςε νοδενª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ςείνδν βιτ ιξιτ βνι ςείνδνψ μδψ £Όσταςτ » σετυπ εσγ θαξδμες μδα £Ύσταςτ κσς εσγαπε κνπ ςείνδν°ςείνδνψ μδψ £Όδοιξιτ μδα £Ύδοιξιτ » σετυπ αυψ εσγ θαξδμες κσς εσγαπεςείνδν° μδα £± » σετ ιξπυτ μεξητθ ατ ± στα ναψμεξ μδα £¥±°°±°°°° στα ιξπνοδεςείνδν³ κσς ΤοπΒοψ κσς πςιξτ δβ ±¬³¬¶ ασγ §­ Òεγοξζιηυςε Νοδεν Δςιφες ­§¬°° κσς γμσ κσς πςιξτ δβ ±¬·¬° ασγ § ± ­ Ξο Νοδεν―Μογαμ νοδε§¬°δ¬°δ ασγ § ² ­ Αππμε­Γατ ±°³ ­ ³°° βαυδ§¬°δ ασγ § ³ ­ Αππμε­Γατ ²±² ­ ³°°―±²°° βαυδ§¬°δ ασγ § ΄ ­ ΔΓ Θαωεσ Νιγςονοδεν ΙΙ§¬°δ ασγ § µ ­ Ϊοον Νοδεν ΙΙε§¬°δ¬°δ ασγ § ¶ ­ Επιγ ²΄°° Γμασσιγ ΙΙ§¬°δ ασγ § · ­ Αππμιεδ Εξηιξεεςιξη ΔαταΜιξλ ²΄°°§¬°δ¬°δ ασγ § Έ ­ Συπες Σεςιαμ Γαςδ δςιφες§¬°δ ασγ § Ή ­ Αππμε ΙΙησ Σεςιαμ Ποςτ δςιφες§¬°δ ασγ §±° ­ Σιξημε Σπεεδ ΣΣΓ δςιφες§¬°δ ασγ §±± ­ Νυμτιπμε Σπδ ΣΣΓ δςιφες ¨ΙΙγ ποςτ©§¬°δ ασγ §±² ­ Ξο Γαςςιες ΣΣΓ δςιφες§¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­±²έ §¬°° μδψ £±² » ηετ σεςιαμ δεφιγε κσς ιξπξυν στα σεςιαμτωπε »σαφε τθε δεφιγε τωπε ασμ α »ποιξτ° ποιξτσ το τθε ταψ  »σεςιαμ δεφιγε δςιφες μδα δεφταβμε¬ψ στα ποιξτ° ιξψ μδα δεφταβμε¬ψ στα ποιξτ°«± μδα £Όνδνδςφ »τεμμ ιτ το νοφε τθε νοδεν στα ποιξτ± »δςιφες μδα £Ύνδνδςφ στα ποιξτ±«± μδα £±² »δεζαυμτ ισ ηεξεςιγ ασμ α »ποιξτ ιξιτ στςιξη το τθε ταψ  »ςιηθτ πμαγε μδα στςταβμε¬ψ στα ποιξτ³ ιξψ μδα στςταβμε¬ψ στα ποιξτ³«± μδα σεςιαμτωπε »ισ ιτ ιξτεςξαμΏ γνπ £Έ βγσ ηετιξιτ »ξοπε¬ ηετ αξ ιξιτ στςιξη γνπ £· »χασ ιτ ΑΕ Δαταμιξλ ²΄°°Ώ βερ Ίδμ²΄ »υσε ΔΜ ιξιτ στςιξη γνπ £¶ »χασ ιτ τθε Επιγ ιξτεςξαμΏ βερ Ίεπιγ²΄ »ωεσ¬ σετ ζος επιγ στςιξη γνπ £± »ξυμμνοδενΏ βξε Ίιξτεςξαμ »ξοπε¬ κυστ ιξτεςξαμ πθα  »πυσθ ηαςβαηε δατα πθα κνπ νοφεπαηε »νοφε ¦ ζιψ ιξτο πμαγεΊιξτεςξαμ κνπ ηετσμοτ »νυστ θαφε βεεξ ιξτεςξαμ¬ σλιπ ξεψτΊδμ²΄ μδα £±΄ »δαταμιξλ στςιξη ισ £±΄ θεψ ²γ »σλιπ ξεψτ ιξστςυγτιοξΊεπιγ²΄ μδα £± »δεζαυμτ ζος επιγ ισ ¦σ±¦δ² κνπ ηετιξιτ± »νοφε ιξιτ στιξη ιξτο ςιηθτ πμαγεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ τθε ιξιτ στςιξη ζος τθε νοδενηετιξιτ κσς γμσ κσς πςιξτ δβ ±¬·¬° ασγ §Γθοοσε ΝοδενΊ§¬°δ¬°δ ασγ § ± ­ Επιγ ²΄°° Πμυσ§¬°δ ασγ § ² ­ ΥΣÒοβοτιγσ Γουςιες ²΄°°§¬°δ ασγ § ³ ­ ΥΣÒοβοτιγσ Γουςιες ΘΣΤ§¬°δ ασγ § ΄ ­ Αππμε Νοδεν ±²°°§¬°δ ασγ § µ ­ Πςονετθευσ Πςονοδεν ±²°°§¬°δ ασγ § ¶ ­ Πςονετθευσ Πςονοδεν ²΄°°§¬°δ ασγ § · ­ Ξοφατιοξ ΣναςτΓατ§¬°δ ασγ § Έ ­ Ξοφατιοξ Πςοζεσσιοξαμ ²΄°°§¬°δ ασγ § Ή ­ Θαωεσ ±²°°§¬°δ ασγ §±° ­ Θαωεσ ²΄°°§¬°δ ασγ §±± ­ Θαωεσ Φ­Σεςιεσ Ή¶°°§¬°δ ασγ §±² ­ Θαωεσ Υμτςα Ή¶°°―ΠΠ Ή¶°°σα§°δ ασγ ΅±³ ­ Ηεξεςιγ §ΑΤ§ Γονπατιβμε΅¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­±³έ §¬°° μδψ £±³ κσς ιξπξυν στα νοδεντωπεηετιξιτ± ασμ α »ποιξτ ιξιτ στςιξη το τθε ταψ  »ςιηθτ πμαγε μδα στςταβμε¬ψ στα ποιξτ³ ιξψ μδα στςταβμε¬ψ στα ποιξτ³«±ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­σετιξιτ κσς γμσ κσς πςιξτ δβ ±¬·¬° ασγ §Τθε ιξιτ στςιξη ζος τθισ νοδεν ισΊ§¬°δ¬°δ¬°° μδω £°Ίμοοπ μδα ¨ποιξτ³©¬ω στα ιξιτβυζ¬ω βερ Ίδοξε κσς γουτ ιξω βξε ΊμοοπΊδοξε κσς πςιξτ θεψ °δ ασγ §Πςεσσ ΫÒΕΤΥÒΞέ το αγγεπτ τθισ ασ§°δ ασγ §δεζαυμτ¬ ος εξτες α ξεχ ιξιτ στςιξη®§¬°δ ασγ §Ί§¬°° μδα £³Ή » οξμω αμμοχ ³Ή γθαςσ στα ναψμεξ μδα £¥±°±°°°°° στα ιξπνοδε »ασγιι κσς ιξπμξ » ηετ τθε ιξπυτ μδω μξβυζ γπω £γς βερ ηεταξσ » υσε δεζαυμτ μδω £­±Ίμοοπ² ιξω  »νοφε τθε τωπεδ ιξιτ στςιξη μδα μξβυζ¬ω στα ιξιτβυζ¬ω γνπ £γς βξε Ίμοοπ² ιξω μδα £° στα ιξιτβυζ¬ωª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ τθε αξσχες στςιξηηεταξσ κσς γμσ κσς πςιξτ δβ ±¬·¬° ασγ §Τθε αξσχες στςιξη ζος τθισ νοδεν ισΊ§¬°δ¬°δ¬°° μδω £°Ίμοοπ μδα αταστς¬ω στα αξσβυζ¬ω βερ Ίδοξε κσς γουτ ιξω βξε ΊμοοπΊδοξε κσς πςιξτ θεψ °δ ασγ §Πςεσσ ΫÒΕΤΥÒΞέ το αγγεπτ τθισ¬ ος§¬°δ ασγ §εξτες α ξεχ αξσχες στςιξη®§¬°δ ασγ §Ί§¬°° μδα £±µ » οξμω αμμοχ ±µ γθαςσ στα ναψμεξ κσς ιξπμξ » ηετ τθε ιξπυτ μδω μξβυζ γπω £γς βερ ηετδγδ » υσε δεζαυμτ μδω £­±Ίμοοπ² ιξω  »νοφε τθε τωπεδ αξσχες στςιξη μδα μξβυζ¬ω στα αξσβυζ¬ω γνπ £γς βξε Ίμοοπ² ιξω μδα £° στα αξσβυζ¬ωª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ τθε δγδ δςοπ τωπεηετδγδ κσς πςιξτ θεψ °δ¬°δ ασγ §Χθατ τωπε οζ γαςςιες δετεγτ σθουμδ§°δ ασγ §τθε νοδεν δςιφες υσεΏ§¬°δ¬°δ ασγ § ± ­ ΔΣÒ Γαςςιες Δετεγτ ΫΞοςναμέ§¬°δ ασγ § ² ­ ΔΓΔ Γαςςιες Δετεγτ§¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­²έ §¬°° μδψ £² κσς ιξπξυν στα γδτωπεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª ηετ τθε πςοπες σμοτηετσμοτ κσς γμσ μδα σεςιαμτωπε γνπ £Ή βερ Ίησποςτ κσς πςιξτ δβ ±¬·¬° ασγ §Χθιγθ σμοτ σθουμδ τθε νοδεν δςιφες υσεΏ§°δ ασγ §Ϋ±­·έ §¬°° μδψ £· κνπ ΊοφεςΊησποςτ κσς πςιξτ δβ ±¬·¬° ασγ §Χθιγθ Σεςιαμ ΠοςτΏ Ϋ±­²έ §¬°° μδψ £²Ίοφες κσς ιξπξυν πθα μδψ σεςιαμτωπε γπψ £Ή »χασ ιτ τθε ΙΙησ σεςιαμ ποςτΏ βξε Ίξοτησποςτ »ξοπε γνπ £± »χασ ιτ ποςτ £±Ώ βξε Ίποςτ² »ξοπε¬ νυστ βε ποςτ ² μδα £Όησποςτ± »νοφε ησ ποςτ¬ σμοτ ± στα ποιξτ° μδα £Ύησποςτ± στα ποιξτ°«± κνπ ΊθστΊποςτ² μδα £Όησποςτ² »νοφε ησ ποςτ σμοτ ² στα ποιξτ° μδα £Ύησποςτ² στα ποιξτ°«±ª ΓΟΔΕ ΖΟÒ ΘΣΤ ΗΣ ΝΟΔΕΝ ΠΟÒΤ΅ ªΊθστ πμα  » ηετ βαγλ σμοτ £ πθα μδψ νοδεντωπε γπψ £³ » διδ τθεω πιγλ ΘΣΤΏ βξε Ίυμτςα » ξοπε σο ηο οξ γνπ £± »χασ ιτ ποςτ £±Ώ βξε Ίθστ² μδα £Όησ±θστ »νοφε ησ ποςτ σμοτ ² στα ποιξτ° μδα £Ύησ±θστ στα ποιξτ°«± κνπ ΊξοτησποςτΊθστ² μδα £Όησ²θστ »νοφε ησ ποςτ σμοτ ² στα ποιξτ° μδα £Ύησ²θστ στα ποιξτ°«± κνπ ΊξοτησποςτΊυμτςα μδψ νοδεντωπε γπψ £±³ » διδ τθεω πιγλ ΥΜΤÒΑ―ΠΠΏ βξε Ίξοτησποςτ » ξοπε σο ηο οξ γνπ £± »χασ ιτ ποςτ £±Ώ βξε Ίυμτ² μδα £Όυμτςα± »νοφε ησ ποςτ σμοτ ² στα ποιξτ° μδα £Ύυμτςα± στα ποιξτ°«± κνπ ΊξοτησποςτΊυμτ² μδα £Όυμτςα² »νοφε ησ ποςτ σμοτ ² στα ποιξτ° μδα £Ύυμτςα² στα ποιξτ°«±Ίξοτησποςτ μδα σεςιαμτωπε »χασ ιτ αξ ιξτεςξαμΏ γνπ £· βγσ Ίεψτεςξαμ »ξο¬ ιξιτ βαυδ ξεεδεδ κνπ Ίιξτεςξαμ »ωεσ¬ ιξιτ σπδ ξοτ ξεεδεδΊεψτεςξαμ κσς πςιξτ δβ ±¬±°¬° ασγ §Ατ χθατ βαυδ ςατε σθουμδ τθε ποςτ―γαςδ§¬°δ ασγ §βε ιξιτιαμιϊεδΏ  ¨Γθοοσε τθε ναψινυν§¬°δ ασγ §βαυδ ςατε οζ ωους νοδεν©§¬°δ¬°δ ασγ § ± ­   ³°° βαυδ§¬°δ ασγ § ² ­  ±²°° βαυδ§¬°δ ασγ § ³ ­  ²΄°° βαυδ§¬°δ ασγ § ΄ ­  ΄Έ°° βαυδ§¬°δ ασγ § µ ­  Ή¶°° βαυδ§¬°δ ασγ § ¶ ­ ±Ή²°° βαυδ§¬°δ ασγ § · ­ ³Έ΄°° βαυδ ¨οξμω ζος φ®³² νοδενσ©§¬°δ¬°δ ασγ §ΧθιγθΏ Ϋ±­¶έ §¬°° μδψ £· κσς ιξπξυνΊιξτεςξαμ πθανοφεπαηε μδψ £³ »νοφε ³ ιμμυστςιουσ παηεσΊμοοπ² μδω £°Ίμοοπ μδα ¨ποιξτ°©¬ω »σουςγε στα ¨ποιξτ±©¬ω »δεστιξατιοξ ιξω βξε Ίμοοπ ιξγ ποιξτ°«± ιξγ ποιξτ±«± δεψ βξε Ίμοοπ² πμα  »ηετ ιξιτ σπεεδ ταψ δεψ  »οξε μεσσ στψ νδνδςφ«± »σαφε ιτ πμα  »ηετ τθε σμοτ ασμ α ασμ α ασμ α ασμ α »α Ί½ αª±¶ στα νδνδςφ »στοςε τθε σμοτ δεγ γδτωπε μδα σεςιαμτωπε γνπ £Ή »χασ ιτ τθε ησΏ βξε Ίξοτησ »ξοπε¬ ηο τθεςε¬ ΣΣΓ μδα γδτωπε »ηετ δςοπ τωπε βξε Ίξοτησδσς »δγδ χαξτεδ¬ σο στιγλ ιτ μδα £¤²° »εμσε υσε δσς δςοπ στα γδβωτε βξε γοπωαξσΊξοτησδσς μδα £¤°Έ »σετυπ ζος δγδ δςοπ στα γδβωτε βξε γοπωαξσΊξοτησ μδα γδτωπε »σσγ βξε Ίξοτδσς »δγδ δςοπ χαξτεδ¬ ηο τθεςε μδα £¥°±°°°°°° »γθεγλ οξμω δσς ¨ξοςναμ© στα γδβωτε βξε γοπωαξσΊξοτδσς μδα £¥°°±°°°°° »οτθεςχισε γθεγλ ΔΓΔ στα γδβωτεª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­γοπωαξσ μδω £°Ίμοοπ μδα αξσβυζ¬ω »γοπω τθε αξσχες στςιξη στα αξσστς¬ω βερ γοπωιξιτ ιξω βξε Ίμοοπγοπωιξιτ μδω £° »γοπω τθε ιξιτ στςιξηΊμοοπ μδα ιξιτβυζ¬ω στα ιξιτστς¬ω βερ Ίχςιτειτ ιξω βξε ΊμοοπΊχςιτειτ κσς γθιξιτ » γθεγλ ζος ιξιτ κνπ χςτγθη » χςιτε τθε γθαξηεσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª νοδεν δςιφεςσδεφταβμε δχ ° »εψτςα ζος οζζσετ ° δα ξυμμνδν »ξυμμ νοδεν δςιφες δα γατ±°³ »³°° βαυδ γατ δςιφες δα γατ²±² »±²°° βαυδ γατ δςιφες δα νν² »νιγςονοδεν ΙΙ δςιφες δα νν² »Ϊοον Νοδεν δα σσγ »ΑΕ ΔαταΜιξλ ²΄°° δα σσγ »επιγ ²΄°° γμασσιγ δα σσγ »συπες σεςιαμ δςιφες δα ησποςτ² »μογατιοξ ζος ησ ποςτ δςιφες δα σιξημεσπδ »σιξημε σπεεδ δςιφες δα νυμτισπδ »νυμτι­σπεεδ ΌςετυςξΎ δςιφες δα ξογας »ξο γαςςιες ³°° βαυδ δςιφεςστςταβμε δχ ° δα επιγ »± δα υσς²΄°° »² δα υσςΉ¶°° »³ δα απμ±²°° »΄ δα υσς²΄°° »µ δα υσς²΄°° »¶ δα θαωεσ²΄°° »· δα πςο²΄°° »Έ δα θαωεσ±²°° »Ή δα θαωεσ²΄°° »±° δα θαωεσΉ¶°° »±± δα υμτςαΉ¶°° »±² δα ηεξεςιγ »±³ δα δαταμιξλ²΄ »±΄αταστς ασγ §ΑΤΑ§¬°δ¬°°
+*-------------------------------
+* Date: 3/11/88
+*-------------------------------
+
+*-------------------------------
+* modems
+
+nullmdm ext  ;null modem driver
+cat103 ext  ;300 baud cat driver
+cat212 ext  ;1200 baud cat driver
+mm2 ext  ;micromodem II driver
+ssc ext  ;super serial driver
+gsport1 ext  ;location for gs port driver
+gsport2 ext  ;loc for gs port slot #2
+gs1hst ext  ;location for GS Port1 HST
+gs2hst ext  ;location for GS Port2 HST
+ultra1 ext  ;location for GS Port1 Ultra
+ultra2 ext  ;location for GS Port2 Ultra
+singlespd ext  ;single speed driver
+multispd ext  ;multi-speed <return> driver
+nocar ext  ;no carrier driver
+
+*-------------------------------
+* init strings
+
+usr2400 ext  ;init string for usr 2400
+usr9600 ext  ;init string for usr 9600
+apl1200 ext
+hayes1200 ext
+hayes2400 ext
+hayes9600 ext
+pro2400 ext
+generic ext
+epic ext
+datalink24 ext
+ultra9600 ext
+
+*-------------------------------
+* Reconfigure modem
+*-------------------------------
+
+re_mdm bit init
+ bmi re_mdmx
+
+ ldx #<start ; setup esc handler
+ lda #>start
+ jsr escape
+ jmp re_mdm0
+
+re_mdmx ldx #<doinit
+ lda #>doinit ; setup aux esc handler
+ jsr escape
+
+re_mdm0 lda #1 ; set input length at 1
+ sta maxlen
+ lda #%10010000
+ sta inpmode
+
+re_mdm3 jsr TopBox
+ jsr print
+ db 1,3,6
+ asc '- Reconfigure Modem Driver -',00
+
+ jsr cls
+ jsr print
+ db 1,7,0
+ asc ' 1 - No Modem/Local mode',0d,0d
+ asc ' 2 - Apple-Cat 103 - 300 baud',0d
+ asc ' 3 - Apple-Cat 212 - 300/1200 baud',0d
+ asc ' 4 - DC Hayes Micromodem II',0d
+ asc ' 5 - Zoom Modem IIe',0d,0d
+ asc ' 6 - Epic 2400 Classic II',0d
+ asc ' 7 - Applied Engineering DataLink 2400',0d,0d
+ asc ' 8 - Super Serial Card driver',0d
+ asc ' 9 - Apple IIgs Serial Port driver',0d
+ asc '10 - Single Speed SSC driver',0d
+ asc '11 - Multiple Spd SSC driver (IIc port)',0d
+ asc '12 - No Carrier SSC driver',0d,0d
+ asc 'Which? [1-12] ',00
+
+ ldx #12 ; get serial device
+ jsr inpnum
+ sta serialtype ;save the device type
+
+ asl a ;point0 points to the
+ tax  ;serial device driver
+ lda devtable,x
+ sta point0
+ inx
+ lda devtable,x
+ sta point0+1
+
+ lda #<mdmdrv ;tell it to move the modem
+ sta point1 ;driver
+ lda #>mdmdrv
+ sta point1+1
+
+ lda #12 ;default is generic
+ asl a ;point init string to the
+ tax  ;right place
+ lda strtable,x
+ sta point3
+ inx
+ lda strtable,x
+ sta point3+1
+
+ lda serialtype ;is it internal?
+ cmp #8
+ bcs getinit ;nope, get an init string
+ cmp #7 ;was it AE Datalink 2400?
+ beq :dl24 ;use DL init string
+ cmp #6 ;was it the Epic internal?
+ beq :epic24 ;yes, set for epic string
+ cmp #1 ;nullmodem?
+ bne :internal ;nope, just internal
+ pha  ;push garbage data
+ pha
+ jmp movepage ;move & fix into place
+
+:internal jmp getslot ;must have been internal, skip next
+
+:dl24 lda #14 ;datalink string is #14
+ hex 2c ;skip next instruction
+
+:epic24 lda #1 ;default for epic is &s1&d2
+ jmp getinit1 ;move init sting into right place
+
+*-------------------------------
+* get the init string for the modem
+
+getinit jsr cls
+ jsr print
+ db 1,7,0
+ asc 'Choose Modem:',0d,0d
+ asc ' 1 - Epic 2400 Plus',0d
+ asc ' 2 - USRobotics Courier 2400',0d
+ asc ' 3 - USRobotics Courier HST',0d
+ asc ' 4 - Apple Modem 1200',0d
+ asc ' 5 - Prometheus Promodem 1200',0d
+ asc ' 6 - Prometheus Promodem 2400',0d
+ asc ' 7 - Novation SmartCat',0d
+ asc ' 8 - Novation Professional 2400',0d
+ asc ' 9 - Hayes 1200',0d
+ asc '10 - Hayes 2400',0d
+ asc '11 - Hayes V-Series 9600',0d
+ asc '12 - Hayes Ultra 9600/PP 9600sa'0d
+ asc !13 - Generic 'AT' Compatible!,0d,0d
+ asc 'Which? [1-13] ',00
+
+ ldx #13
+ jsr inpnum
+ sta modemtype
+
+getinit1 asl a ;point init string to the
+ tax  ;right place
+ lda strtable,x
+ sta point3
+ inx
+ lda strtable,x
+ sta point3+1
+
+*-------------------------------
+
+setinit jsr cls
+ jsr print
+ db 1,7,0
+ asc 'The init string for this modem is:',0d,0d,00
+
+ ldy #0
+:loop lda (point3),y
+ sta initbuf,y
+ beq :done
+ jsr cout
+ iny
+ bne :loop
+
+:done jsr print
+ hex 0d
+ asc 'Press [RETURN] to accept this as'0d
+ asc 'default, or enter a new init string.',0d
+ asc ':',00
+
+ lda #39 ; only allow 39 chars
+ sta maxlen
+ lda #%10100000
+ sta inpmode ;ascii
+ jsr inpln ; get the input
+ ldy lnbuf
+ cpy #cr
+ beq getans ; use default
+
+ ldy #-1
+:loop2 iny  ;move the typed init string
+ lda lnbuf,y
+ sta initbuf,y
+ cmp #cr
+ bne :loop2
+
+ iny
+ lda #0
+ sta initbuf,y
+
+*-------------------------------
+* get the answer string
+
+getans jsr cls
+ jsr print
+ db 1,7,0
+ asc 'The answer string for this modem is:',0d,0d,00
+
+ ldy #0
+:loop lda atastr,y
+ sta ansbuf,y
+ beq :done
+ jsr cout
+ iny
+ bne :loop
+
+:done jsr print
+ hex 0d
+ asc 'Press [RETURN] to accept this, or',0d
+ asc 'enter a new answer string.',0d
+ asc ':',00
+
+ lda #15 ; only allow 15 chars
+ sta maxlen
+ jsr inpln ; get the input
+ ldy lnbuf
+ cpy #cr
+ beq getdcd ; use default
+
+ ldy #-1
+:loop2 iny  ;move the typed answer string
+ lda lnbuf,y
+ sta ansbuf,y
+ cmp #cr
+ bne :loop2
+
+ iny
+ lda #0
+ sta ansbuf,y
+
+*-------------------------------
+* get the dcd drop type
+
+getdcd jsr print
+ hex 0d,0d
+ asc 'What type of carrier detect should'0d
+ asc 'the modem driver use?',0d,0d
+ asc ' 1 - DSR Carrier Detect [Normal]',0d
+ asc ' 2 - DCD Carrier Detect',0d,0d
+ asc 'Which? [1-2] ',00
+
+ ldx #2
+ jsr inpnum
+ sta cdtype
+
+*-------------------------------
+* get the proper slot
+
+getslot jsr cls
+ lda serialtype
+ cmp #9
+ beq :gsport
+
+ jsr print
+ db 1,7,0
+ asc 'Which slot should the modem driver use?'0d
+ asc '[1-7] ',00
+ ldx #7
+ jmp :over
+
+:gsport jsr print
+ db 1,7,0
+ asc 'Which Serial Port? [1-2] ',00
+
+ ldx #2
+:over jsr inpnum
+ pha
+
+ ldx serialtype
+ cpx #9 ;was it the IIgs serial port?
+ bne :notgsport ;nope
+
+ cmp #1 ;was it port #1?
+ bne :port2 ;nope, must be port 2
+
+ lda #<gsport1 ;move gs port, slot 1
+ sta point0
+ lda #>gsport1
+ sta point0+1
+ jmp :hst
+
+:port2 lda #<gsport2 ;move gs port slot 2
+ sta point0
+ lda #>gsport2
+ sta point0+1
+
+* CODE FOR HST GS MODEM PORT! *
+
+:hst pla  ; get back slot #
+ pha
+ ldx modemtype
+ cpx #3 ; did they pick HST?
+ bne :ultra ; nope so go on
+
+ cmp #1 ;was it port #1?
+ bne :hst2
+
+ lda #<gs1hst ;move gs port slot 2
+ sta point0
+ lda #>gs1hst
+ sta point0+1
+ jmp :notgsport
+
+:hst2 lda #<gs2hst ;move gs port slot 2
+ sta point0
+ lda #>gs2hst
+ sta point0+1
+ jmp :notgsport
+
+:ultra ldx modemtype
+ cpx #13 ; did they pick ULTRA/PP?
+ bne :notgsport ; nope so go on
+
+ cmp #1 ;was it port #1?
+ bne :ult2
+
+ lda #<ultra1 ;move gs port slot 2
+ sta point0
+ lda #>ultra1
+ sta point0+1
+ jmp :notgsport
+
+:ult2 lda #<ultra2 ;move gs port slot 2
+ sta point0
+ lda #>ultra2
+ sta point0+1
+
+:notgsport
+ lda serialtype ;was it an internal?
+ cmp #7
+ bcs :external ;no, init baud needed
+ jmp :internal ;yes, init spd not needed
+
+:external jsr print
+ db 1,10,0
+ asc 'At what baud rate should the port/card',0d
+ asc 'be initialized?  (Choose the maximum',0d
+ asc 'baud rate of your modem)',0d,0d
+ asc ' 1 -   300 baud',0d
+ asc ' 2 -  1200 baud',0d
+ asc ' 3 -  2400 baud',0d
+ asc ' 4 -  4800 baud',0d
+ asc ' 5 -  9600 baud',0d
+ asc ' 6 - 19200 baud',0d
+ asc ' 7 - 38400 baud (only for v.32 modems)',0d,0d
+ asc 'Which? [1-6] ',00
+
+ ldx #7
+ jsr inpnum
+:internal pha
+
+movepage ldx #3 ;move 3 illustrious pages
+:loop2 ldy #0
+:loop lda (point0),y ;source
+ sta (point1),y ;destination
+ iny
+ bne :loop
+ inc point0+1
+ inc point1+1
+ dex
+ bne :loop2
+
+ pla  ;get init speed
+ tax
+ dex  ;one less
+ stx mdmdrv+1 ;save it
+
+ pla  ;get the slot
+ asl a
+ asl a
+ asl a
+ asl a ;a := a*16
+ sta mdmdrv ;store the slot
+
+ dec cdtype
+ lda serialtype
+ cmp #9 ;was it the gs?
+ bne :notgs ;nope, go there, SSC
+
+ lda cdtype ;get drop type
+ bne :notgsdsr ;dcd wanted, so stick it
+ lda #$20 ;else use dsr drop
+ sta cdbyte
+ bne copyans
+
+:notgsdsr lda #$08 ;setup for dcd drop
+ sta cdbyte
+ bne copyans
+
+:notgs lda cdtype ;ssc
+ bne :notdsr ;dcd drop wanted, go there
+ lda #%01000000 ;check only dsr (normal)
+ sta cdbyte
+ bne copyans
+
+:notdsr lda #%00100000 ;otherwise check DCD
+ sta cdbyte
+
+*-------------------------------
+
+copyans ldy #0
+:loop lda ansbuf,y ;copy the answer string
+ sta ansstr,y
+ beq copyinit
+ iny
+ bne :loop
+
+copyinit ldy #0 ;copy the init string
+:loop lda initbuf,y
+ sta initstr,y
+ beq :writeit
+ iny
+ bne :loop
+
+:writeit jsr chinit ; check for init
+ jmp wrtchg ; write the changes
+
+*-------------------------------
+* modem drivers
+
+devtable dw 0 ;extra for offset 0
+ da nullmdm ;null modem driver
+ da cat103 ;300 baud cat driver
+ da cat212 ;1200 baud cat driver
+ da mm2 ;micromodem II driver
+ da mm2 ;Zoom Modem
+ da ssc ;AE DataLink 2400
+ da ssc ;epic 2400 classic
+ da ssc ;super serial driver
+ da gsport2 ;location for gs port driver
+ da singlespd ;single speed driver
+ da multispd ;multi-speed <return> driver
+ da nocar ;no carrier 300 baud driver
+
+strtable dw 0
+ da epic ;1
+ da usr2400 ;2
+ da usr9600 ;3
+ da apl1200 ;4
+ da usr2400 ;5
+ da usr2400 ;6
+ da hayes2400 ;7
+ da pro2400 ;8
+ da hayes1200 ;9
+ da hayes2400 ;10
+ da hayes9600 ;11
+ da ultra9600 ;12
+ da generic ;13
+ da datalink24 ;14
+
+atastr asc 'ATA',0d,00

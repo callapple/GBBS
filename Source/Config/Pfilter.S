@@ -1,1 +1,259 @@
-ª ΔατεΊ ³―±±―ΈΈª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª πςοζαξιτω ζιμτεςª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­   » γθαξηε πςοζαξιτω ζιμτες ¨ωυλ©δοίζιμτ κσς μοηπςη » μοη το §αγοσ®οβκ§ δςιφε μδψ £Όηξανε μδα £Ύηξανε » ποιξτ το ζιμεξανε κσς νοφξανε κσς οπεξ » οπεξ ζιμε μδψ £°° μδα ζιμτες » ποιξτ ατ ζιμτες ταβμε κσς σετναςλ μδψ £Όθδςβυζ μδα £Ύθδςβυζ μδω £² » ςεαδ ± παηε ¨² βμογλσ© κσς ςδβμλ κσς γμοσε » τθατσ ιτ ζος ξοχζιμτ² κσς ΤοπΒοψ κσς πςιξτ δβ ±¬³¬· ασγ §­ Εδιτ Πςοζαξιτω Ζιμτες ­§¬°° κσς γμσ μδα £° » σταςτ ατ £± στα τενπ²ζιμτ³ μδψ τενπ² » ηετ εξτςω ξυνβες κσς ζξδχοςδ » ζιξδ τθε χοςδ βγσ ζιμτµ » οππσ¬ εξδ οζ ταβμε μδα γθ » σαφε γυςςεξτ θοςιϊ πθα μδα τενπ² » πςιξτ εξτςω μεττες γμγ αδγ £§Α§ κσς γουτ ιξγ τενπ² » ηοτο ξεψτ εξτςω ξεψτ πασσ μδα £§©§ » σθοχ α βοςδες κσς γουτ ιξγ γθ » νοφε οφες ± σπαγεζιμτ΄ μδα θδςβυζ¬ω » ηετ δατα πθπ κσς γουτ » πςιξτ δατα ιξω πμπ βπμ ζιμτ΄ » λεεπ σθοχιξη πμα γμγ αδγ £±Ή στα γθ » νοφε οφες θοςιϊ ποσιτιοξ μδα £§ § » ειτθες χςαπ ος νοφε ± σπαγε κσς γουτ κνπ ζιμτ³ζιμτµ κσς πςιξτ δβ ±¬²°¬° ασγ §ΓνδΊ Α½Αδδ¬ Δ½Δεμετε¬ Ρ½Ρυιτ Ώ §¬°° μδα £± στα ναψμεξ » ηετ γονναξδ μδα £¥±°°°°°°° στα ιξπνοδε κσς ιξπμξ μδα μξβυζ γνπ £§Α§ βξε Ίτςωδ κνπ ζμίαδδΊτςωδ γνπ £§Δ§ βερ ζμίδεμΊτςωρ γνπ £§Ρ§ βξε ζιμτµ κνπ ζμίρυιτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª δεμετε α χοςδ ζςον μιστζμίδεμ μδψ £²° κσς γμεοσ » γμεας μιξε κσς πςιξτ δβ ±¬²°¬° ασγ §Δεμετε ΫΑ­§¬°° γμγ μδα τενπ² αδγ £§ΐ§ κσς γουτ » πςιξτ ςαξηε κσς πςιξτ ασγ §έ Ώ §¬°° μδα £¥±°°°°°°° στα ιξπνοδε » σετ νοδε κσς ιξπμξ » ηετ δατα μδα μξβυζ γνπ £§Α§ βγγ ζιμτµ » νοφε βαγλ¬ εςςος σεγ σβγ £§Α§ » ναλε ιξτο Ϋ°­ψψψέ ςαξηε γνπ τενπ² βγγ ª«µ κνπ ζιμτµ » ουτ οζ ςαξηε πθα ταψ ιξψ κσς ζξδχοςδ » μογατε σεγοξδ χοςδ στω τενπ²«± » σαφε οζζσετ πμα ταψ κσς ζξδχοςδ » μογατε ζιςστ χοςδ μδψ τενπ²«± » ποιξτ το σεγοξδ χοςδζμίδεμ² μδα θδςβυζ¬ψ » νοφε δατα στα θδςβυζ¬ω ιξω ιξψ βξε ζμίδεμ² » μοοπ κνπ ζιμτ² » σθοχ ξεχ σγςεεξ» αδδ α χοςδ το μιστζμίαδδ μδψ £²° κσς γμεοσ » γμεας μιξε κσς πςιξτ δβ ±¬²°¬° ασγ §Εξτες ξεχ χοςδΊ §¬°° μδα £±¶ » ±¶ γθαςσ ναψ μεξητθ στα ναψμεξ μδα £¥±°°°°°°° στα ιξπνοδε » σετ ιξπυτ νοδε κσς ιξπμξ » ηετ τθε δατα μδα μξβυζ γνπ £§Α§ βγγ ζμίαδδ΄ » αβοςτ μδψ τενπ² » ηετ μαστ χοςδ κσς ζξδχοςδ » ζιξδ εξδ στω τενπ²«± » σαφε γυςςεξτ εξδ μδψ £°ζμίαδδ² μδα μξβυζ¬ψ γνπ £§Α§ βγγ ζμίαδδ³ στα θδςβυζ¬ω » αδδ βωτε ιξψ ιξω βξε ζμίαδδ² » αξδ μοοπ μδα £° μδω τενπ²«± » ναςλ ομδ εξδ οζ ταβμε στα θδςβυζ¬ω κσς πςιξτ δβ ±¬²°¬° ασγ §ΕςςοςΊ Ζιμτες Ταβμε Οφεςςυξ®   Πςεσσ ΫÒΕΤΥÒΞέ §¬°° κσς ηετγς » χαιτ ζος γςζμίαδδ΄ κνπ ζιμτµ » ηετ ξεχ δαταζμίαδδ³ μδα £° » ναςλ εξδ οζ ταβμε στα θδςβυζ¬ω δεω μδα θδςβυζ¬ω » ναςλ ασ μαστ γθας οςα £¤Έ° στα θδςβυζ¬ω κνπ ζιμτ² » σθοχ ξεχ ταβμε» ρυιτ ζςον ζιμτες γθαξηεςζμίρυιτ μδψ £²° κσς γμεοσ » γμεας βοττον οζ σγςεεξ κσς πςιξτ δβ ±¬²°¬° ασγ §Ισ τθε αβοφε ταβμε γοςςεγτ ΫΩ―Ξέ Ώ §¬°° κσς ιξπωξ βγγ ζμίσαφε κνπ σταςτ » ξοπε΅ζμίσαφε κσς μοηπςη » μοη το §αγοσ®οβκ§ δςιφε μδψ £Όηξανε μδα £Ύηξανε » σετυπ ξανε βυζζες κσς νοφξανε κσς οπεξ » οπεξ ζιμε μδψ £°° μδα ζιμτες » ποσιτιοξ το ζιμτες ταβμε κσς σετναςλ μδψ £Όθδςβυζ μδα £Ύθδςβυζ μδω £² » χςιτε ± παηε ¨² βμογλσ© κσς χςβμλ κσς γμοσε » τθατσ ιτ ζος ξοχ κνπ σταςτ» μογατε α χοςδ Ϋιξδεψεδ βω ψέζξδχοςδ μδω £° γπψ £° » χε δοξεΏ βερ ζξδχδ² » ωεπζξδχδ± μδα θδςβυζ¬ω » μοοπ υξτιμ ξεψτ χοςδ βερ ζξδχδ΄ » εξδ οζ ταβμε ιξω  » ηοτο ξεψτ βωτε ασμ α » γθεγλ θιηθ βιτ βγγ ζξδχδ± δεψ  » γουξτ δοχξ εξτςιεσ βξε ζξδχδ±ζξδχδ² μδα θδςβυζ¬ω βερ ζξδχδ΄ » οππσ¬ τθατ ισ εξδ ναςλεςζξδχδ³ γμγ ςτσ  » χε αςε δοξεζξδχδ΄ σεγ  » οππσ¬ εξδ οζ ταβμε ςτσª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ª Ρυιτª­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­» ρυιτ τθε πςοηςανδοίρυιτ κσς ¤ζγµΈ » γμεας σγςεεξ στα ¤γ°µ± » ηοτο τεψτ νοδε μδα £¤ζζ » ςεσετ ιξφεςσε ζμαη στα ¤³² κσς νμι δβ ¤¶µ » ρυιτ δχ πίρυιτ ςτσπίρυιτ δβ ΄ δβ ° δχ ° δβ ° δχ °
+* Date: 3/11/88
+*-------------------------------
+
+*-------------------------------
+* profanity filter
+*-------------------------------
+   ; change profanity filter (yuk)
+do_filt jsr logprg ; log to 'acos.obj' drive
+ ldx #<gname
+ lda #>gname ; point to filename
+ jsr movname
+ jsr open ; open file
+
+ ldx #00
+ lda filter ; point at filter table
+ jsr setmark
+
+ ldx #<hdrbuf
+ lda #>hdrbuf
+ ldy #2 ; read 1 page (2 blocks)
+ jsr rdblk
+ jsr close ; thats it for now
+
+filt2 jsr TopBox
+ jsr print
+ db 1,3,7
+ asc '- Edit Profanity Filter -',00
+ jsr cls
+
+ lda #0 ; start at #1
+ sta temp2
+
+filt3 ldx temp2 ; get entry number
+ jsr fndword ; find the word
+ bcs filt5 ; opps, end of table
+
+ lda ch ; save current horiz
+ pha
+
+ lda temp2 ; print entry letter
+ clc
+ adc #'A'
+ jsr cout
+ inc temp2 ; goto next entry next pass
+
+ lda #')' ; show a border
+ jsr cout
+ inc ch ; move over 1 space
+
+filt4 lda hdrbuf,y ; get data
+ php
+ jsr cout ; print data
+ iny
+ plp
+ bpl filt4 ; keep showing
+
+ pla
+ clc
+ adc #19
+ sta ch ; move over horiz position
+
+ lda #' ' ; either wrap or move 1 space
+ jsr cout
+ jmp filt3
+
+filt5 jsr print
+ db 1,20,0
+ asc 'Cmd: A=Add, D=Delete, Q=Quit ? ',00
+
+ lda #1
+ sta maxlen ; get command
+ lda #%10000000
+ sta inpmode
+ jsr inpln
+
+ lda lnbuf
+ cmp #'A'
+ bne :tryd
+ jmp fl_add
+:tryd cmp #'D'
+ beq fl_del
+:tryq cmp #'Q'
+ bne filt5
+ jmp fl_quit
+
+*-------------------------------
+* delete a word from list
+
+fl_del ldx #20
+ jsr cleos ; clear line
+ jsr print
+ db 1,20,0
+ asc 'Delete [A-',00
+
+ clc
+ lda temp2
+ adc #'@'
+ jsr cout ; print range
+
+ jsr print
+ asc '] ? ',00
+
+ lda #%10000000
+ sta inpmode ; set mode
+
+ jsr inpln ; get data
+ lda lnbuf
+ cmp #'A'
+ bcc filt5 ; move back, error
+
+ sec
+ sbc #'A' ; make into [0-xxx] range
+ cmp temp2
+ bcc *+5
+ jmp filt5 ; out of range
+
+ pha
+ tax
+ inx
+ jsr fndword ; locate second word
+ sty temp2+1 ; save offset
+ pla
+ tax
+ jsr fndword ; locate first word
+ ldx temp2+1 ; point to second word
+
+fl_del2 lda hdrbuf,x ; move data
+ sta hdrbuf,y
+ iny
+ inx
+ bne fl_del2 ; loop
+ jmp filt2 ; show new screen
+
+; add a word to list
+fl_add ldx #20
+ jsr cleos ; clear line
+ jsr print
+ db 1,20,0
+ asc 'Enter new word: ',00
+
+ lda #16 ; 16 chars max length
+ sta maxlen
+ lda #%10000000
+ sta inpmode ; set input mode
+
+ jsr inpln ; get the data
+ lda lnbuf
+ cmp #'A'
+ bcc fl_add4 ; abort
+
+ ldx temp2 ; get last word
+ jsr fndword ; find end
+ sty temp2+1 ; save current end
+
+ ldx #0
+fl_add2 lda lnbuf,x
+ cmp #'A'
+ bcc fl_add3
+
+ sta hdrbuf,y ; add byte
+ inx
+ iny
+ bne fl_add2 ; and loop
+
+ lda #0
+ ldy temp2+1 ; mark old end of table
+ sta hdrbuf,y
+
+ jsr print
+ db 1,20,0
+ asc 'Error: Filter Table Overrun.   Press [RETURN] ',00
+ jsr getcr ; wait for cr
+fl_add4 jmp filt5 ; get new data
+
+fl_add3 lda #0 ; mark end of table
+ sta hdrbuf,y
+ dey
+ lda hdrbuf,y ; mark as last char
+ ora #$80
+ sta hdrbuf,y
+ jmp filt2 ; show new table
+
+; quit from filter changer
+fl_quit ldx #20
+ jsr cleos ; clear bottom of screen
+ jsr print
+ db 1,20,0
+ asc 'Is the above table correct [Y/N] ? ',00
+ jsr inpyn
+ bcc fl_save
+ jmp start ; nope!
+
+fl_save jsr logprg ; log to 'acos.obj' drive
+ ldx #<gname
+ lda #>gname ; setup name buffer
+ jsr movname
+ jsr open ; open file
+
+ ldx #00
+ lda filter ; position to filter table
+ jsr setmark
+
+ ldx #<hdrbuf
+ lda #>hdrbuf
+ ldy #2 ; write 1 page (2 blocks)
+ jsr wrblk
+ jsr close ; thats it for now
+ jmp start
+
+
+; locate a word [indexed by x]
+fndword ldy #0
+ cpx #0 ; we done?
+ beq fndwd2 ; yep
+
+fndwd1 lda hdrbuf,y ; loop until next word
+ beq fndwd4 ; end of table
+
+ iny  ; goto next byte
+ asl a ; check high bit
+ bcc fndwd1
+
+ dex  ; count down entries
+ bne fndwd1
+
+fndwd2 lda hdrbuf,y
+ beq fndwd4 ; opps, that is end marker
+
+fndwd3 clc
+ rts  ; we are done
+
+fndwd4 sec  ; opps, end of table
+ rts
+
+*-------------------------------
+* Quit
+*-------------------------------
+
+; quit the program
+do_quit jsr $fc58 ; clear screen
+ sta $c051 ; goto text mode
+
+ lda #$ff ; reset inverse flag
+ sta $32
+
+
+ jsr mli
+ db $65 ; quit
+ dw p_quit
+ rts
+
+
+p_quit db 4
+ db 0
+ dw 0
+ db 0
+ dw 0
+
+
