@@ -7,7 +7,7 @@ Several items have been changed and or fixed in the official 2.2 release and inc
 GBBS 2.2 Fixes from 2.2b1 to current (v2.2)
 
 LOGON.SEG.S
-	Fixed syntax for ACOS.TIME (line still commented out however; we don't include this external so not sure why this is even here)
+	Fixed syntax for ACOS.TIME (line still commented out however; we don't include this external)
 	Fixed an unclosed quote
 	Fixed spelling of "tomarrow"
 	Fixed bug in this line
@@ -21,7 +21,7 @@ Patched version of PRODOS 1.9 with current date table
 SYS.NEW.INFO renamed to SYS.NEWINFO so it works
 
 Removed README.214 from /GBBS.CONFIG as it does not apply
-Added ENCODE to /GBBS.CONFIG (although I don't think it's required)
+Added ENCODE to /GBBS.CONFIG
 
 Removed ACOS.OBJ and ACOS.SYSTEM from /GBBS.SYSTEM
 Updated XDOS with newer version on /GBBS.SYSTEM
